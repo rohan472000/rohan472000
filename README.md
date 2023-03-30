@@ -4,7 +4,7 @@
 
 <p align='left'>Open to contribute and learn</p>
 
-<h2>My Github Stats</h2>
+<!-- <h2>My Github Stats</h2> -->
 
 <h4>Visitor Count :eyes:</h4>
 <p>
