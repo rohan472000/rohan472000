@@ -1,5 +1,5 @@
 ### Hi Viewer 👋
-[![Gmail Badge](https://img.shields.io/badge/-anand00rohan@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:rizsyad@gmail.com)](mailto:anand00rohan@gmail.com) 
+<!-- [![Gmail Badge](https://img.shields.io/badge/-anand00rohan@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:rizsyad@gmail.com)](mailto:anand00rohan@gmail.com)  -->
 <!-- [![Github Badge](https://img.shields.io/badge/-rohan472000-grey?style=flat&logo=github&logoColor=white&link=https://github.com/rohan472000/)](https://www.github.com/rohan472000/) -->
 
 <!-- <p align='left'>Open to contribute and learn</p> -->
