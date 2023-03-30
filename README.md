@@ -6,7 +6,7 @@
 
 <!-- <h2>My Github Stats</h2> -->
 
-<h4>Visitor Count :eyes:</h4>
+<h2>Visitor Count :eyes:</h2>
 <p>
     <a href="https://github.com/rohan472000">
         <img src="https://profile-counter.glitch.me/{rohan472000}/count.svg" alt="rohan472000 :: Visitor's Count" />
