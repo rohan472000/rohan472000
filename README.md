@@ -2,7 +2,12 @@
 
 <!--
 **rohan472000/rohan472000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+<h4>Visitor Count :eyes:</h4>
+<p>
+    <a href="https://github.com/rohan472000">
+        <img src="https://profile-counter.glitch.me/{rohan472000}/count.svg" alt="rohan472000 :: Visitor's Count" />
+    </a>
+</p>
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
