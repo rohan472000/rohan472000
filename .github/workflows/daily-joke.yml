@@ -8,17 +8,18 @@ jobs:
   fetch-joke:
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v3
-      - run: pip install --user requests
+      - uses: actions/checkout@v2
+      - name: Set up Python
+        uses: actions/setup-python@v2
+        with:
+          python-version: "3.x"
+      - name: Install requests
+        run: pip install requests
       - name: Fetch a joke
-        shell: python
         run: |
           import requests
-
           url = "https://v2.jokeapi.dev/joke/Any?type=single"
-
           response = requests.get(url)
-
           if response.status_code == 200:
               joke = response.json()["joke"]
               with open("README.md", "a") as readme_file:
@@ -28,7 +29,7 @@ jobs:
       - name: Commit and push changes
         run: |
           git config --global user.email "anand00rohan@gmail.com"
-          git config --global user.name "rohan anand"
+          git config --global user.name "rohan"
           git add README.md
           git commit -m "Add daily joke"
-          git push        
+          git push
