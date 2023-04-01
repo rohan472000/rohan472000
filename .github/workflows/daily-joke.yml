@@ -2,7 +2,7 @@ name: Daily Joke
 
 on:
   schedule:
-    - cron: "0 12 * * *"
+    - cron: "* * * * *"
 
 jobs:
   fetch-joke:
