@@ -1,0 +1,27 @@
+name: Daily Joke
+
+on:
+  schedule:
+    - cron: "* * * * *"
+
+jobs:
+  fetch-joke:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v2
+
+      - name: Fetch a joke
+        run: |
+          import requests
+
+          url = "https://v2.jokeapi.dev/joke/Any?type=single"
+
+          response = requests.get(url)
+
+          if response.status_code == 200:
+              joke = response.json()["joke"]
+              with open("README.md", "a") as readme_file:
+                  readme_file.write(f"\n- {joke}")
+          else:
+              print("Failed to fetch joke")
