@@ -34,5 +34,6 @@ jobs:
           git add README.md
           git commit -m "Add daily joke"
           git pull origin main
-          git push origin main
+          git push -f origin main
+
 
