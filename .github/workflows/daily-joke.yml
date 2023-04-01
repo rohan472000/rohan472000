@@ -23,7 +23,7 @@ jobs:
           import -window root -delay 200 screenshot.png
           import-im6.q16 -window root screenshot.png
           tesseract screenshot.png output
-          cp output.txt > .github/workflows/one.txt
+          cp .github/workflows/output.txt > .github/workflows/one.txt
           rm screenshot.png output.txt
       - name: Commit and push changes
         run: |
