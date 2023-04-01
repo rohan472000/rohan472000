@@ -29,8 +29,8 @@ jobs:
         run: |
           git config --global user.email "anand00rohan@gmail.com"
           git config --global user.name "rohan472000"
-          git pull origin main
           if [ -s "README.md" ]; then
+            git pull origin main
             git add README.md
             git commit -m "Add daily joke"
             git push origin main
