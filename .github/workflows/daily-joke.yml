@@ -8,11 +8,11 @@ jobs:
   fetch-joke:
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v3
+      - uses: actions/checkout@v2
       - name: Set up Python
-        uses: actions/setup-python@v3
+        uses: actions/setup-python@v2
         with:
-          python-version: "3.7"
+          python-version: "3.x"
       - name: Install requests
         run: pip install requests
       - name: Fetch a joke
@@ -33,7 +33,4 @@ jobs:
           git pull origin main
           git add README.md
           git commit -m "Add daily joke"
-          git pull origin main
-          git push -f origin main
-
-
+          git push origin main
