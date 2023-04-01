@@ -32,7 +32,6 @@ jobs:
           if [ -s "README.md" ]; then
             git pull origin main
             git add README.md
-            git commit -m "added"
             git push -f origin main
           else
             echo "No changes to commit"
