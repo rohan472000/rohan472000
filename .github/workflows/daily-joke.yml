@@ -25,3 +25,10 @@ jobs:
                   readme_file.write(f"\n- {joke}")
           else:
               print("Failed to fetch joke")
+      - name: Commit and push changes
+        run: |
+          git config --global user.email "anand00rohan@gmail.com"
+          git config --global user.name "rohan anand"
+          git add README.md
+          git commit -m "Add daily joke"
+          git push        
