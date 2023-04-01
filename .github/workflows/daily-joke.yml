@@ -33,7 +33,7 @@ jobs:
             git pull origin main
             git add README.md
             git commit -m "Add daily joke"
-            git push origin main
+            git push -f origin main
           else
             echo "No changes to commit"
           fi
