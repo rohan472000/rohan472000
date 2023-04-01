@@ -29,7 +29,9 @@ jobs:
       - name: Commit and push changes
         run: |
           git config --global user.email "anand00rohan@gmail.com"
-          git config --global user.name "rohan"
+          git config --global user.name "rohan472000"
+          git pull origin main
           git add README.md
           git commit -m "Add daily joke"
-          git push
+          git push origin main
+
