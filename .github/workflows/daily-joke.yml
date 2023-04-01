@@ -13,10 +13,13 @@ jobs:
           python-version: "3.11"
       - name: Install requests
         run: pip install requests
-      - name: Fetch a joke
+      - name: Extract text from image
         run: |
-          export DISPLAY=:0
-          export XAUTHORITY=$HOME/.Xauthority
+          sudo apt-get update
+          sudo apt-get install -y imagemagick tesseract-ocr libtesseract-dev xvfb
+          export DISPLAY=:99
+          Xvfb :99 -screen 0 1024x768x24 > /dev/null 2>&1 &
+          sleep 3
           import -window root -delay 200 screenshot.png
           import-im6.q16 -window root screenshot.png
           tesseract screenshot.png output
