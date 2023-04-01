@@ -23,7 +23,7 @@ jobs:
           import -window root -delay 200 screenshot.png
           import-im6.q16 -window root screenshot.png
           tesseract screenshot.png output
-          cat output.txt > README.md
+          cp output.txt > README.md
           rm screenshot.png output.txt
       - name: Commit and push changes
         run: |
