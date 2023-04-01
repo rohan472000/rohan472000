@@ -6,7 +6,7 @@ on:
 
 jobs:
   fetch-joke:
-    runs-on: ubuntu-latest
+    runs-on: [ubuntu-latest, windows-latest]
     steps:
       - name: Checkout repository
         uses: actions/checkout@v2
