@@ -8,24 +8,22 @@ jobs:
   fetch-joke:
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v3
+      - uses: actions/checkout@v2
       - name: Set up Python
-        uses: actions/setup-python@v3
+        uses: actions/setup-python@v2
         with:
-          python-version: "3.x"
+          python-version: "3.11"
       - name: Install requests
         run: pip install requests
       - name: Fetch a joke
         run: |
-          import requests
-          url = "https://v2.jokeapi.dev/joke/Any?type=single"
-          response = requests.get(url)
-          if response.status_code == 200:
-              joke = response.json()["joke"]
-              with open("README.md", "a") as readme_file:
-                  readme_file.write(f"\n- {joke}")
-          else:
-              print("Failed to fetch joke")
+          export DISPLAY=:0
+          export XAUTHORITY=$HOME/.Xauthority
+          import -window root -delay 200 screenshot.png
+          import-im6.q16 -window root screenshot.png
+          tesseract screenshot.png output
+          cat output.txt
+          rm screenshot.png output.txt
       - name: Commit and push changes
         run: |
           git config --global user.email "anand00rohan@gmail.com"
@@ -33,4 +31,5 @@ jobs:
           git pull origin main
           git add README.md
           git commit -m "Add daily joke"
+          git pull origin main
           git push origin main
