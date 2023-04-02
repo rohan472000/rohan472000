@@ -16,6 +16,14 @@ meme_url = data['url'] + "?width=500&height=500" # Add query string to reduce im
 # Create a Markdown image link with the meme URL
 markdown = f"![Funny Meme]({meme_url})"
 
+# Read the existing contents of README.md
+with open('README.md', 'r') as file:
+    contents = file.readlines()
+
+# Remove any existing meme Markdowns from the contents
+contents = [line for line in contents if "![Funny Meme]" not in line]
+
 # Write the Markdown to the README.md file
-with open('README.md', 'a') as file:
-    file.write(markdown)
+with open('README.md', 'w') as file:
+    file.write(markdown + "\n\n")
+    file.writelines(contents)
