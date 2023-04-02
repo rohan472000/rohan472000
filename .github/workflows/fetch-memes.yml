@@ -23,7 +23,7 @@ jobs:
         run: pip install requests
         
       - name: Fetch a random meme
-        run: python fetch-memes.py
+        run: python joke.py
         
       - name: Commit and push changes
         uses: stefanzweifel/git-auto-commit-action@v4
