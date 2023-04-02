@@ -23,10 +23,18 @@ with open('README.md', 'r') as file:
 # Remove any existing meme Markdowns from the contents
 contents = [line for line in contents if "![Funny Meme]" not in line]
 
+# # Write the Markdown to the README.md file
+# with open('README.md', 'w') as file:
+#     # Add the warning message if it does not exist
+#     if contents[0].strip() != "## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄":
+#         file.write("## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄\n\n")
+#     file.write(markdown + "\n\n")
+#     file.writelines(contents)
+# Add a warning message at the beginning of the contents
+warning = "## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄\n\n"
+contents.insert(0, warning)
+
 # Write the Markdown to the README.md file
 with open('README.md', 'w') as file:
-    # Add the warning message if it does not exist
-    if contents[0].strip() != "## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄":
-        file.write("## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄\n\n")
-    file.write(markdown + "\n\n")
     file.writelines(contents)
+    file.write(markdown + "\n\n")
