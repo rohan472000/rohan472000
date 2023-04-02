@@ -11,7 +11,7 @@ response = requests.get(url, headers={'User-agent': user_agent})
 # Extract the meme URL from the response JSON
 data = json.loads(response.text)[0]['data']['children'][0]['data']
 meme_url = data['url']
-meme_url = data['url'] + "?width=500&height=500" # Add query string to reduce image size
+meme_url = data['url'] + "?width=100&height=100" # Add query string to reduce image size
 
 # Create a Markdown image link with the meme URL
 markdown = f"![Funny Meme]({meme_url})"
