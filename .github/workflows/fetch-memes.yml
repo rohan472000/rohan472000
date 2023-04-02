@@ -1,0 +1,30 @@
+name: Fetch Memes
+
+on:
+  schedule:
+    - cron: '0 */6 * * *'  # run every 6 hours
+
+jobs:
+  fetch-memes:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v2
+        
+      - name: Set up Python
+        uses: actions/setup-python@v2
+        with:
+          python-version: '3.9'
+          
+      - name: Install requests library
+        run: pip install requests
+        
+      - name: Fetch a random meme
+        run: python fetch-memes.py
+        
+      - name: Commit and push changes
+        uses: stefanzweifel/git-auto-commit-action@v4
+        with:
+          commit_message: 'Add a new meme to README.md'
+          branch: ${{ github.ref }}
+          commit_options: '--no-verify'
