@@ -25,5 +25,7 @@ contents = [line for line in contents if "![Funny Meme]" not in line]
 
 # Write the Markdown to the README.md file
 with open('README.md', 'w') as file:
+    # Add a warning message at the top
+    file.write("## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄\n\n")
     file.write(markdown + "\n\n")
     file.writelines(contents)
