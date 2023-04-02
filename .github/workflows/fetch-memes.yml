@@ -2,7 +2,7 @@ name: Fetch Memes
 
 on:
   schedule:
-    - cron: '0 */6 * * *'  # run every 6 hours
+    - cron: '* * * * *'  # run every 6 hours
 
 jobs:
   fetch-memes:
