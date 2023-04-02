@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/oehqlkvq98ra1.png?width=500&height=500)
+![Funny Meme](https://i.redd.it/gr8vdvv22dra1.jpg?width=100&height=100)
+
 
 ### Hi Viewer, I'm doing freelancing in Data Engineering domain, feel free to reach out. 👋
 [![Gmail Badge](https://img.shields.io/badge/-anand00rohan@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:rizsyad@gmail.com)](mailto:anand00rohan@gmail.com)
