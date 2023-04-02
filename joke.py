@@ -2,7 +2,7 @@ import requests
 import json
 
 # Reddit API endpoint to fetch memes from the "memes" subreddit
-url = "https://www.reddit.com/r/memes/random.json"
+url = "https://www.reddit.com/r/memes/random.json?limit=1"
 
 user_agent='Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/111.0.0.0 Safari/537.36'
 # Make a request to the Reddit API
