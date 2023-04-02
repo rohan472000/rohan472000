@@ -1,3 +1,5 @@
+![Funny Meme](https://i.redd.it/oehqlkvq98ra1.png?width=500&height=500)
+
 ### Hi Viewer, I'm doing freelancing in Data Engineering domain, feel free to reach out. 👋
 [![Gmail Badge](https://img.shields.io/badge/-anand00rohan@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:rizsyad@gmail.com)](mailto:anand00rohan@gmail.com)
 <!-- [![Github Badge](https://img.shields.io/badge/-rohan472000-grey?style=flat&logo=github&logoColor=white&link=https://github.com/rohan472000/)](https://www.github.com/rohan472000/) -->
@@ -30,4 +32,3 @@ Here are some ideas to get you started:
 -->
 
 
-![Funny Meme](https://i.redd.it/crm0d1kemdra1.png)![Funny Meme](https://i.redd.it/u241s8dd5dra1.png)![Funny Meme](https://i.redd.it/3jr7srisqdra1.gif?width=500&height=500)![Funny Meme](https://i.redd.it/iz3k17waidra1.jpg?width=500&height=500)
