@@ -1,11 +1,5 @@
 ![Funny Meme](https://i.redd.it/3tadc3n9gfra1.gif?width=100&height=100)
 
-## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
-
-
-
-## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
-
 
 
 
