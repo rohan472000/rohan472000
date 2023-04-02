@@ -1,7 +1,7 @@
 name: Daily Joke
 on:
-  schedule:
-    - cron: "* * * * *"
+#   schedule:
+#     - cron: "* * * * *"
 jobs:
   fetch-joke:
     runs-on: ubuntu-latest
