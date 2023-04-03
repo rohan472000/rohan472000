@@ -1,3 +1,4 @@
+#  Copyright (c) 2023 Rohan Anand (anand00rohan@gmail.com), rohan472000 on GitHub
 import requests
 import json
 
