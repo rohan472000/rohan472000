@@ -10,7 +10,7 @@ user_agent='Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML,
 # Make a request to the Reddit API
 response = requests.get(url, headers={'User-agent': user_agent})
 
-# Extract the meme URL from the response JSON
+# Extract the  meme URL from the response JSON
 data = json.loads(response.text)[0]['data']['children'][0]['data']
 meme_url = data['url']
 meme_url = data['url'] + "?width=100&height=100" # Add query string to reduce image size
