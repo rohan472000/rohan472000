@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/lcgya10wwosa1.jpg?width=100&height=100)
+![Funny Meme](https://www.reddit.com/r/teenagers/comments/12fjyvn/you_have_a_superiority_complex/?width=100&height=100)
+
 
 
 
