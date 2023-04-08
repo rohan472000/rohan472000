@@ -1,4 +1,5 @@
-![Funny Meme](https://www.reddit.com/r/teenagers/comments/12fjyvn/you_have_a_superiority_complex/?width=100&height=100)
+![Funny Meme](https://www.reddit.com/r/AskMen/comments/12fkmyk/fathers_whats_it_like_seeing_your_baby_mommas/?width=100&height=100)
+
 
 
 
