@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/l3gyqpli0nsa1.jpg?width=100&height=100)
+![Funny Meme](https://www.reddit.com/r/tolkienbooks/comments/12fj3a4/new_deluxe_editions/?width=100&height=100)
+
 
 
 
