@@ -1,4 +1,5 @@
-![Funny Meme](https://www.reddit.com/r/AskMen/comments/12fkmyk/fathers_whats_it_like_seeing_your_baby_mommas/?width=100&height=100)
+![Funny Meme](https://i.imgur.com/ouMVW0L.jpg?width=100&height=100)
+
 
 
 
