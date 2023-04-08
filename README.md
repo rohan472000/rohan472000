@@ -1,4 +1,5 @@
-![Funny Meme](https://www.gazette-news.co.uk/news/23435873.litter-officers-patrol-colchester-dish-fines-crackdown/?ref=rss?width=100&height=100)
+![Funny Meme](https://v.redd.it/yft0kgijcisa1?width=100&height=100)
+
 
 
 
