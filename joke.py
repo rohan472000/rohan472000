@@ -30,7 +30,7 @@ with open('README.md', 'w') as file:
     file.write(markdown + "\n\n")
     file.writelines(contents)
 # # Add a warning message at the beginning of the contents
-# warning = "## Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄\n\n"
+# warning = "##Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄\n\n"
 # contents.insert(0, warning)
 
 # # Write the Markdown to the README.md file
