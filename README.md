@@ -1,4 +1,5 @@
-![Funny Meme](https://reddit.com/r/memes/predictions?tournament=tnmt-64ab4e2c-60ea-4f7f-b6ad-f33ef3757c6f?width=100&height=100)
+![Funny Meme](https://i.redd.it/07fp29ubnjua1.gif?width=100&height=100)
+
 
 
 
