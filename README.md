@@ -1,9 +1,8 @@
-![Funny Meme](https://i.redd.it/d55bmsgllpua1.jpg?width=100&height=100)
-
+![Funny Meme](https://i.redd.it/q2wxknmx3mua1.jpg?width=100&height=100)
 
 ### Warning: The news/memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and read/laugh before they disappear! 😄
 
-**----------------------------------------------------------------------------------------------------------------------------**
+**------------------------------------------------------------------------------------------------------------------------------------------------**
 
 ### Hi Viewer, I'm doing freelancing in Data Engineering domain, feel free to reach out. 👋
 [![Gmail Badge](https://img.shields.io/badge/-anand00rohan@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:rizsyad@gmail.com)](mailto:anand00rohan@gmail.com)
