@@ -1,16 +1,5 @@
 ![Funny Meme](https://i.redd.it/fw8rpqnm0lua1.jpg?width=100&height=100)
 
-
-
-
-
-
-
-
-
-
-
-
 ### Warning: The news/memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and read/laugh before they disappear! 😄
 
 **----------------------------------------------------------------------------------------------------------------------------**
@@ -30,20 +19,4 @@
     </a>
 </p>
 
-![GitHub Stats](https://github-readme-stats.vercel.app/api?username=rohan472000&theme=radical)
-<!--
-**rohan472000/rohan472000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
--->
-
-
-
+![Rohan Anand's GitHub stats](https://github-readme-stats.vercel.app/api?username=rohan472000&show_icons=true&bg_color=00000000)
