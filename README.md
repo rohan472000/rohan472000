@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/00t41pwziwva1.gif?width=100&height=100)
+![Funny Meme](https://i.redd.it/ax7aauwosvva1.jpg?width=100&height=100)
+
 
 
 
