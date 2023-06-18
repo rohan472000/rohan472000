@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/a3cqyw7o9s6b1.jpg?width=100&height=100)
+![Funny Meme](https://www.reddit.com/r/memes/comments/14btvno/hear_ye_hear_ye_poll_regarding_the_future_of/?width=100&height=100)
+
 
 
 
