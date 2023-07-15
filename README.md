@@ -7,7 +7,7 @@
 
 **------------------------------------------------------------------------------------------------------------------------------------------------**
 
-### Connect with me👋
+<h2> Connect with me👋 </h2>
 [![Gmail Badge](https://img.shields.io/badge/-anand00rohan@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:rizsyad@gmail.com)](mailto:anand00rohan@gmail.com)
 
 
