@@ -19,8 +19,8 @@
 </p>
 
 <p>
-    <a href="https://github.com/Rizsyad"><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Rizsyad&theme=tokyonight&layout=compact&hide_border=true&bg_color=282A36&icon_color=686868&title_color=57c7ff&text_color=9aedfe" alt="Rizsyad :: Top Langs" /></a>
-    <a href="https://github.com/Rizsyad"><img src="https://github-readme-stats.vercel.app/api?username=Rizsyad&show_icons=true&include_all_commits=true&hide_border=true&bg_color=282A36&icon_color=686868&title_color=57c7ff&text_color=9aedfe&custom_title=My+Github+Stats" alt="Rizsyad :: Profile Stats" /></a>
+    <a href="https://github.com/rohan472000"><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=rohan472000&theme=tokyonight&layout=compact&hide_border=true&bg_color=282A36&icon_color=686868&title_color=57c7ff&text_color=9aedfe" alt="Rizsyad :: Top Langs" /></a>
+    <a href="https://github.com/rohan472000"><img src="https://github-readme-stats.vercel.app/api?username=rohan472000&show_icons=true&include_all_commits=true&hide_border=true&bg_color=282A36&icon_color=686868&title_color=57c7ff&text_color=9aedfe&custom_title=My+Github+Stats" alt="Rizsyad :: Profile Stats" /></a>
 </p>
 
 
