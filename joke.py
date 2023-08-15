@@ -23,7 +23,7 @@ with open('README.md', 'r') as file:
     contents = file.readlines()
 
 # Remove any existing meme Markdowns from the contents
-contents = [line for line in contents if "![Funny Meme]" not in line]
+contents = [line for line in contents if "![Funny Meme]" not in line and line != "\n"]
 
 # Write the Markdown to the README.md file
 with open('README.md', 'w') as file:
