@@ -1,4 +1,6 @@
 #  Copyright (c) 2023 Rohan Anand (anand00rohan@gmail.com), rohan472000 on GitHub
+import re
+
 import requests
 import json
 
@@ -20,10 +22,17 @@ markdown = f"![Funny Meme]({meme_url})"
 
 # Read the existing contents of README.md
 with open('README.md', 'r') as file:
-    contents = file.readlines()
+    lines = file.readlines()
+    contents = []
+    for i, line in enumerate(lines):
+        if i+1 == len(lines):
+            contents.append(line)
+        elif line != '\n' or lines[i+1] != '\n':
+            contents.append(line)
 
 # Remove any existing meme Markdowns from the contents
-contents = [line for line in contents if "![Funny Meme]" not in line and line != "\n"]
+contents = [line for line in contents if "![Funny Meme]" not in line]
+
 
 # Write the Markdown to the README.md file
 with open('README.md', 'w') as file:
