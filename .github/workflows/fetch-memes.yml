@@ -6,7 +6,7 @@ on:
     branches:
       - main
   schedule:
-    - cron: '* * * * *'  
+    - cron: '1 * * * *'  
 
 jobs:
   fetch-memes:
