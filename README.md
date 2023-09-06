@@ -1,4 +1,4 @@
-![Funny Meme](https://i.redd.it/599knlk69jmb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/yn4vuq37eomb1.jpg?width=100&height=100)
 
 
 ### Warning: The news/memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and read/laugh before they disappear! 😄
