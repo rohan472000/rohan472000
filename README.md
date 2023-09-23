@@ -1,9 +1,7 @@
 ![Funny Meme](https://v.redd.it/higrbqbgaupb1?width=100&height=100)
 
-### Warning: The news/memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and read/laugh before they disappear! 😄
-
+### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
 **------------------------------------------------------------------------------------------------------------------------------------------------**
-
 <h2> Connect with me👋 </h2>
 
 [![Gmail Badge](https://img.shields.io/badge/-anand00rohan@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:rizsyad@gmail.com)](mailto:anand00rohan@gmail.com)
@@ -14,6 +12,4 @@
         <img src="https://profile-counter.glitch.me/{rohan472000}/count.svg" alt="rohan472000 :: Visitor's Count"/>
     </a>
 </p>
-
 [![GitHub Streak](https://streak-stats.demolab.com/?user=rohan472000&theme=dark)](https://git.io/streak-stats)
-
