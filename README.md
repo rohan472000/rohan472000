@@ -6,19 +6,6 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
 **------------------------------------------------------------------------------------------------------------------------------------------------**
 <h2> Connect with me👋 </h2>
