@@ -1,38 +1,38 @@
-name: Daily Joke
-on:
-#   schedule:
-#     - cron: "* * * * *"
-jobs:
-  fetch-joke:
-    runs-on: ubuntu-latest
-    steps:
-      - uses: actions/checkout@v3
-      - name: Set up Python
-        uses: actions/setup-python@v3
-        with:
-          python-version: "3.11"
-      - name: Install requests
-        run: pip install requests
-      - name: Extract text from image
-        run: |
-          sudo apt-get update
-          sudo apt-get install -y imagemagick tesseract-ocr libtesseract-dev xvfb
-          export DISPLAY=:99
-          Xvfb :99 -screen 0 1024x768x24 > /dev/null 2>&1 &
-          sleep 3
-          import -window root -delay 200 screenshot.png
-          import-im6.q16 -window root screenshot.png
-          tesseract screenshot.png output
-          cat output.txt > README.md
-          rm screenshot.png output.txt
-      - name: Commit and push changes
-        run: |
-          git config --global user.email "anand00rohan@gmail.com"
-          git config --global user.name "rohan472000"
-          if [ -s "README.md" ]; then
-            git pull origin main
-            git add README.md
-            git push -f origin main
-          else
-            echo "No changes to commit"
-          fi
+# name: Daily Joke
+# on:
+# #   schedule:
+# #     - cron: "* * * * *"
+# jobs:
+#   fetch-joke:
+#     runs-on: ubuntu-latest
+#     steps:
+#       - uses: actions/checkout@v3
+#       - name: Set up Python
+#         uses: actions/setup-python@v3
+#         with:
+#           python-version: "3.11"
+#       - name: Install requests
+#         run: pip install requests
+#       - name: Extract text from image
+#         run: |
+#           sudo apt-get update
+#           sudo apt-get install -y imagemagick tesseract-ocr libtesseract-dev xvfb
+#           export DISPLAY=:99
+#           Xvfb :99 -screen 0 1024x768x24 > /dev/null 2>&1 &
+#           sleep 3
+#           import -window root -delay 200 screenshot.png
+#           import-im6.q16 -window root screenshot.png
+#           tesseract screenshot.png output
+#           cat output.txt > README.md
+#           rm screenshot.png output.txt
+#       - name: Commit and push changes
+#         run: |
+#           git config --global user.email "anand00rohan@gmail.com"
+#           git config --global user.name "rohan472000"
+#           if [ -s "README.md" ]; then
+#             git pull origin main
+#             git add README.md
+#             git push -f origin main
+#           else
+#             echo "No changes to commit"
+#           fi
