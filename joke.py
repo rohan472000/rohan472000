@@ -56,13 +56,19 @@ def update_readme_with_meme(markdown):
         with open('README.md', 'r') as file:
             contents = file.readlines()
 
-        # Remove any existing meme Markdowns from the contents
-        #contents = [line for line in contents if not re.match(r"!\[Funny Meme\]\(.*\)", line)]
-        contents = [line for line in contents if "![Funny Meme]" not in line and line != "\n"]
+        # Find the index of the first line that contains "![Funny Meme]"
+        index_to_replace = None
+        for i, line in enumerate(contents):
+            if "![Funny Meme]" in line:
+                index_to_replace = i
+                break
 
-        # Append the new meme Markdown to the README.md file
+        # If a line with "![Funny Meme]" was found, replace it
+        if index_to_replace is not None:
+            contents[index_to_replace] = markdown + "\n"
+
+        # Write the modified contents back to README.md
         with open('README.md', 'w') as file:
-            file.write(markdown + "\n\n")
             file.writelines(contents)
     except Exception as e:
         print(f"An error occurred while updating README.md: {str(e)}")
