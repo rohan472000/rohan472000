@@ -57,7 +57,8 @@ def update_readme_with_meme(markdown):
             contents = file.readlines()
 
         # Remove any existing meme Markdowns from the contents
-        contents = [line for line in contents if not re.match(r"!\[Funny Meme\]\(.*\)", line)]
+        #contents = [line for line in contents if not re.match(r"!\[Funny Meme\]\(.*\)", line)]
+        contents = [line for line in contents if "![Funny Meme]" not in line and line != "\n"]
 
         # Append the new meme Markdown to the README.md file
         with open('README.md', 'w') as file:
