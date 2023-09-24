@@ -42,7 +42,14 @@ def extract_meme_url(meme_data):
             and "url" in meme_data[0]["data"]["children"][0]["data"]
         ):
             meme_url = meme_data[0]["data"]["children"][0]["data"]["url"]
-            return meme_url + "?width=100&height=100"  # Add query string to reduce image size
+            
+            # Check if the URL ends with a common image file extension
+            image_file_extensions = ['.jpg', '.jpeg', '.png', '.gif']
+            if any(meme_url.lower().endswith(ext) for ext in image_file_extensions):
+                return meme_url + "?width=100&height=100"  # Add query string to reduce image size
+            
+            print("URL does not point to an image.")
+            return None
         else:
             print("Unexpected JSON structure in the response.")
             return None
