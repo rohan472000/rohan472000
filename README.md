@@ -1,4 +1,3 @@
-
 ![Funny Meme](https://i.redd.it/umj975we75qb1.jpg?width=100&height=100)
 
 
