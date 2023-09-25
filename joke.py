@@ -44,7 +44,7 @@ def extract_meme_url(meme_data):
             meme_url = meme_data[0]["data"]["children"][0]["data"]["url"]
             
             # Check if the URL ends with a common image file extension
-            image_file_extensions = ['.jpg', '.jpeg', '.png', '.gif']
+            image_file_extensions = ['.jpg', '.jpeg', '.png']
             if any(meme_url.lower().endswith(ext) for ext in image_file_extensions):
                 return meme_url + "?width=100&height=100"  # Add query string to reduce image size
             
