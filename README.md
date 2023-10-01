@@ -23,4 +23,3 @@
   <img src="https://contrib.rocks/image?repo=rohan472000/rohan472000" />
 </a>
 
-Made with [contrib.rocks](https://contrib.rocks).
