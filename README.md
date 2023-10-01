@@ -1,5 +1,5 @@
 
-![Funny Meme](https://i.redd.it/9d99fhnrxgrb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/a5z6wyrshkrb1.jpg?width=100&height=100)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
@@ -23,3 +23,8 @@
   <img src="https://contrib.rocks/image?repo=rohan472000/rohan472000" />
 </a>
 
+## Subscribe for Notifications
+
+To receive notifications of the latest memes, add your email below:
+
+Email: [your_email@example.com](mailto:your_email@example.com)

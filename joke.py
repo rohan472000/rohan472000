@@ -2,6 +2,7 @@ import requests
 import logging
 import re
 import json
+from email_notifications import send_email_notification,get_subscribed_emails  # Import the email notification function
 
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
@@ -14,6 +15,9 @@ IMAGE_EXTENSIONS_PATTERN = re.compile(r'\.(jpg|jpeg|png)$', re.IGNORECASE)
 
 # Configure logging
 logging.basicConfig(level=logging.INFO)
+
+# List to store subscribed email addresses
+subscribed_users = []
 
 def fetch_random_url(api_url, user_agent):
     try:
@@ -44,6 +48,11 @@ def main():
     if meme_url and IMAGE_EXTENSIONS_PATTERN.search(meme_url):
         markdown = f"![Funny Meme]({meme_url}?width=100&height=100)"
         update_readme_with_url(markdown)
+
+        subscribed_emails = get_subscribed_emails()
+        for email in subscribed_emails:
+            send_email_notification("New Meme Update", "Check out the latest meme in the README!", email)
+
 
 if __name__ == "__main__":
     main()
