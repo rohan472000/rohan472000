@@ -15,6 +15,7 @@ IMAGE_EXTENSIONS_PATTERN = re.compile(r'\.(jpg|jpeg|png)$', re.IGNORECASE)
 # Configure logging
 logging.basicConfig(level=logging.INFO)
 
+
 def fetch_random_url(api_url, user_agent):
     try:
         response = requests.get(api_url, headers={'User-agent': user_agent})
