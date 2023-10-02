@@ -1,5 +1,5 @@
 
-![Funny Meme](https://i.redd.it/uqrt06ok9mrb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/jbh7m0f63prb1.jpg?width=100&height=100)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
