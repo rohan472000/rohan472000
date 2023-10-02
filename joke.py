@@ -11,8 +11,8 @@ USER_AGENT = (
     "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
     "(KHTML, like Gecko) Chrome/111.0.0.0 Safari/537.36"
 )
-README_FILE = 'README.md'
-IMAGE_EXTENSIONS_PATTERN = re.compile(r'\.(jpg|jpeg|png)$', re.IGNORECASE)
+README_FILE = "README.md"
+IMAGE_EXTENSIONS_PATTERN = re.compile(r"\.(jpg|jpeg|png)$", re.IGNORECASE)
 
 # Configure logging
 logging.basicConfig(level=logging.INFO)
@@ -21,14 +21,14 @@ logging.basicConfig(level=logging.INFO)
 def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
     """Get URL of a random meme from Reddit API."""
     try:
-        response = requests.get(api_url, headers={'User-agent': user_agent})
+        response = requests.get(api_url, headers={"User-agent": user_agent})
         response.raise_for_status()
-        return response.json()[0]['data']['children'][0]['data']['url']
+        return response.json()[0]["data"]["children"][0]["data"]["url"]
     except (
         requests.exceptions.RequestException,
         json.JSONDecodeError,
         KeyError,
-        IndexError
+        IndexError,
     ) as e:
         logging.error(f"An error occurred: {e}")
         return None
@@ -37,7 +37,7 @@ def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
 def update_readme_with_url(markdown: str) -> bool:
     """Update README with new URL, returning whether successful."""
     try:
-        with open(README_FILE, 'r') as file:
+        with open(README_FILE, "r") as file:
             contents = file.readlines()
 
         for i, line in enumerate(contents):
@@ -45,7 +45,7 @@ def update_readme_with_url(markdown: str) -> bool:
                 contents[i] = markdown + "\n"
                 break
 
-        with open(README_FILE, 'w') as file:
+        with open(README_FILE, "w") as file:
             file.writelines(contents)
         return True
     except (IOError, FileNotFoundError) as e:
