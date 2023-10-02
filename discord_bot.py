@@ -13,7 +13,7 @@ USER_AGENT = (
     "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
     "(KHTML, like Gecko) Chrome/111.0.0.0 Safari/537.36"
 )
-TOKEN = "MTE1ODQ0NTE0MTA2NjAwMjQzMg.GWi5rh.Nc2aEOCLMriJ9NvipI8-Ir7c_qp_wBGQIh1d1M"
+TOKEN = "SECRET TOKEN HERE"
 
 # Define intents
 intents = discord.Intents.default()
