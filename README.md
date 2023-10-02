@@ -22,9 +22,3 @@
 <a href="https://github.com/rohan472000/rohan472000/graphs/contributors">
   <img src="https://contrib.rocks/image?repo=rohan472000/rohan472000" />
 </a>
-
-## Subscribe for Notifications
-
-To receive notifications of the latest memes, add your email below:
-
-Email: [your_email@example.com](mailto:your_email@example.com)
