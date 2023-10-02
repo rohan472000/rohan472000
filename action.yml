@@ -1,0 +1,33 @@
+name: action plugin
+
+on:
+  push:
+    branches:
+      - main
+  schedule:
+    - cron: '* * * * *'  
+
+jobs:
+  fetch-memes:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v2
+        
+      - name: Set up Python
+        uses: actions/setup-python@v2
+        with:
+          python-version: '3.9'
+          
+      - name: Install requests library
+        run: pip install requests
+        
+      - name: Fetch a random meme
+        run: python joke.py
+        
+      - name: Commit and push changes
+        uses: stefanzweifel/git-auto-commit-action@v4
+        with:
+          commit_message: 'Add a new meme to README.md'
+          branch: ${{ github.ref }}
+          commit_options: '--no-verify'
