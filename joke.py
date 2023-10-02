@@ -1,7 +1,9 @@
-import requests
+import json
 import logging
 import re
-import json
+from typing import Optional
+
+import requests
 
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
@@ -16,7 +18,8 @@ IMAGE_EXTENSIONS_PATTERN = re.compile(r'\.(jpg|jpeg|png)$', re.IGNORECASE)
 logging.basicConfig(level=logging.INFO)
 
 
-def fetch_random_url(api_url, user_agent):
+def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
+    """Get URL of a random meme from Reddit API."""
     try:
         response = requests.get(api_url, headers={'User-agent': user_agent})
         response.raise_for_status()
@@ -31,7 +34,8 @@ def fetch_random_url(api_url, user_agent):
         return None
 
 
-def update_readme_with_url(markdown):
+def update_readme_with_url(markdown: str) -> bool:
+    """Update README with new URL, returning whether successful."""
     try:
         with open(README_FILE, 'r') as file:
             contents = file.readlines()
@@ -43,11 +47,14 @@ def update_readme_with_url(markdown):
 
         with open(README_FILE, 'w') as file:
             file.writelines(contents)
+        return True
     except (IOError, FileNotFoundError) as e:
         logging.error(f"An error occurred: {e}")
+        return False
 
 
-def main():
+def main() -> None:
+    """Update README with a new meme."""
     meme_url = fetch_random_url(REDDIT_API_URL, USER_AGENT)
     if meme_url and IMAGE_EXTENSIONS_PATTERN.search(meme_url):
         markdown = f"![Funny Meme]({meme_url}?width=100&height=100)"
