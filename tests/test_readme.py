@@ -1,4 +1,5 @@
 import unittest
+import re
 
 
 class TestReadme(unittest.TestCase):
@@ -28,11 +29,11 @@ class TestReadme(unittest.TestCase):
             msg="README.md should contain 'Contributors 🌟' section"
         )
 
-        # Check for the image link
-        self.assertIn(
-            '![Funny Meme](https://i.redd.it/81o7512qukrb1.jpg?width=100&height=100)',  # noqa: E501
-            readme_contents,
-            msg="README.md should contain the image link"
+        # Check for the presence of an image syntax with dynamic URL
+        image_syntax_pattern = r'\!\[Funny Meme\]\(https://i\.redd\.it/[a-zA-Z0-9]+\.(jpg|jpeg|png)\?width=100&height=100\)'  # noqa: E501
+        self.assertTrue(
+            re.search(image_syntax_pattern, readme_contents),
+            msg="README.md should contain the image syntax with dynamic URL"
         )
 
         # Check for the warning about meme volatility
