@@ -1,22 +1,24 @@
-#Discord Bot Invitation Link: https://discord.com/api/oauth2/authorize?client_id=1158445141066002432&permissions=274877942784&scope=bot
+# Discord Bot Invitation Link: https://discord.com/api/oauth2/authorize?client_id
+# =1158445141066002432&permissions=274877942784&scope=bot
 
 import discord
 from discord.ext import commands
 import requests
 import logging
-import re
 import json
 import os
 
  
-
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
 USER_AGENT = (
     "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
     "(KHTML, like Gecko) Chrome/111.0.0.0 Safari/537.36"
 )
+
+
 TOKEN = os.environ.get("DISCORD")
+
 
 # Define intents
 intents = discord.Intents.default()
@@ -25,9 +27,11 @@ intents.presences = False
 intents.message_content = True
 bot = commands.Bot(command_prefix="!", intents=intents)
 
+
 @bot.event
 async def on_ready():
     print(f'Logged in as {bot.user.name}')
+
 
 @bot.command()
 async def postmeme(ctx):
@@ -35,6 +39,7 @@ async def postmeme(ctx):
     meme_url = fetch_random_url(REDDIT_API_URL, USER_AGENT)
     if meme_url:
         await ctx.send(f"Here's a funny meme for you: {meme_url}")
+
 
 def fetch_random_url(api_url, user_agent):
     try:
@@ -49,5 +54,6 @@ def fetch_random_url(api_url, user_agent):
     ) as e:
         logging.error(f"An error occurred: {e}")
         return None
+
 
 bot.run(TOKEN)
