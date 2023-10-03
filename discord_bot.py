@@ -6,7 +6,7 @@ from discord.ext import commands
 import requests
 import logging
 import json
-import os 
+import os
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
 USER_AGENT = (
