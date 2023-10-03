@@ -7,6 +7,7 @@ import requests
 import logging
 import json
 import os
+from collections import deque
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
 USER_AGENT = (
@@ -24,6 +25,9 @@ intents.typing = False
 intents.presences = False
 intents.message_content = True
 bot = commands.Bot(command_prefix="!", intents=intents)
+
+
+sent_memes = deque(maxlen=10)
 
 
 @bot.event
