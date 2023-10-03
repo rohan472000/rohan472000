@@ -1,5 +1,5 @@
-# Discord Bot Invitation Link: https://discord.com/api/oauth2/authorize?client_id
-# =1158445141066002432&permissions=274877942784&scope=bot
+# Discord Bot Invitation Link: https://discord.com/api/oauth2/authorize?c
+# lient_id=1158445141066002432&permissions=274877942784&scope=bot
 
 import discord
 from discord.ext import commands
@@ -7,7 +7,6 @@ import requests
 import logging
 import json
 import os
-
  
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
