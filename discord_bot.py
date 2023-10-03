@@ -37,10 +37,14 @@ async def on_ready():
 
 @bot.command()
 async def postmeme(ctx):
-    # print("postmeme command invoked")  # debugging
     meme_url = fetch_random_url(REDDIT_API_URL, USER_AGENT)
+
     if meme_url:
-        await ctx.send(f"Here's a funny meme for you: {meme_url}")
+        if meme_url not in sent_memes:
+            sent_memes.append(meme_url)
+            await ctx.send(f"Here's a funny meme for you: {meme_url}")
+        else:
+            await ctx.send("I've already sent this meme recently!")
 
 
 def fetch_random_url(api_url, user_agent):
