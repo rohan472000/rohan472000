@@ -1,0 +1,27 @@
+name: Add Meme on PR
+
+on:
+  pull_request:
+    types: [opened, synchronize]
+
+jobs:
+  add-meme:
+    runs-on: ubuntu-latest
+    steps:
+    - name: Checkout code
+      uses: actions/checkout@v2
+
+    - name: Setup Python
+      uses: actions/setup-python@v2
+      with:
+        python-version: '3.9'
+    
+    - name: Install dependencies
+      run: |
+        pip install -r requirements.txt
+
+    - name: Run Meme Action
+      run: python joke.py
+      env:
+        GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        PR_URL: ${{ github.event.pull_request.comments_url }}
