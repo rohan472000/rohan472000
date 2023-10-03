@@ -6,6 +6,9 @@ import requests
 import logging
 import re
 import json
+import os
+
+ 
 
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
@@ -13,7 +16,7 @@ USER_AGENT = (
     "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
     "(KHTML, like Gecko) Chrome/111.0.0.0 Safari/537.36"
 )
-TOKEN = "SECRET TOKEN HERE"
+TOKEN = os.environ.get("DISCORD")
 
 # Define intents
 intents = discord.Intents.default()
