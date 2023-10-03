@@ -17,7 +17,7 @@ USER_AGENT = (
 
 
 TOKEN = os.environ.get("DISCORD")
-
+print("token initials are : ", TOKEN[1:3])
 
 # Define intents
 intents = discord.Intents.default()
