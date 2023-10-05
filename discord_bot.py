@@ -17,7 +17,7 @@ USER_AGENT = (
 
 
 #TOKEN = os.environ.get("DISCORD")
-TOKEN = ${{ secrets.DISCORD }}
+TOKEN = '${{ secrets.DISCORD }}'
 print("token initials are : ", TOKEN)
 
 # Define intents
