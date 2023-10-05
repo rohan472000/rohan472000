@@ -6,7 +6,7 @@ from discord.ext import commands
 import requests
 import logging
 import json
-import os
+# import os
 from collections import deque
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
@@ -16,8 +16,10 @@ USER_AGENT = (
 )
 
 
-TOKEN = os.environ.get("DISCORD")
-print("token initials are : ", TOKEN[1:3])
+# TOKEN = os.environ.get("DISCORD")
+# TOKEN =  os.getenv("DISCORD")
+TOKEN = '${{ secrets.DISCORD }}'
+# print("token initials are : ", TOKEN)
 
 # Define intents
 intents = discord.Intents.default()
