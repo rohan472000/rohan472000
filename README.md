@@ -2,6 +2,7 @@
 <img height="500" id="joke" src="https://i.redd.it/w7pz6uyay8sb1.jpg" title="u/depressedsinnerxiii" width="500"/>
 
 
+
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
 **------------------------------------------------------------------------------------------------------------------------------------------------**
 
