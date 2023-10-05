@@ -26,6 +26,9 @@ jobs:
       - name: Fetch a random meme
         run: python joke.py
         
+      - name: Fetch a random meme
+        run: python discord_bot.py  
+        
       - name: Commit and push changes
         uses: stefanzweifel/git-auto-commit-action@v4
         with:
