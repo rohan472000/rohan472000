@@ -1,7 +1,7 @@
 import unittest
 from unittest.mock import patch
 import requests
-from joke import fetch_random_url
+from joke import fetch_random_meme
 
 
 class TestJokeFunctions(unittest.TestCase):
@@ -22,11 +22,11 @@ class TestJokeFunctions(unittest.TestCase):
         }
         mock_get.return_value.json.return_value = [mock_response]
 
-        meme_url = fetch_random_url(
+        meme = fetch_random_meme(
             "https://www.reddit.com/r/memes/random.json?limit=1",
             "Test User Agent")
 
-        self.assertEqual(meme_url, "https://example.com/meme.jpg")
+        self.assertEqual(meme.get("url"), "https://example.com/meme.jpg")
 
     @patch('joke.requests.get')
     def test_fetch_random_url_failure(self, mock_get):
@@ -34,6 +34,6 @@ class TestJokeFunctions(unittest.TestCase):
         mock_get.side_effect = requests.exceptions.RequestException(
             "Request failed"
         )
-        meme_url = fetch_random_url("https://www.reddit.com/r/memes/random.json?limit=1", "Test User Agent")  # noqa: E501
+        meme = fetch_random_meme("https://www.reddit.com/r/memes/random.json?limit=1", "Test User Agent")  # noqa: E501
 
-        self.assertIsNone(meme_url)
+        self.assertIsNone(meme)
