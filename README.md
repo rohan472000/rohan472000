@@ -1,4 +1,3 @@
-
 <img height="500" id="joke" src="https://i.redd.it/w7pz6uyay8sb1.jpg" title="u/depressedsinnerxiii" width="500"/>
 
 
