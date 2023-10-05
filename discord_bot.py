@@ -17,7 +17,7 @@ USER_AGENT = (
 
 
 #TOKEN = os.environ.get("DISCORD")
-TOKEN =  os.getenv("DISCORD")
+#TOKEN =  os.getenv("DISCORD")
 #TOKEN = '${{ secrets.DISCORD }}'
 print("token initials are : ", TOKEN)
 
