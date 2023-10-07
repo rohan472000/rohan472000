@@ -1,4 +1,3 @@
-
 ![Funny Meme](https://i.redd.it/333r8bl9wpsb1.jpg?width=100&height=100)
 
 * Meme Author: [DestructorNZ](https://www.reddit.com/user/DestructorNZ/)
