@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/jsrkt3s2azsb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/9nze3gqqh1tb1.png?width=100&height=100)
 
-* Meme Author: [XenoSynthesis](https://www.reddit.com/user/XenoSynthesis/)
+* Meme Author: [Hi-piee](https://www.reddit.com/user/Hi-piee/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
