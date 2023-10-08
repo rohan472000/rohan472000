@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/1o89xcq8gysb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/0amftdi7qvsb1.jpg?width=100&height=100)
 
-* Meme Author: [Bugtotes](https://www.reddit.com/user/Bugtotes/)
+* Meme Author: [Orion_RL](https://www.reddit.com/user/Orion_RL/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
