@@ -18,15 +18,13 @@ IMAGE_EXTENSIONS_PATTERN = re.compile(r"\.(jpg|jpeg|png)$", re.IGNORECASE)
 logging.basicConfig(level=logging.INFO)
 
 
-def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
-    """Get URL of a random meme from Reddit API."""
+def fetch_random_meme(api_url: str, user_agent: str) -> Optional[dict]:
+    """Get data of a random meme from Reddit API."""
     try:
-        result={"url":"","author":""}
         response = requests.get(api_url, headers={"User-agent": user_agent})
         response.raise_for_status()
-        result["url"]=(response.json()[0]["data"]["children"][0]["data"]["url"])
-        result["author"]=(response.json()[0]["data"]["children"][0]["data"]["author"])
-        return result
+        data = response.json()[0]["data"]["children"][0]["data"]
+        return {"url": data["url"], "author": data["author"]}
     except (
         requests.exceptions.RequestException,
         json.JSONDecodeError,
@@ -37,25 +35,18 @@ def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
         return None
 
 
-def update_readme_with_url(markdown: dict) -> bool:
-    """Update README with new URL, returning whether successful."""
+def update_readme_with_meme(markdown: dict) -> bool:
+    """Update README with new meme data, returning whether successful."""
     try:
         with open(README_FILE, "r") as file:
-            url_link = file.readlines()
+            readme_contents = file.read()
 
-        for i, line in enumerate(url_link):
-            if "![Funny Meme]" in line:
-                url_link[i] = markdown["url"] + "\n"
-                break
-        
-        for i, line in enumerate(url_link):
-            if "Meme Author" in line:
-                url_link[i] = markdown["author"] + "\n"
-                break
-            
+        updated_contents = readme_contents.replace(
+            "![Funny Meme]", markdown["url"]
+        ).replace("Meme Author", markdown["author"])
 
         with open(README_FILE, "w") as file:
-            file.writelines(url_link)
+            file.write(updated_contents)
         return True
     except (IOError, FileNotFoundError) as e:
         logging.error(f"An error occurred: {e}")
@@ -64,16 +55,15 @@ def update_readme_with_url(markdown: dict) -> bool:
 
 def main() -> None:
     """Update README with a new meme."""
-    meme = fetch_random_url(REDDIT_API_URL, USER_AGENT)
-    meme_url=meme["url"]
-    meme_author=meme["author"]
-    if meme_url and IMAGE_EXTENSIONS_PATTERN.search(meme_url):
-        markdown={"url":"","author":""}
-
-        markdown["url"] = f"![Funny Meme]({meme_url}?width=100&height=100)"
-        markdown["author"]=f"* Meme Author: [{meme_author}](https://www.reddit.com/user/{meme_author}/)"
-        update_readme_with_url(markdown)
+    meme_data = fetch_random_meme(REDDIT_API_URL, USER_AGENT)
+    if meme_data and IMAGE_EXTENSIONS_PATTERN.search(meme_data["url"]):
+        markdown = {
+            "url": f"![Funny Meme]({meme_data['url']}?width=100&height=100)",
+            "author": f"* Meme Author: [{meme_data['author']}](https://www.reddit.com/user/{meme_data['author']}/)",
+        }
+        update_readme_with_meme(markdown)
 
 
 if __name__ == "__main__":
     main()
+    
