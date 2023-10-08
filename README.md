@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/rfh2pskxszsb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/va8hb17q01tb1.jpg?width=100&height=100)
 
-* Meme Author: [AdministrativeRoom33](https://www.reddit.com/user/AdministrativeRoom33/)
+* Meme Author: [thejuicemaker54](https://www.reddit.com/user/thejuicemaker54/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
