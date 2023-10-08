@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/1474bt5qyqsb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/y8o35isdqusb1.jpg?width=100&height=100)
 
-* Meme Author: [mahumd90](https://www.reddit.com/user/mahumd90/)
+* Meme Author: [GeologianKyle](https://www.reddit.com/user/GeologianKyle/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
