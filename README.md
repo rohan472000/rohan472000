@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/l6ei8v7yvwsb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/t9xuuqz77ysb1.jpg?width=100&height=100)
 
-* Meme Author: [SuperDementio](https://www.reddit.com/user/SuperDementio/)
+* Meme Author: [bitterlyRejoin226](https://www.reddit.com/user/bitterlyRejoin226/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
