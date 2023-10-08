@@ -1,4 +1,6 @@
 
+![Funny Meme](https://i.redd.it/tda72rm8mvsb1.jpg?width=100&height=100)
+
 * Meme Author: [Lord_Detleff1](https://www.reddit.com/user/Lord_Detleff1/)
 
 
