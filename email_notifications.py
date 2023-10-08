@@ -2,12 +2,14 @@
 import smtplib
 from email.mime.text import MIMEText
 from email.mime.multipart import MIMEMultipart
+from decouple import config
+
+sender_email = config("sender_email")
+sender_password = config("sender_password")
 
 # Email configuration
 smtp_server = "smtp.gmail.com"
 smtp_port = 587
-sender_email = "jokeg76@gmail.com"
-sender_password = "xatnon-bivwAk-0megge"
 
 def send_email_notification(subject, message, recipient_email):
     try:
