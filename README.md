@@ -1,6 +1,8 @@
 
 ![Funny Meme](https://i.redd.it/wrmyhr387psb1.jpg?width=100&height=100)
 
+* Meme Author: [Lord_Detleff1](https://www.reddit.com/user/Lord_Detleff1/)
+
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
 **------------------------------------------------------------------------------------------------------------------------------------------------**
