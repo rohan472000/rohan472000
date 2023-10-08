@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/stfxwgete1tb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/qjq8si44bysb1.png?width=100&height=100)
 
-* Meme Author: [ReplacementFinal9517](https://www.reddit.com/user/ReplacementFinal9517/)
+* Meme Author: [LexLutfisk](https://www.reddit.com/user/LexLutfisk/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
