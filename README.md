@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/ls09vu8clusb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/77lri62961tb1.png?width=100&height=100)
 
-* Meme Author: [Fagorb](https://www.reddit.com/user/Fagorb/)
+* Meme Author: [katsboi](https://www.reddit.com/user/katsboi/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
