@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/70bzpizcjwsb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/f2w9jyttwzsb1.jpg?width=100&height=100)
 
-* Meme Author: [kujomarx](https://www.reddit.com/user/kujomarx/)
+* Meme Author: [StringsPluck](https://www.reddit.com/user/StringsPluck/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
