@@ -1,3 +1,49 @@
 /venv/
 /.idea/
-/.env
+/.env/
+# Python-specific
+__pycache__/
+*.pyc
+*.pyo
+*.pyd
+__pycache__/
+*.db
+*.sqlite3
+*.log
+
+# macOS
+.DS_Store
+
+# Windows
+Thumbs.db
+
+# Compiled files
+*.pyc
+*.pyo
+__pycache__/
+
+# Logs and databases
+*.log
+*.sqlite
+*.db
+
+# Virtual environment
+venv/
+.pycache/
+
+# IDE-specific
+.idea/
+.vscode/
+
+# Environment variables
+.env
+
+# Miscellaneous
+*.swp
+*.bak
+*.tmp
+*.tmp.*
+*.~*
+
+# Jupyter Notebook checkpoints
+.ipynb_checkpoints/
