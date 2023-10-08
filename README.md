@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/qhqw8l33b0tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/rremat4c80tb1.jpg?width=100&height=100)
 
-* Meme Author: [GoD_Reapurr](https://www.reddit.com/user/GoD_Reapurr/)
+* Meme Author: [-VioletJefferson-](https://www.reddit.com/user/-VioletJefferson-/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
