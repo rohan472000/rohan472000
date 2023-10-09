@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/9j0pqv1ya4tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/fkp8j6tdw3tb1.jpg?width=100&height=100)
 
-* Meme Author: [redditclm](https://www.reddit.com/user/redditclm/)
+* Meme Author: [No_Acanthisitta6963](https://www.reddit.com/user/No_Acanthisitta6963/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
