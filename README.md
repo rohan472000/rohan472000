@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/v1pb90xh13tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/9oq8u05331tb1.jpg?width=100&height=100)
 
-* Meme Author: [NerdFromColorado](https://www.reddit.com/user/NerdFromColorado/)
+* Meme Author: [Flaviphone](https://www.reddit.com/user/Flaviphone/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
