@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/jp96l6o7s1tb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/4yeed076lysb1.png?width=100&height=100)
 
-* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
+* Meme Author: [rober9999](https://www.reddit.com/user/rober9999/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
