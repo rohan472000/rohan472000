@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/ct8egwo2y2tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/55iew22ng3tb1.png?width=100&height=100)
 
-* Meme Author: [Ti-papi](https://www.reddit.com/user/Ti-papi/)
+* Meme Author: [dig__gib](https://www.reddit.com/user/dig__gib/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
