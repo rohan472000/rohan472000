@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/np4o7a8pt2tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/2ub0x0ljq3tb1.png?width=100&height=100)
 
-* Meme Author: [evahotie](https://www.reddit.com/user/evahotie/)
+* Meme Author: [discount_Demopan](https://www.reddit.com/user/discount_Demopan/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
