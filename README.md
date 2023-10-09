@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/aar251ltewsb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/nebhfjdv6wsb1.jpg?width=100&height=100)
 
-* Meme Author: [Malkovitch42](https://www.reddit.com/user/Malkovitch42/)
+* Meme Author: [BigSpongebobFanatic](https://www.reddit.com/user/BigSpongebobFanatic/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
