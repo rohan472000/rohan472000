@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/5tsmxhl9pwsb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/rj3mwdzvm1tb1.jpg?width=100&height=100)
 
-* Meme Author: [DuckWithADagger](https://www.reddit.com/user/DuckWithADagger/)
+* Meme Author: [invu_johan](https://www.reddit.com/user/invu_johan/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
