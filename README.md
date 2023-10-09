@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/53u44kh4nzsb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/p4vmhm7l63tb1.jpg?width=100&height=100)
 
-* Meme Author: [brontokoli](https://www.reddit.com/user/brontokoli/)
+* Meme Author: [Half_a_Be](https://www.reddit.com/user/Half_a_Be/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
