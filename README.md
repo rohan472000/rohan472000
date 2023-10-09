@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/lu30q07va1tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/26hkqx5fl1tb1.jpg?width=100&height=100)
 
-* Meme Author: [KAimar94](https://www.reddit.com/user/KAimar94/)
+* Meme Author: [TallDarkCancer1](https://www.reddit.com/user/TallDarkCancer1/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
