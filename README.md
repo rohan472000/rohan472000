@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/tae78akvb6tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/smpfwd3ghzsb1.jpg?width=100&height=100)
 
-* Meme Author: [so-unobvious](https://www.reddit.com/user/so-unobvious/)
+* Meme Author: [whatrhymeswith27](https://www.reddit.com/user/whatrhymeswith27/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
