@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/focvl1jc61tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/yjyxovxzh1tb1.jpg?width=100&height=100)
 
-* Meme Author: [Technically_a_kiwi](https://www.reddit.com/user/Technically_a_kiwi/)
+* Meme Author: [shamwowj](https://www.reddit.com/user/shamwowj/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
