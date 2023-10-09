@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/s2m86z0kl5tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/7ib8jrwnv4tb1.jpg?width=100&height=100)
 
-* Meme Author: [ElDrago512_](https://www.reddit.com/user/ElDrago512_/)
+* Meme Author: [luxusbuerg](https://www.reddit.com/user/luxusbuerg/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
