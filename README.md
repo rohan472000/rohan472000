@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/hya411svkatb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/lkhfnnn6h8tb1.png?width=100&height=100)
 
-* Meme Author: [gas_gemba](https://www.reddit.com/user/gas_gemba/)
+* Meme Author: [PlayGuye_aka_Evolt](https://www.reddit.com/user/PlayGuye_aka_Evolt/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
