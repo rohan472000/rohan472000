@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/ozqf9b772btb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/hl1dloh9g8tb1.jpg?width=100&height=100)
 
-* Meme Author: [Swalloich](https://www.reddit.com/user/Swalloich/)
+* Meme Author: [TwoWordsandNumbers](https://www.reddit.com/user/TwoWordsandNumbers/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
