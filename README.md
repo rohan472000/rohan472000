@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/ps0tmt324etb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/ayu8f701uftb1.png?width=100&height=100)
 
-* Meme Author: [RiZzbott](https://www.reddit.com/user/RiZzbott/)
+* Meme Author: [Ken_LuxuryYacht22](https://www.reddit.com/user/Ken_LuxuryYacht22/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
