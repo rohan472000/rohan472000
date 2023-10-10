@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/yhglo4eu0ctb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/kip9qhk36ctb1.jpg?width=100&height=100)
 
-* Meme Author: [EvaInTheUSA](https://www.reddit.com/user/EvaInTheUSA/)
+* Meme Author: [HeretoScale](https://www.reddit.com/user/HeretoScale/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
