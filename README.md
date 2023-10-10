@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/sx7xetwicctb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/2j1b6lgf9ftb1.jpg?width=100&height=100)
 
-* Meme Author: [Gorillaartist1995](https://www.reddit.com/user/Gorillaartist1995/)
+* Meme Author: [ThingsThatComeToMind](https://www.reddit.com/user/ThingsThatComeToMind/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
