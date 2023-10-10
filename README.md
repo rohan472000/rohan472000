@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/06cxg07f18tb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/3wct91adj7tb1.jpg?width=100&height=100)
 
-* Meme Author: [ChampionOfAzurewrath](https://www.reddit.com/user/ChampionOfAzurewrath/)
+* Meme Author: [t_dizZe](https://www.reddit.com/user/t_dizZe/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
