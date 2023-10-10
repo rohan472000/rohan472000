@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/4zc5p7eei5tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/4n46feo0a9tb1.png?width=100&height=100)
 
-* Meme Author: [lukaas69420](https://www.reddit.com/user/lukaas69420/)
+* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
