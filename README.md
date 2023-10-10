@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/lf902jugiftb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/it086yaa4gtb1.jpg?width=100&height=100)
 
-* Meme Author: [Yonimations](https://www.reddit.com/user/Yonimations/)
+* Meme Author: [SergejPS](https://www.reddit.com/user/SergejPS/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
