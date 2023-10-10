@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/koxoq5w3xctb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/f5fy1dxx7btb1.jpg?width=100&height=100)
 
-* Meme Author: [Melodic-Ad-9551](https://www.reddit.com/user/Melodic-Ad-9551/)
+* Meme Author: [SirRoderic](https://www.reddit.com/user/SirRoderic/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
