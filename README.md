@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/nx4i15lqh9tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/lfm5or2gubtb1.jpg?width=100&height=100)
 
-* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
+* Meme Author: [Pavarotti_Baby](https://www.reddit.com/user/Pavarotti_Baby/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
