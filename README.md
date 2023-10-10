@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/gzf1y1dcwctb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/2w344hyfs8tb1.jpg?width=100&height=100)
 
-* Meme Author: [I_Like_Toast_7](https://www.reddit.com/user/I_Like_Toast_7/)
+* Meme Author: [itamarc137](https://www.reddit.com/user/itamarc137/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
