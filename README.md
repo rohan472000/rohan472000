@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/19pdrei67btb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/z52y1l8iwbtb1.jpg?width=100&height=100)
 
-* Meme Author: [ibnugamingyt12](https://www.reddit.com/user/ibnugamingyt12/)
+* Meme Author: [Matches_Malone3](https://www.reddit.com/user/Matches_Malone3/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
