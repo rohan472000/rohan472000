@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/f5fy1dxx7btb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/cthnlgank9tb1.jpg?width=100&height=100)
 
-* Meme Author: [SirRoderic](https://www.reddit.com/user/SirRoderic/)
+* Meme Author: [Peetah_Shoe](https://www.reddit.com/user/Peetah_Shoe/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
