@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/2hi1fcw4b6tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/yhij2acokdtb1.jpg?width=100&height=100)
 
-* Meme Author: [Impossible-Reach-347](https://www.reddit.com/user/Impossible-Reach-347/)
+* Meme Author: [Embarrassed-Plum8936](https://www.reddit.com/user/Embarrassed-Plum8936/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
