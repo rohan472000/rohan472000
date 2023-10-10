@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/g36elhobqdtb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/hs3rfx2fh9tb1.jpg?width=100&height=100)
 
-* Meme Author: [Get-the-Vibe](https://www.reddit.com/user/Get-the-Vibe/)
+* Meme Author: [Dentategalbulus943](https://www.reddit.com/user/Dentategalbulus943/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
