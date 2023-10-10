@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/moole6jhd8tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/k8v1ufhrt4tb1.jpg?width=100&height=100)
 
-* Meme Author: [Efficient_Elk_7991](https://www.reddit.com/user/Efficient_Elk_7991/)
+* Meme Author: [Deathman35](https://www.reddit.com/user/Deathman35/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
