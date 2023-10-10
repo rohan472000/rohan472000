@@ -1,2 +1,4 @@
 requests
 discord
+pysimplegui
+pillow
