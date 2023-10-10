@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/yuuaicev9ftb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/qeyxad6zzatb1.jpg?width=100&height=100)
 
-* Meme Author: [TR_mahmutpek](https://www.reddit.com/user/TR_mahmutpek/)
+* Meme Author: [rose-coconut](https://www.reddit.com/user/rose-coconut/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
