@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/ok3k5g7umdtb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/3evm5p73wdtb1.jpg?width=100&height=100)
 
-* Meme Author: [Overdecide](https://www.reddit.com/user/Overdecide/)
+* Meme Author: [burgernoisenow](https://www.reddit.com/user/burgernoisenow/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
