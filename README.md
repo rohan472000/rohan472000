@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/hgtgwmwpzctb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/sx7xetwicctb1.jpg?width=100&height=100)
 
-* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
+* Meme Author: [Gorillaartist1995](https://www.reddit.com/user/Gorillaartist1995/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
