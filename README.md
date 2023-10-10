@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/kip9qhk36ctb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/u7m11x6217tb1.png?width=100&height=100)
 
-* Meme Author: [HeretoScale](https://www.reddit.com/user/HeretoScale/)
+* Meme Author: [writeitredd](https://www.reddit.com/user/writeitredd/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
