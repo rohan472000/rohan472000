@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/f8eod5ay78tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/wrcqoam8dbtb1.png?width=100&height=100)
 
-* Meme Author: [Ok_Refrigerator9802](https://www.reddit.com/user/Ok_Refrigerator9802/)
+* Meme Author: [yobab77](https://www.reddit.com/user/yobab77/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
