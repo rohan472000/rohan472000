@@ -26,12 +26,12 @@ jobs:
       - name: Fetch a random meme
         run: python joke.py
         
-      - name: Run discord bot
-        env:
-          DISCORD: ${{ secrets.DISCORD }}
-        run: |
-          python discord_bot.py
-          echo "discord bot .py ran"
+      # - name: Run discord bot
+      #   env:
+      #     DISCORD: ${{ secrets.DISCORD }}
+      #   run: |
+      #     python discord_bot.py
+      #     echo "discord bot .py ran"
       
       - name: Commit and push changes
         uses: stefanzweifel/git-auto-commit-action@v4
