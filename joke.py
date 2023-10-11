@@ -21,11 +21,11 @@ logging.basicConfig(level=logging.INFO)
 def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
     """Get URL of a random meme from Reddit API."""
     try:
-        result={"url":"","author":""}
+        result = {"url": "", "author": ""}
         response = requests.get(api_url, headers={"User-agent": user_agent})
         response.raise_for_status()
-        result["url"]=(response.json()[0]["data"]["children"][0]["data"]["url"])
-        result["author"]=(response.json()[0]["data"]["children"][0]["data"]["author"])
+        result["url"] = response.json()[0]["data"]["children"][0]["data"]["url"]
+        result["author"] = response.json()[0]["data"]["children"][0]["data"]["author"]
         return result
     except (
         requests.exceptions.RequestException,
@@ -47,12 +47,11 @@ def update_readme_with_url(markdown: dict) -> bool:
             if "![Funny Meme]" in line:
                 url_link[i] = markdown["url"] + "\n"
                 break
-        
+
         for i, line in enumerate(url_link):
             if "Meme Author" in line:
                 url_link[i] = markdown["author"] + "\n"
                 break
-            
 
         with open(README_FILE, "w") as file:
             file.writelines(url_link)
@@ -65,13 +64,15 @@ def update_readme_with_url(markdown: dict) -> bool:
 def main() -> None:
     """Update README with a new meme."""
     meme = fetch_random_url(REDDIT_API_URL, USER_AGENT)
-    meme_url=meme["url"]
-    meme_author=meme["author"]
+    meme_url = meme["url"]
+    meme_author = meme["author"]
     if meme_url and IMAGE_EXTENSIONS_PATTERN.search(meme_url):
-        markdown={"url":"","author":""}
+        markdown = {"url": "", "author": ""}
 
         markdown["url"] = f"![Funny Meme]({meme_url}?width=100&height=100)"
-        markdown["author"]=f"* Meme Author: [{meme_author}](https://www.reddit.com/user/{meme_author}/)"
+        markdown[
+            "author"
+        ] = f"* Meme Author: [{meme_author}](https://www.reddit.com/user/{meme_author}/)"
         update_readme_with_url(markdown)
 
 
