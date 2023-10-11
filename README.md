@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/glv8yoe8r9tb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/mp3rlw1ehitb1.jpg?width=100&height=100)
 
-* Meme Author: [Mattau93](https://www.reddit.com/user/Mattau93/)
+* Meme Author: [RainNightFlower](https://www.reddit.com/user/RainNightFlower/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
