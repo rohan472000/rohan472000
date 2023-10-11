@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/414tln20detb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/gpin2pnd5ktb1.png?width=100&height=100)
 
-* Meme Author: [No-Appearance-2015](https://www.reddit.com/user/No-Appearance-2015/)
+* Meme Author: [mazdamv1905](https://www.reddit.com/user/mazdamv1905/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
