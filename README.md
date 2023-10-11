@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/o0c5alcw76tb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/1tzdaq4m0itb1.jpg?width=100&height=100)
 
-* Meme Author: [wcslater](https://www.reddit.com/user/wcslater/)
+* Meme Author: [OrangedJuice1989](https://www.reddit.com/user/OrangedJuice1989/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
