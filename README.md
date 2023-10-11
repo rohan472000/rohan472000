@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/m76ffvbheetb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/ji9hoa1l9gtb1.jpg?width=100&height=100)
 
-* Meme Author: [reikipackaging](https://www.reddit.com/user/reikipackaging/)
+* Meme Author: [LoveThieves](https://www.reddit.com/user/LoveThieves/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
