@@ -22,7 +22,8 @@ class TestJokeFunctions(unittest.TestCase):
     @patch("joke.requests.get")
     def test_fetch_random_url_failure(self, mock_get):
         # Mock a request exception
-        mock_get.side_effect = requests.exceptions.RequestException("Request failed")
+        mock_get.side_effect = requests.exceptions.RequestException(
+            "Request failed")
         meme_url = fetch_random_url(
             "https://www.reddit.com/r/memes/random.json?limit=1", "Test User Agent"
         )  # noqa: E501

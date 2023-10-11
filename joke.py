@@ -16,6 +16,7 @@ IMAGE_EXTENSIONS_PATTERN = re.compile(r"\.(jpg|jpeg|png)$", re.IGNORECASE)
 # Configure logging
 logging.basicConfig(level=logging.INFO)
 
+
 def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
     """Get URL of a random meme from Reddit API."""
     try:
@@ -23,7 +24,8 @@ def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
         response = requests.get(api_url, headers={"User-agent": user_agent})
         response.raise_for_status()
         result["url"] = response.json()[0]["data"]["children"][0]["data"]["url"]
-        result["author"] = response.json()[0]["data"]["children"][0]["data"]["author"]
+        result["author"] = response.json(
+        )[0]["data"]["children"][0]["data"]["author"]
         return result
     except (
         requests.exceptions.RequestException,
@@ -33,6 +35,7 @@ def fetch_random_url(api_url: str, user_agent: str) -> Optional[str]:
     ) as e:
         logging.error(f"An error occurred: {e}")
         return None
+
 
 def update_readme_with_url(markdown: dict) -> bool:
     """Update README with new URL, returning whether successful."""
@@ -57,6 +60,7 @@ def update_readme_with_url(markdown: dict) -> bool:
         logging.error(f"An error occurred: {e}")
         return False
 
+
 def main() -> None:
     """Update README with a new meme."""
     meme = fetch_random_url(REDDIT_API_URL, USER_AGENT)
@@ -70,6 +74,7 @@ def main() -> None:
             f"* Meme Author: [{meme_author}](https://www.reddit.com/user/{meme_author}/)"
         )
         update_readme_with_url(markdown)
+
 
 if __name__ == "__main":
     main()
