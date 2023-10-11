@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/ais5tuzu3ktb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/414tln20detb1.jpg?width=100&height=100)
 
-* Meme Author: [rice-lord432](https://www.reddit.com/user/rice-lord432/)
+* Meme Author: [No-Appearance-2015](https://www.reddit.com/user/No-Appearance-2015/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
