@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/y6lq5kx1iitb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/vlgktarsmgtb1.jpg?width=100&height=100)
 
-* Meme Author: [CucmberPotato](https://www.reddit.com/user/CucmberPotato/)
+* Meme Author: [BLUE_GTA3](https://www.reddit.com/user/BLUE_GTA3/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
