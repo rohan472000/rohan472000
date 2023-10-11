@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/35unl3i37htb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/o0c5alcw76tb1.jpg?width=100&height=100)
 
-* Meme Author: [That_Secretary_5423](https://www.reddit.com/user/That_Secretary_5423/)
+* Meme Author: [wcslater](https://www.reddit.com/user/wcslater/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
