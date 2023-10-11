@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/x3163uw2kftb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/1evof4wxajtb1.jpg?width=100&height=100)
 
-* Meme Author: [Koleksiyoncu_999999](https://www.reddit.com/user/Koleksiyoncu_999999/)
+* Meme Author: [NoLifeNoSuffering](https://www.reddit.com/user/NoLifeNoSuffering/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
