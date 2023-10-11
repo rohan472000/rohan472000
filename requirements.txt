@@ -1,9 +1,9 @@
 aiohttp
 aiosignal
-async
+async-timeout
 attrs
 certifi
-charset
+charset-normalizer
 discord
 discord.py
 frozenlist
