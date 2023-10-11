@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/yep1z75sabtb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/rpql9nqjxatb1.jpg?width=100&height=100)
 
-* Meme Author: [8Bit_Innovations](https://www.reddit.com/user/8Bit_Innovations/)
+* Meme Author: [Supersaiajinblue](https://www.reddit.com/user/Supersaiajinblue/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
