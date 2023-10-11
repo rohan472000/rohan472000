@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/xvw83621rgtb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/sbu8ijla1ktb1.jpg?width=100&height=100)
 
-* Meme Author: [tyga__](https://www.reddit.com/user/tyga__/)
+* Meme Author: [XI-RE](https://www.reddit.com/user/XI-RE/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
