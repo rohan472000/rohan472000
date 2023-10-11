@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/7070wlzlvitb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/ql9p08vooitb1.jpg?width=100&height=100)
 
-* Meme Author: [TheManOfDoom_23](https://www.reddit.com/user/TheManOfDoom_23/)
+* Meme Author: [Dracnoss](https://www.reddit.com/user/Dracnoss/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
