@@ -1,7 +1,7 @@
 
-![Funny Meme](https://i.redd.it/d0dpsn5kmatb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/wrdxux10bhtb1.jpg?width=100&height=100)
 
-* Meme Author: [PimentoSandwich](https://www.reddit.com/user/PimentoSandwich/)
+* Meme Author: [BlueThunder2004](https://www.reddit.com/user/BlueThunder2004/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
