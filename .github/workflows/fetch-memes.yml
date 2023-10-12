@@ -20,8 +20,8 @@ jobs:
         with:
           python-version: '3.9'
       
-      - name: Update pip
-        run: pip install --upgrade pip
+      # - name: Update pip
+      #  run: pip install --upgrade pip
           
       - name: Install requests library
         run: pip install -r requirements.txt 
