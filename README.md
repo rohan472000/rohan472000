@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1l6nidio44ub1.jpg?width=100&height=100)
-* Meme Author: [yaktoma2007](https://www.reddit.com/user/yaktoma2007/)
+![Funny Meme](https://i.redd.it/d1amoh1z80ub1.jpg?width=100&height=100)
+* Meme Author: [guiltilyStraddle36](https://www.reddit.com/user/guiltilyStraddle36/)
 
 
 
