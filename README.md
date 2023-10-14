@@ -1,7 +1,5 @@
 ![Funny Meme](https://i.redd.it/jjhv2b2w62ub1.jpg?width=100&height=100)
-* Meme Author: [BeethovenLydianStar](https://www.reddit.com/user/BeethovenLydianStar/)
-* Meme Author: [butdoyoublazebro](https://www.reddit.com/user/butdoyoublazebro/)
-* Meme Author: [plushpaper](https://www.reddit.com/user/plushpaper/)
+
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
