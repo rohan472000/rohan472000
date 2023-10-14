@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/avkhfduxw1ub1.jpg?width=100&height=100)
-* Meme Author: [28DaysOfMemes](https://www.reddit.com/user/28DaysOfMemes/)
+![Funny Meme](https://i.redd.it/j6rvfuqnh4ub1.jpg?width=100&height=100)
+* Meme Author: [Running_Mustard](https://www.reddit.com/user/Running_Mustard/)
 
 
 
