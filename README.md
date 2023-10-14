@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s4sfum6am6ub1.jpg?width=100&height=100)
-* Meme Author: [Holofan4life](https://www.reddit.com/user/Holofan4life/)
+![Funny Meme](https://i.redd.it/3eilyyc7c3ub1.jpg?width=100&height=100)
+* Meme Author: [Gaitingdoochain](https://www.reddit.com/user/Gaitingdoochain/)
 
 
 
