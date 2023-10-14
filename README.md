@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jt5xspsl67ub1.jpg?width=100&height=100)
-* Meme Author: [windowjesus](https://www.reddit.com/user/windowjesus/)
+![Funny Meme](https://i.redd.it/aoo5vdy068ub1.jpg?width=100&height=100)
+* Meme Author: [Turkish_Guy2023](https://www.reddit.com/user/Turkish_Guy2023/)
 
 
 
