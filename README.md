@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b1akwhlhn2ub1.jpg?width=100&height=100)
-* Meme Author: [wimpykidfan37](https://www.reddit.com/user/wimpykidfan37/)
+![Funny Meme](https://i.redd.it/5sfbws1os7ub1.jpg?width=100&height=100)
+* Meme Author: [MonkeyDiRafi](https://www.reddit.com/user/MonkeyDiRafi/)
 
 
 
