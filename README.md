@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3eilyyc7c3ub1.jpg?width=100&height=100)
-* Meme Author: [Gaitingdoochain](https://www.reddit.com/user/Gaitingdoochain/)
+![Funny Meme](https://i.redd.it/qti47bd3m6ub1.jpg?width=100&height=100)
+* Meme Author: [Kal-EL007](https://www.reddit.com/user/Kal-EL007/)
 
 
 
