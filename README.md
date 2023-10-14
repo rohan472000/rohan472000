@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3eilyyc7c3ub1.jpg?width=100&height=100)
-* Meme Author: [Gaitingdoochain](https://www.reddit.com/user/Gaitingdoochain/)
+![Funny Meme](https://i.redd.it/p9p0mscj22ub1.jpg?width=100&height=100)
+* Meme Author: [GRS_Archon](https://www.reddit.com/user/GRS_Archon/)
 
 
 
