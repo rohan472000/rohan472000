@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/isgmy0w781ub1.png?width=100&height=100)
-* Meme Author: [StcStasi](https://www.reddit.com/user/StcStasi/)
+![Funny Meme](https://i.redd.it/sn9i6kgmk6ub1.jpg?width=100&height=100)
+* Meme Author: [NitrogenTurtle](https://www.reddit.com/user/NitrogenTurtle/)
 
 
 
