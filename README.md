@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/82kqyc.jpg?width=100&height=100)
-* Meme Author: [KWtones](https://www.reddit.com/user/KWtones/)
+![Funny Meme](https://i.redd.it/5kted69fo6ub1.jpg?width=100&height=100)
+* Meme Author: [Impossible-Reach-347](https://www.reddit.com/user/Impossible-Reach-347/)
 
 
 
