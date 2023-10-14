@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/jjhv2b2w62ub1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/v03uunwn91ub1.jpg?width=100&height=100)
+* Meme Author: [HappySkullsplitter](https://www.reddit.com/user/HappySkullsplitter/)
 
 
 
