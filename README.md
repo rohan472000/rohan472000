@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vdrgpbo646ub1.jpg?width=100&height=100)
-* Meme Author: [BigClitMcphee](https://www.reddit.com/user/BigClitMcphee/)
+![Funny Meme](https://i.imgflip.com/82kqyc.jpg?width=100&height=100)
+* Meme Author: [KWtones](https://www.reddit.com/user/KWtones/)
 
 
 
