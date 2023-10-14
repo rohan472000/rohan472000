@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/qzfbedgclztb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/qqtruu11s6ub1.jpg?width=100&height=100)
+* Meme Author: [plushpaper](https://www.reddit.com/user/plushpaper/)
 
 * Meme Author: [more_dead_orcs](https://www.reddit.com/user/more_dead_orcs/)
 
