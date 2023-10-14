@@ -1,4 +1,5 @@
-![Funny Meme](https://i.redd.it/kac1vmoigztb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/jjhv2b2w62ub1.jpg?width=100&height=100)
+* Meme Author: [BeethovenLydianStar](https://www.reddit.com/user/BeethovenLydianStar/)
 * Meme Author: [butdoyoublazebro](https://www.reddit.com/user/butdoyoublazebro/)
 * Meme Author: [plushpaper](https://www.reddit.com/user/plushpaper/)
 
