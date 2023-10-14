@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9b30p8v4c1ub1.jpg?width=100&height=100)
-* Meme Author: [Public_Philosopher_1](https://www.reddit.com/user/Public_Philosopher_1/)
+![Funny Meme](https://i.redd.it/jogxlvzte6ub1.jpg?width=100&height=100)
+* Meme Author: [EffectiveNerve1](https://www.reddit.com/user/EffectiveNerve1/)
 
 
 
