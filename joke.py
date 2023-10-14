@@ -42,6 +42,10 @@ def update_readme_with_meme(meme: dict) -> bool:
 
         for i, line in enumerate(contents):
             if "![Funny Meme]" in line:
+                # Remove the previous author line
+                if i + 1 < len(contents) and contents[i + 1].startswith("* Meme Author:"):
+                    del contents[i + 1]
+
                 meme_url = meme["url"]
                 meme_author = meme["author"]
                 markdown = f"![Funny Meme]({meme_url}?width=100&height=100)\n"
