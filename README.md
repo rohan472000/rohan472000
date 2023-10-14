@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aoo5vdy068ub1.jpg?width=100&height=100)
-* Meme Author: [Turkish_Guy2023](https://www.reddit.com/user/Turkish_Guy2023/)
+![Funny Meme](https://i.redd.it/7a3gtblhh7ub1.jpg?width=100&height=100)
+* Meme Author: [Saucy_Boy_21](https://www.reddit.com/user/Saucy_Boy_21/)
 
 
 
