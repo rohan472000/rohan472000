@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jcm0if9fkwtb1.jpg?width=100&height=100)
-* Meme Author: [otastco](https://www.reddit.com/user/otastco/)
+![Funny Meme](https://i.redd.it/8962xwz4w6ub1.jpg?width=100&height=100)
+* Meme Author: [hour_of_the_dog](https://www.reddit.com/user/hour_of_the_dog/)
 
 
 
