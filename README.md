@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p9p0mscj22ub1.jpg?width=100&height=100)
-* Meme Author: [GRS_Archon](https://www.reddit.com/user/GRS_Archon/)
+![Funny Meme](https://i.redd.it/o4tg2dnnn7ub1.jpg?width=100&height=100)
+* Meme Author: [Lalabeth93](https://www.reddit.com/user/Lalabeth93/)
 
 
 
