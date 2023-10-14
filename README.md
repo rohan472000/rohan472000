@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w2os9ftbm2ub1.png?width=100&height=100)
-* Meme Author: [Legomarioboy08](https://www.reddit.com/user/Legomarioboy08/)
+![Funny Meme](https://i.redd.it/3eilyyc7c3ub1.jpg?width=100&height=100)
+* Meme Author: [Gaitingdoochain](https://www.reddit.com/user/Gaitingdoochain/)
 
 
 
