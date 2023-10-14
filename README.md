@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ha58qlx537ub1.jpg?width=100&height=100)
-* Meme Author: [General-Resist-310](https://www.reddit.com/user/General-Resist-310/)
+![Funny Meme](https://i.redd.it/jt5xspsl67ub1.jpg?width=100&height=100)
+* Meme Author: [windowjesus](https://www.reddit.com/user/windowjesus/)
 
 
 
