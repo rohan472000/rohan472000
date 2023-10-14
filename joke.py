@@ -55,14 +55,26 @@ def update_readme_with_url(markdown: str) -> bool:
 
 def main() -> None:
     """Update README with a new meme."""
-    meme_url = fetch_random_url(REDDIT_API_URL, USER_AGENT)
-    meme_author = meme_url["author"]
+    # meme_url = fetch_random_url(REDDIT_API_URL, USER_AGENT)
+    # meme_author = meme_url["author"]
+    # if meme_url and IMAGE_EXTENSIONS_PATTERN.search(meme_url):
+    #     markdown = f"![Funny Meme]({meme_url}?width=100&height=100)"
+    #     markdown["author"] = (
+    #         f"* Meme Author: [{meme_author}](https://www.reddit.com/user/{meme_author}/)"
+    #     )
+    #     update_readme_with_url(markdown)
+    meme = fetch_random_url(REDDIT_API_URL, USER_AGENT)
+    meme_url = meme["url"]
+    meme_author = meme["author"]
     if meme_url and IMAGE_EXTENSIONS_PATTERN.search(meme_url):
-        markdown = f"![Funny Meme]({meme_url}?width=100&height=100)"
+        markdown = {"url": "", "author": ""}
+
+        markdown["url"] = f"![Funny Meme]({meme_url}?width=100&height=100)"
         markdown["author"] = (
             f"* Meme Author: [{meme_author}](https://www.reddit.com/user/{meme_author}/)"
         )
         update_readme_with_url(markdown)
+
 
 
 if __name__ == "__main__":
