@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qti47bd3m6ub1.jpg?width=100&height=100)
-* Meme Author: [Kal-EL007](https://www.reddit.com/user/Kal-EL007/)
+![Funny Meme](https://i.redd.it/vdrgpbo646ub1.jpg?width=100&height=100)
+* Meme Author: [BigClitMcphee](https://www.reddit.com/user/BigClitMcphee/)
 
 
 
