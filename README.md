@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wzj9ptrqo6ub1.png?width=100&height=100)
-* Meme Author: [Ulawae](https://www.reddit.com/user/Ulawae/)
+![Funny Meme](https://i.redd.it/c32k7aivx6ub1.jpg?width=100&height=100)
+* Meme Author: [cat_with_rat](https://www.reddit.com/user/cat_with_rat/)
 
 
 
