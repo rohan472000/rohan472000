@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y0huns7m99ub1.jpg?width=100&height=100)
-* Meme Author: [Gumba54_Akula](https://www.reddit.com/user/Gumba54_Akula/)
+![Funny Meme](https://i.redd.it/xfi3j86il5ub1.jpg?width=100&height=100)
+* Meme Author: [johnlen1n](https://www.reddit.com/user/johnlen1n/)
 
 
 
