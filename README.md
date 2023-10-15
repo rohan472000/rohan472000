@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4lb2dddjvcub1.jpg?width=100&height=100)
-* Meme Author: [Dynamo0602](https://www.reddit.com/user/Dynamo0602/)
+![Funny Meme](https://i.redd.it/vle2ldhby9ub1.jpg?width=100&height=100)
+* Meme Author: [PapaJaundice](https://www.reddit.com/user/PapaJaundice/)
 
 
 
