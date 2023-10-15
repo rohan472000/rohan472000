@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wxlxq9cc39ub1.jpg?width=100&height=100)
-* Meme Author: [Simple-Piglet-2664](https://www.reddit.com/user/Simple-Piglet-2664/)
+![Funny Meme](https://i.imgur.com/JceaRFV.png?width=100&height=100)
+* Meme Author: [CobaltAzurean](https://www.reddit.com/user/CobaltAzurean/)
 
 
 
