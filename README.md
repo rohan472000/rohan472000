@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/umzwh7b5j6ub1.png?width=100&height=100)
-* Meme Author: [Signal_Cranberry_479](https://www.reddit.com/user/Signal_Cranberry_479/)
+![Funny Meme](https://i.redd.it/zw7ymokfn6ub1.jpg?width=100&height=100)
+* Meme Author: [NISom_SOM](https://www.reddit.com/user/NISom_SOM/)
 
 
 
