@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/votdw85r25ub1.jpg?width=100&height=100)
-* Meme Author: [GoodGuy_Strelok](https://www.reddit.com/user/GoodGuy_Strelok/)
+![Funny Meme](https://i.redd.it/l7yqr7d2caub1.jpg?width=100&height=100)
+* Meme Author: [3_Sides_To_A_Story](https://www.reddit.com/user/3_Sides_To_A_Story/)
 
 
 
