@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c5v5ck78taub1.jpg?width=100&height=100)
-* Meme Author: [eliyabar101](https://www.reddit.com/user/eliyabar101/)
+![Funny Meme](https://i.redd.it/rx5wdyhix8ub1.png?width=100&height=100)
+* Meme Author: [ResidentCram](https://www.reddit.com/user/ResidentCram/)
 
 
 
