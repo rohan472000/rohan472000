@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gzoeubqip1ub1.jpg?width=100&height=100)
-* Meme Author: [sepehr_brk](https://www.reddit.com/user/sepehr_brk/)
+![Funny Meme](https://i.redd.it/brpn2ovmleub1.jpg?width=100&height=100)
+* Meme Author: [DeutscherNoob31](https://www.reddit.com/user/DeutscherNoob31/)
 
 
 
