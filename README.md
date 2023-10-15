@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ycsrjt6256ub1.jpg?width=100&height=100)
-* Meme Author: [ilovecheaptrick](https://www.reddit.com/user/ilovecheaptrick/)
+![Funny Meme](https://i.redd.it/qq4zjlbu95ub1.png?width=100&height=100)
+* Meme Author: [SecretSpectre4](https://www.reddit.com/user/SecretSpectre4/)
 
 
 
