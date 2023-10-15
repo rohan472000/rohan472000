@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fpyumq2wm8ub1.jpg?width=100&height=100)
-* Meme Author: [namedonelettere](https://www.reddit.com/user/namedonelettere/)
+![Funny Meme](https://i.redd.it/m3dshrfncaub1.png?width=100&height=100)
+* Meme Author: [Rajesh_dai007](https://www.reddit.com/user/Rajesh_dai007/)
 
 
 
