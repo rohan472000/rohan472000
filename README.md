@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/75wzz3sgbaub1.jpg?width=100&height=100)
-* Meme Author: [RaccoonRepublic](https://www.reddit.com/user/RaccoonRepublic/)
+![Funny Meme](https://i.redd.it/tp1lsbmxveub1.jpg?width=100&height=100)
+* Meme Author: [DeutscherNoob31](https://www.reddit.com/user/DeutscherNoob31/)
 
 
 
