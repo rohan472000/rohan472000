@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/skaamnkgndub1.jpg?width=100&height=100)
-* Meme Author: [ImaginationFunny2480](https://www.reddit.com/user/ImaginationFunny2480/)
+![Funny Meme](https://i.redd.it/r746sfph09ub1.jpg?width=100&height=100)
+* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
 
 
 
