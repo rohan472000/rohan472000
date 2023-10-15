@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m3dshrfncaub1.png?width=100&height=100)
-* Meme Author: [Rajesh_dai007](https://www.reddit.com/user/Rajesh_dai007/)
+![Funny Meme](https://i.redd.it/v74pq7ssf5ub1.jpg?width=100&height=100)
+* Meme Author: [AnkitNemivant](https://www.reddit.com/user/AnkitNemivant/)
 
 
 
