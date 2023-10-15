@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dyrrqsckn6ub1.png?width=100&height=100)
-* Meme Author: [Dramatic_Material_56](https://www.reddit.com/user/Dramatic_Material_56/)
+![Funny Meme](https://i.redd.it/e5nyh19m83ub1.jpg?width=100&height=100)
+* Meme Author: [lsqj](https://www.reddit.com/user/lsqj/)
 
 
 
