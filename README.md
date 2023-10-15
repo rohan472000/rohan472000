@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l7yqr7d2caub1.jpg?width=100&height=100)
-* Meme Author: [3_Sides_To_A_Story](https://www.reddit.com/user/3_Sides_To_A_Story/)
+![Funny Meme](https://i.redd.it/zdcnjvff55ub1.jpg?width=100&height=100)
+* Meme Author: [InsideCharity4824](https://www.reddit.com/user/InsideCharity4824/)
 
 
 
