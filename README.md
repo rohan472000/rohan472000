@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tp1lsbmxveub1.jpg?width=100&height=100)
-* Meme Author: [DeutscherNoob31](https://www.reddit.com/user/DeutscherNoob31/)
+![Funny Meme](https://i.redd.it/jx4mpoo079ub1.jpg?width=100&height=100)
+* Meme Author: [comicalben](https://www.reddit.com/user/comicalben/)
 
 
 
