@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i6cukjtau7ub1.png?width=100&height=100)
-* Meme Author: [MikeWazouskiee](https://www.reddit.com/user/MikeWazouskiee/)
+![Funny Meme](https://i.redd.it/umzwh7b5j6ub1.png?width=100&height=100)
+* Meme Author: [Signal_Cranberry_479](https://www.reddit.com/user/Signal_Cranberry_479/)
 
 
 
