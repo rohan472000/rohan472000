@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k0l78xn145ub1.jpg?width=100&height=100)
-* Meme Author: [Mysterious_Arm98](https://www.reddit.com/user/Mysterious_Arm98/)
+![Funny Meme](https://i.redd.it/hlptvd1l07ub1.jpg?width=100&height=100)
+* Meme Author: [Zealousideal-Tax-937](https://www.reddit.com/user/Zealousideal-Tax-937/)
 
 
 
