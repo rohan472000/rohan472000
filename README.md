@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uh7odxbvccub1.jpg?width=100&height=100)
-* Meme Author: [Oliwier255](https://www.reddit.com/user/Oliwier255/)
+![Funny Meme](https://i.redd.it/xbhftownz8ub1.jpg?width=100&height=100)
+* Meme Author: [88T3](https://www.reddit.com/user/88T3/)
 
 
 
