@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/me3cjos5e7ub1.png?width=100&height=100)
-* Meme Author: [PotenciaMachina](https://www.reddit.com/user/PotenciaMachina/)
+![Funny Meme](https://i.redd.it/vdrgpbo646ub1.jpg?width=100&height=100)
+* Meme Author: [BigClitMcphee](https://www.reddit.com/user/BigClitMcphee/)
 
 
 
