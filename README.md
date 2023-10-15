@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/88pjksnfafub1.jpg?width=100&height=100)
-* Meme Author: [5m5m](https://www.reddit.com/user/5m5m/)
+![Funny Meme](https://i.redd.it/5nmt99cmdfub1.png?width=100&height=100)
+* Meme Author: [Nabstablook123](https://www.reddit.com/user/Nabstablook123/)
 
 
 
