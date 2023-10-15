@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v74pq7ssf5ub1.jpg?width=100&height=100)
-* Meme Author: [AnkitNemivant](https://www.reddit.com/user/AnkitNemivant/)
+![Funny Meme](https://i.redd.it/97daz0uyy3ub1.jpg?width=100&height=100)
+* Meme Author: [Delusional_Sage](https://www.reddit.com/user/Delusional_Sage/)
 
 
 
