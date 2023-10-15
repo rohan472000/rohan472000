@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yr7tp5a9d6ub1.png?width=100&height=100)
-* Meme Author: [fadedbit](https://www.reddit.com/user/fadedbit/)
+![Funny Meme](https://i.redd.it/149ok1k4k8ub1.png?width=100&height=100)
+* Meme Author: [Wattosup](https://www.reddit.com/user/Wattosup/)
 
 
 
