@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zbtgs5cfufub1.jpg?width=100&height=100)
-* Meme Author: [blehbleh1122](https://www.reddit.com/user/blehbleh1122/)
+![Funny Meme](https://i.redd.it/1yia7yngzbub1.jpg?width=100&height=100)
+* Meme Author: [Kappa_Dor](https://www.reddit.com/user/Kappa_Dor/)
 
 
 
