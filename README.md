@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/246h7mdsufub1.jpg?width=100&height=100)
-* Meme Author: [liquorinthefrontbutt](https://www.reddit.com/user/liquorinthefrontbutt/)
+![Funny Meme](https://i.redd.it/iqjhfd58w8ub1.jpg?width=100&height=100)
+* Meme Author: [28DaysOfMemes](https://www.reddit.com/user/28DaysOfMemes/)
 
 
 
