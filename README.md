@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gb5njirrj6ub1.png?width=100&height=100)
-* Meme Author: [CrazyIntrovert2023](https://www.reddit.com/user/CrazyIntrovert2023/)
+![Funny Meme](https://i.redd.it/t1on6z4pk7ub1.jpg?width=100&height=100)
+* Meme Author: [WetsAwk-9455](https://www.reddit.com/user/WetsAwk-9455/)
 
 
 
