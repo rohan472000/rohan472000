@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zdcnjvff55ub1.jpg?width=100&height=100)
-* Meme Author: [InsideCharity4824](https://www.reddit.com/user/InsideCharity4824/)
+![Funny Meme](https://i.redd.it/e0yvqw80x4ub1.jpg?width=100&height=100)
+* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
 
 
 
