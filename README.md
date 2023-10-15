@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gdnmo3lxd7ub1.png?width=100&height=100)
-* Meme Author: [Fireflyfever](https://www.reddit.com/user/Fireflyfever/)
+![Funny Meme](https://i.redd.it/a4w2vjfjt2ub1.jpg?width=100&height=100)
+* Meme Author: [Idiotaddictedto2Hou](https://www.reddit.com/user/Idiotaddictedto2Hou/)
 
 
 
