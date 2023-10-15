@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e6le385hvaub1.jpg?width=100&height=100)
-* Meme Author: [RedditBalls111](https://www.reddit.com/user/RedditBalls111/)
+![Funny Meme](https://i.redd.it/gb5njirrj6ub1.png?width=100&height=100)
+* Meme Author: [CrazyIntrovert2023](https://www.reddit.com/user/CrazyIntrovert2023/)
 
 
 
