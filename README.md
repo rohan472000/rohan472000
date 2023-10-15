@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/seoj7ulrn7ub1.jpg?width=100&height=100)
-* Meme Author: [mbasi](https://www.reddit.com/user/mbasi/)
+![Funny Meme](https://i.redd.it/5bqpwbwy1bub1.jpg?width=100&height=100)
+* Meme Author: [coolidiot2000](https://www.reddit.com/user/coolidiot2000/)
 
 
 
