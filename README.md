@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ed9vuu8dlaub1.png?width=100&height=100)
-* Meme Author: [samuraydogo](https://www.reddit.com/user/samuraydogo/)
+![Funny Meme](https://i.redd.it/o4qy5sr1bgub1.jpg?width=100&height=100)
+* Meme Author: [tinmask](https://www.reddit.com/user/tinmask/)
 
 
 
