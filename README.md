@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i6cukjtau7ub1.png?width=100&height=100)
-* Meme Author: [MikeWazouskiee](https://www.reddit.com/user/MikeWazouskiee/)
+![Funny Meme](https://i.redd.it/x74eqivr7bub1.jpg?width=100&height=100)
+* Meme Author: [Poofy_](https://www.reddit.com/user/Poofy_/)
 
 
 
