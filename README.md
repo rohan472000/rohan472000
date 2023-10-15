@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zxts0htnp5ub1.jpg?width=100&height=100)
-* Meme Author: [thiccdaddy__](https://www.reddit.com/user/thiccdaddy__/)
+![Funny Meme](https://i.redd.it/iqjhfd58w8ub1.jpg?width=100&height=100)
+* Meme Author: [28DaysOfMemes](https://www.reddit.com/user/28DaysOfMemes/)
 
 
 
