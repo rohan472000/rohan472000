@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rx5wdyhix8ub1.png?width=100&height=100)
-* Meme Author: [ResidentCram](https://www.reddit.com/user/ResidentCram/)
+![Funny Meme](https://i.redd.it/jx4mpoo079ub1.jpg?width=100&height=100)
+* Meme Author: [comicalben](https://www.reddit.com/user/comicalben/)
 
 
 
