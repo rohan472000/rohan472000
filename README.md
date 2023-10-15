@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/82jnmj.jpg?width=100&height=100)
-* Meme Author: [artemismilkman](https://www.reddit.com/user/artemismilkman/)
+![Funny Meme](https://i.redd.it/hq7tngja8dub1.jpg?width=100&height=100)
+* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
 
 
 
