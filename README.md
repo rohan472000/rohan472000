@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/njjof6xxxdub1.jpg?width=100&height=100)
-* Meme Author: [shredslanding](https://www.reddit.com/user/shredslanding/)
+![Funny Meme](https://i.redd.it/mlkhqz10obub1.jpg?width=100&height=100)
+* Meme Author: [Deep_Monk1283](https://www.reddit.com/user/Deep_Monk1283/)
 
 
 
