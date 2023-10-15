@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g71bvfommdub1.jpg?width=100&height=100)
-* Meme Author: [Fulcrum909](https://www.reddit.com/user/Fulcrum909/)
+![Funny Meme](https://i.redd.it/dndr4gd5udub1.jpg?width=100&height=100)
+* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
 
 
 
