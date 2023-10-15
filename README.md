@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o4qy5sr1bgub1.jpg?width=100&height=100)
-* Meme Author: [tinmask](https://www.reddit.com/user/tinmask/)
+![Funny Meme](https://i.redd.it/bctqmxm89gub1.jpg?width=100&height=100)
+* Meme Author: [dec35](https://www.reddit.com/user/dec35/)
 
 
 
