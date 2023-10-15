@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tu04hvws07ub1.png?width=100&height=100)
-* Meme Author: [madcup3](https://www.reddit.com/user/madcup3/)
+![Funny Meme](https://i.redd.it/fpyumq2wm8ub1.jpg?width=100&height=100)
+* Meme Author: [namedonelettere](https://www.reddit.com/user/namedonelettere/)
 
 
 
