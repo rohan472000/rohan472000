@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/656qkcrb1cub1.jpg?width=100&height=100)
-* Meme Author: [tritapolli](https://www.reddit.com/user/tritapolli/)
+![Funny Meme](https://i.redd.it/ibohnxniuaub1.jpg?width=100&height=100)
+* Meme Author: [NeverDidLearn](https://www.reddit.com/user/NeverDidLearn/)
 
 
 
