@@ -10,4 +10,4 @@ We deeply appreciate the creativity and efforts put forth by Reddit users in cre
 
 If you are the creator of one of these memes and have any concerns regarding its usage, attribution, or wish for its removal, please feel free to contact us. We highly value your creative work and are committed to addressing your requests promptly.
 
-Your artistic contributions deserve proper recognition and respect. Thank you for being part of the vibrant Reddit community!
+Your artistic contributions deserve proper recognition and respect. Thank you for being part of the vibrant Reddit community!.
