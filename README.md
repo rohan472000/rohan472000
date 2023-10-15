@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dndr4gd5udub1.jpg?width=100&height=100)
-* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
+![Funny Meme](https://i.redd.it/pnerugqxs6ub1.jpg?width=100&height=100)
+* Meme Author: [fcbayern3](https://www.reddit.com/user/fcbayern3/)
 
 
 
