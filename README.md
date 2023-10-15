@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ud28qqaz83ub1.jpg?width=100&height=100)
-* Meme Author: [Ragtime-Rochelle](https://www.reddit.com/user/Ragtime-Rochelle/)
+![Funny Meme](https://i.redd.it/jazcltcd8bub1.jpg?width=100&height=100)
+* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
 
 
 
