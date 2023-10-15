@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8otwv7dpk7ub1.jpg?width=100&height=100)
-* Meme Author: [Nubrubbings](https://www.reddit.com/user/Nubrubbings/)
+![Funny Meme](https://i.redd.it/656qkcrb1cub1.jpg?width=100&height=100)
+* Meme Author: [tritapolli](https://www.reddit.com/user/tritapolli/)
 
 
 
