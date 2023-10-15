@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xbhftownz8ub1.jpg?width=100&height=100)
-* Meme Author: [88T3](https://www.reddit.com/user/88T3/)
+![Funny Meme](https://i.redd.it/84bhqm3en7ub1.png?width=100&height=100)
+* Meme Author: [TheRumpletiltskin](https://www.reddit.com/user/TheRumpletiltskin/)
 
 
 
