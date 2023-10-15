@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bstecupx89ub1.jpg?width=100&height=100)
-* Meme Author: [Redittykong](https://www.reddit.com/user/Redittykong/)
+![Funny Meme](https://i.redd.it/6r8xdn6zg5ub1.png?width=100&height=100)
+* Meme Author: [konosapi](https://www.reddit.com/user/konosapi/)
 
 
 
