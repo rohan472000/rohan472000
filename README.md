@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pk7vfbb42gub1.jpg?width=100&height=100)
-* Meme Author: [GoldNRatiO_124](https://www.reddit.com/user/GoldNRatiO_124/)
+![Funny Meme](https://i.redd.it/skaamnkgndub1.jpg?width=100&height=100)
+* Meme Author: [ImaginationFunny2480](https://www.reddit.com/user/ImaginationFunny2480/)
 
 
 
