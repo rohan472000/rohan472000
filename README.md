@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oazimkl0gfub1.jpg?width=100&height=100)
-* Meme Author: [The_Ur3an_Myth](https://www.reddit.com/user/The_Ur3an_Myth/)
+![Funny Meme](https://i.redd.it/t5990e323fub1.jpg?width=100&height=100)
+* Meme Author: [yablewit23](https://www.reddit.com/user/yablewit23/)
 
 
 
