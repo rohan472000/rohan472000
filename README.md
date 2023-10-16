@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/15d3bs687gub1.png?width=100&height=100)
-* Meme Author: [dakp15](https://www.reddit.com/user/dakp15/)
+![Funny Meme](https://i.redd.it/eweysf8gbfub1.jpg?width=100&height=100)
+* Meme Author: [SpaceshipCaptain001](https://www.reddit.com/user/SpaceshipCaptain001/)
 
 
 
