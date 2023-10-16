@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ey47ogjtvjub1.jpg?width=100&height=100)
-* Meme Author: [7H36](https://www.reddit.com/user/7H36/)
+![Funny Meme](https://i.redd.it/5gnt3lt5hmub1.jpg?width=100&height=100)
+* Meme Author: [missingmytowel](https://www.reddit.com/user/missingmytowel/)
 
 
 
