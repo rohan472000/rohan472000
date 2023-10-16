@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gdbycntpnkub1.jpg?width=100&height=100)
-* Meme Author: [DragonBornOfAcid](https://www.reddit.com/user/DragonBornOfAcid/)
+![Funny Meme](https://i.redd.it/b5agmk0o9gub1.png?width=100&height=100)
+* Meme Author: [tycooperaow](https://www.reddit.com/user/tycooperaow/)
 
 
 
