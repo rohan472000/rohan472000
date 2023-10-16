@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hrle0n3t4mub1.jpg?width=100&height=100)
-* Meme Author: [SCPPeanutMen](https://www.reddit.com/user/SCPPeanutMen/)
+![Funny Meme](https://i.redd.it/qtncms4cgkub1.png?width=100&height=100)
+* Meme Author: [Terrible-Animator251](https://www.reddit.com/user/Terrible-Animator251/)
 
 
 
