@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o34orm9vxdub1.jpg?width=100&height=100)
-* Meme Author: [SullyPatel](https://www.reddit.com/user/SullyPatel/)
+![Funny Meme](https://i.redd.it/28xstd4lieub1.jpg?width=100&height=100)
+* Meme Author: [BLUE_GTA3](https://www.reddit.com/user/BLUE_GTA3/)
 
 
 
