@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bq7g8xl386ub1.jpg?width=100&height=100)
-* Meme Author: [samthekitnix](https://www.reddit.com/user/samthekitnix/)
+![Funny Meme](https://i.redd.it/5xpw6lwz8hub1.jpg?width=100&height=100)
+* Meme Author: [AdGlobal4164](https://www.reddit.com/user/AdGlobal4164/)
 
 
 
