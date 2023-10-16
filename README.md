@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1gdvfv0j9hub1.jpg?width=100&height=100)
-* Meme Author: [EllieNekoGirl](https://www.reddit.com/user/EllieNekoGirl/)
+![Funny Meme](https://i.redd.it/2nzircu3ehub1.jpg?width=100&height=100)
+* Meme Author: [HelicopterTechnical4](https://www.reddit.com/user/HelicopterTechnical4/)
 
 
 
