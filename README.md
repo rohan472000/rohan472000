@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fj3toqbtq8ub1.jpg?width=100&height=100)
-* Meme Author: [DaltarIT24](https://www.reddit.com/user/DaltarIT24/)
+![Funny Meme](https://i.redd.it/jyagtviz6iub1.jpg?width=100&height=100)
+* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
 
 
 
