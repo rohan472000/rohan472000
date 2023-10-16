@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o34orm9vxdub1.jpg?width=100&height=100)
-* Meme Author: [SullyPatel](https://www.reddit.com/user/SullyPatel/)
+![Funny Meme](https://i.redd.it/dndr4gd5udub1.jpg?width=100&height=100)
+* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
 
 
 
