@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7yia9p8pfjub1.jpg?width=100&height=100)
-* Meme Author: [unbelievable_owl](https://www.reddit.com/user/unbelievable_owl/)
+![Funny Meme](https://i.redd.it/qtncms4cgkub1.png?width=100&height=100)
+* Meme Author: [Terrible-Animator251](https://www.reddit.com/user/Terrible-Animator251/)
 
 
 
