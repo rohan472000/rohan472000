@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ysypwuqq1gub1.jpg?width=100&height=100)
-* Meme Author: [Triton_Sol](https://www.reddit.com/user/Triton_Sol/)
+![Funny Meme](https://i.redd.it/h0xiqettzjub1.jpg?width=100&height=100)
+* Meme Author: [jertsa_faijja](https://www.reddit.com/user/jertsa_faijja/)
 
 
 
