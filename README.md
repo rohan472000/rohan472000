@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/poh8tfyx5bub1.jpg?width=100&height=100)
-* Meme Author: [Directorjustin](https://www.reddit.com/user/Directorjustin/)
+![Funny Meme](https://i.redd.it/ngt1apg4pgub1.jpg?width=100&height=100)
+* Meme Author: [TurboTitan92](https://www.reddit.com/user/TurboTitan92/)
 
 
 
