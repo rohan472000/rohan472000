@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rciegsu6dgub1.png?width=100&height=100)
-* Meme Author: [MrSixtyFour](https://www.reddit.com/user/MrSixtyFour/)
+![Funny Meme](https://i.redd.it/gyqwdb8s4gub1.jpg?width=100&height=100)
+* Meme Author: [CT-2632_Jaax](https://www.reddit.com/user/CT-2632_Jaax/)
 
 
 
