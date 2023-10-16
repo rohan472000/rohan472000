@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ipaml8a05hub1.png?width=100&height=100)
-* Meme Author: [OniTenshi500](https://www.reddit.com/user/OniTenshi500/)
+![Funny Meme](https://i.redd.it/0z97sje64mub1.png?width=100&height=100)
+* Meme Author: [Realtor_3605](https://www.reddit.com/user/Realtor_3605/)
 
 
 
