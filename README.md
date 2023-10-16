@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y375rsnn8cub1.jpg?width=100&height=100)
-* Meme Author: [tritapolli](https://www.reddit.com/user/tritapolli/)
+![Funny Meme](https://i.redd.it/r868muonzgub1.jpg?width=100&height=100)
+* Meme Author: [atom644](https://www.reddit.com/user/atom644/)
 
 
 
