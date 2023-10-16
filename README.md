@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/28xstd4lieub1.jpg?width=100&height=100)
-* Meme Author: [BLUE_GTA3](https://www.reddit.com/user/BLUE_GTA3/)
+![Funny Meme](https://i.redd.it/go7va4hz3lub1.png?width=100&height=100)
+* Meme Author: [Sanshuga](https://www.reddit.com/user/Sanshuga/)
 
 
 
