@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a9y1k93ccgub1.png?width=100&height=100)
-* Meme Author: [StringsPluck](https://www.reddit.com/user/StringsPluck/)
+![Funny Meme](https://i.redd.it/b4ikd9nfuiub1.png?width=100&height=100)
+* Meme Author: [amateurfunk](https://www.reddit.com/user/amateurfunk/)
 
 
 
