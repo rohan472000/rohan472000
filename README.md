@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5eoitk0sxfub1.png?width=100&height=100)
-* Meme Author: [rancangkota](https://www.reddit.com/user/rancangkota/)
+![Funny Meme](https://i.redd.it/g2stwa0vokub1.png?width=100&height=100)
+* Meme Author: [mysterylukey](https://www.reddit.com/user/mysterylukey/)
 
 
 
