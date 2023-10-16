@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dn9gb4myckub1.jpg?width=100&height=100)
-* Meme Author: [10Link23](https://www.reddit.com/user/10Link23/)
+![Funny Meme](https://i.redd.it/bhzulnitqgub1.jpg?width=100&height=100)
+* Meme Author: [Wonghy111-the-knight](https://www.reddit.com/user/Wonghy111-the-knight/)
 
 
 
