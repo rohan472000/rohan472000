@@ -6,8 +6,9 @@ from discord.ext import commands
 import requests
 import logging
 import json
-# import os
+import os
 from collections import deque
+
 # Constants
 REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
 USER_AGENT = (
@@ -17,8 +18,8 @@ USER_AGENT = (
 
 
 # TOKEN = os.environ.get("DISCORD")
-# TOKEN =  os.getenv("DISCORD")
-TOKEN = '${{ secrets.DISCORD }}'
+TOKEN = os.getenv("DISCORD")
+# TOKEN = '${{ secrets.DISCORD }}'
 # print("token initials are : ", TOKEN)
 
 # Define intents
@@ -34,7 +35,7 @@ sent_memes = deque(maxlen=10)
 
 @bot.event
 async def on_ready():
-    print(f'Logged in as {bot.user.name}')
+    print(f"Logged in as {bot.user.name}")
 
 
 @bot.command()
@@ -51,14 +52,14 @@ async def postmeme(ctx):
 
 def fetch_random_url(api_url, user_agent):
     try:
-        response = requests.get(api_url, headers={'User-agent': user_agent})
+        response = requests.get(api_url, headers={"User-agent": user_agent})
         response.raise_for_status()
-        return response.json()[0]['data']['children'][0]['data']['url']
+        return response.json()[0]["data"]["children"][0]["data"]["url"]
     except (
         requests.exceptions.RequestException,
         json.JSONDecodeError,
         KeyError,
-        IndexError
+        IndexError,
     ) as e:
         logging.error(f"An error occurred: {e}")
         return None

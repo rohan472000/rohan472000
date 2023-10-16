@@ -19,13 +19,23 @@ jobs:
         uses: actions/setup-python@v2
         with:
           python-version: '3.9'
+      
+      - name: Update pip
+        run: pip install --upgrade pip
           
-      - name: Install requests library
+      - name: Install requirements
         run: pip install -r requirements.txt 
         
       - name: Fetch a random meme
         run: python joke.py
         
+      # - name: Run discord bot
+      #   env:
+      #     DISCORD: ${{ secrets.DISCORD }}
+      #   run: |
+      #     python discord_bot.py
+      #     echo "discord bot .py ran"
+      
       - name: Commit and push changes
         uses: stefanzweifel/git-auto-commit-action@v4
         with:

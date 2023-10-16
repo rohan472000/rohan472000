@@ -1,2 +1,16 @@
-requests
+aiohttp
+aiosignal
+async-timeout
+attrs
+certifi
+charset-normalizer
 discord
+discord.py
+frozenlist
+idna
+multidict
+Pillow
+pybase64
+requests
+urllib3
+yarl
