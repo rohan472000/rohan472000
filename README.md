@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i3v0xmac2iub1.jpg?width=100&height=100)
-* Meme Author: [Blue_Tasiilaq](https://www.reddit.com/user/Blue_Tasiilaq/)
+![Funny Meme](https://i.redd.it/5hec5rkuibub1.jpg?width=100&height=100)
+* Meme Author: [ChaosCelebration](https://www.reddit.com/user/ChaosCelebration/)
 
 
 
