@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6bevlgd7dgub1.jpg?width=100&height=100)
-* Meme Author: [Bradley___333](https://www.reddit.com/user/Bradley___333/)
+![Funny Meme](https://i.redd.it/i3v0xmac2iub1.jpg?width=100&height=100)
+* Meme Author: [Blue_Tasiilaq](https://www.reddit.com/user/Blue_Tasiilaq/)
 
 
 
