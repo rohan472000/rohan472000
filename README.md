@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s2hfj39t1fub1.jpg?width=100&height=100)
-* Meme Author: [lukaas69420](https://www.reddit.com/user/lukaas69420/)
+![Funny Meme](https://i.redd.it/arfc37ctfgub1.jpg?width=100&height=100)
+* Meme Author: [E_rat-chan](https://www.reddit.com/user/E_rat-chan/)
 
 
 
