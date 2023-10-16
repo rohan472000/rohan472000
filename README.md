@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uko8x9j5mdub1.jpg?width=100&height=100)
-* Meme Author: [Chicken_Commando](https://www.reddit.com/user/Chicken_Commando/)
+![Funny Meme](https://i.redd.it/bq7g8xl386ub1.jpg?width=100&height=100)
+* Meme Author: [samthekitnix](https://www.reddit.com/user/samthekitnix/)
 
 
 
