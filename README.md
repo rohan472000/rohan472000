@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/70ysiva92fub1.png?width=100&height=100)
-* Meme Author: [leephelipe](https://www.reddit.com/user/leephelipe/)
+![Funny Meme](https://i.redd.it/54mnrbibfdub1.png?width=100&height=100)
+* Meme Author: [GamerA_S](https://www.reddit.com/user/GamerA_S/)
 
 
 
