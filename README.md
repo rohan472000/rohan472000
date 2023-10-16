@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zugr8alnpeub1.jpg?width=100&height=100)
-* Meme Author: [CounterSYNK](https://www.reddit.com/user/CounterSYNK/)
+![Funny Meme](https://i.redd.it/609bkbct0gub1.jpg?width=100&height=100)
+* Meme Author: [Numerous-Gur-9008](https://www.reddit.com/user/Numerous-Gur-9008/)
 
 
 
