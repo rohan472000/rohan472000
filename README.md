@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/TtDoV9i.jpg?width=100&height=100)
-* Meme Author: [CobaltAzurean](https://www.reddit.com/user/CobaltAzurean/)
+![Funny Meme](https://i.redd.it/ysypwuqq1gub1.jpg?width=100&height=100)
+* Meme Author: [Triton_Sol](https://www.reddit.com/user/Triton_Sol/)
 
 
 
