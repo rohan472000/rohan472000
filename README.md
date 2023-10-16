@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o6dn3awycfub1.png?width=100&height=100)
-* Meme Author: [Empirer_BAD](https://www.reddit.com/user/Empirer_BAD/)
+![Funny Meme](https://i.redd.it/4u0xfexvwkub1.jpg?width=100&height=100)
+* Meme Author: [ChungusSan](https://www.reddit.com/user/ChungusSan/)
 
 
 
