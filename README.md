@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g2stwa0vokub1.png?width=100&height=100)
-* Meme Author: [mysterylukey](https://www.reddit.com/user/mysterylukey/)
+![Funny Meme](https://i.redd.it/y8yu4kzi4kub1.jpg?width=100&height=100)
+* Meme Author: [dogtron64](https://www.reddit.com/user/dogtron64/)
 
 
 
