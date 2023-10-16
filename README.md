@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oi73w42qwfub1.jpg?width=100&height=100)
-* Meme Author: [sabregang2020](https://www.reddit.com/user/sabregang2020/)
+![Funny Meme](https://i.redd.it/rciegsu6dgub1.png?width=100&height=100)
+* Meme Author: [MrSixtyFour](https://www.reddit.com/user/MrSixtyFour/)
 
 
 
