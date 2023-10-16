@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k8yofid61jub1.jpg?width=100&height=100)
-* Meme Author: [Aruiaruishas](https://www.reddit.com/user/Aruiaruishas/)
+![Funny Meme](https://i.redd.it/ar4bi8m9smub1.jpg?width=100&height=100)
+* Meme Author: [Kuthibale](https://www.reddit.com/user/Kuthibale/)
 
 
 
