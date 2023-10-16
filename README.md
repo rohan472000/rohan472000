@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wq1ksbynifub1.jpg?width=100&height=100)
-* Meme Author: [Fid_or](https://www.reddit.com/user/Fid_or/)
+![Funny Meme](https://i.redd.it/poh8tfyx5bub1.jpg?width=100&height=100)
+* Meme Author: [Directorjustin](https://www.reddit.com/user/Directorjustin/)
 
 
 
