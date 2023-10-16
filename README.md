@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t5990e323fub1.jpg?width=100&height=100)
-* Meme Author: [yablewit23](https://www.reddit.com/user/yablewit23/)
+![Funny Meme](https://i.redd.it/q919zpdw4dub1.jpg?width=100&height=100)
+* Meme Author: [Sekkitheblade](https://www.reddit.com/user/Sekkitheblade/)
 
 
 
