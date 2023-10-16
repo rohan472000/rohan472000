@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/psjsqajs2eub1.jpg?width=100&height=100)
-* Meme Author: [Lifeistrashwithoutu](https://www.reddit.com/user/Lifeistrashwithoutu/)
+![Funny Meme](https://i.redd.it/7feme0xkefub1.jpg?width=100&height=100)
+* Meme Author: [n1ck_br0wn](https://www.reddit.com/user/n1ck_br0wn/)
 
 
 
