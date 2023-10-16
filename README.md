@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p1jjzs2sbhub1.jpg?width=100&height=100)
-* Meme Author: [emerald_OP](https://www.reddit.com/user/emerald_OP/)
+![Funny Meme](https://i.redd.it/tyavtivjagub1.jpg?width=100&height=100)
+* Meme Author: [mrtoddw](https://www.reddit.com/user/mrtoddw/)
 
 
 
