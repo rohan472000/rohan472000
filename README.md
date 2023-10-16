@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b4ikd9nfuiub1.png?width=100&height=100)
-* Meme Author: [amateurfunk](https://www.reddit.com/user/amateurfunk/)
+![Funny Meme](https://i.redd.it/wx1nlegn9fub1.jpg?width=100&height=100)
+* Meme Author: [sjmaeff](https://www.reddit.com/user/sjmaeff/)
 
 
 
