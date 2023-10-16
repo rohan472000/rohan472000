@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ribqtozpmub1.jpg?width=100&height=100)
-* Meme Author: [Silly-Ladder-8603](https://www.reddit.com/user/Silly-Ladder-8603/)
+![Funny Meme](https://i.redd.it/nezs3t5wqjub1.png?width=100&height=100)
+* Meme Author: [MegaMinerDL](https://www.reddit.com/user/MegaMinerDL/)
 
 
 
