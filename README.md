@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gb6suvm57eub1.jpg?width=100&height=100)
-* Meme Author: [LegitRollingcock](https://www.reddit.com/user/LegitRollingcock/)
+![Funny Meme](https://i.redd.it/3501a9ce4iub1.jpg?width=100&height=100)
+* Meme Author: [Acledent_Gg](https://www.reddit.com/user/Acledent_Gg/)
 
 
 
