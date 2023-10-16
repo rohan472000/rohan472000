@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tyavtivjagub1.jpg?width=100&height=100)
-* Meme Author: [mrtoddw](https://www.reddit.com/user/mrtoddw/)
+![Funny Meme](https://i.redd.it/psjsqajs2eub1.jpg?width=100&height=100)
+* Meme Author: [Lifeistrashwithoutu](https://www.reddit.com/user/Lifeistrashwithoutu/)
 
 
 
