@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qtncms4cgkub1.png?width=100&height=100)
-* Meme Author: [Terrible-Animator251](https://www.reddit.com/user/Terrible-Animator251/)
+![Funny Meme](https://i.redd.it/psjsqajs2eub1.jpg?width=100&height=100)
+* Meme Author: [Lifeistrashwithoutu](https://www.reddit.com/user/Lifeistrashwithoutu/)
 
 
 
