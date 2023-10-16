@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8a5ew7ukneub1.jpg?width=100&height=100)
-* Meme Author: [wired1984](https://www.reddit.com/user/wired1984/)
+![Funny Meme](https://i.redd.it/b4ikd9nfuiub1.png?width=100&height=100)
+* Meme Author: [amateurfunk](https://www.reddit.com/user/amateurfunk/)
 
 
 
