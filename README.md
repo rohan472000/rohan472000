@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7feme0xkefub1.jpg?width=100&height=100)
-* Meme Author: [n1ck_br0wn](https://www.reddit.com/user/n1ck_br0wn/)
+![Funny Meme](https://i.redd.it/15d3bs687gub1.png?width=100&height=100)
+* Meme Author: [dakp15](https://www.reddit.com/user/dakp15/)
 
 
 
