@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0wo1g2suogub1.jpg?width=100&height=100)
-* Meme Author: [TR3V89](https://www.reddit.com/user/TR3V89/)
+![Funny Meme](https://i.redd.it/gtfp5lz1dhub1.jpg?width=100&height=100)
+* Meme Author: [Dangerous_Barber_442](https://www.reddit.com/user/Dangerous_Barber_442/)
 
 
 
