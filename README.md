@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y8yu4kzi4kub1.jpg?width=100&height=100)
-* Meme Author: [dogtron64](https://www.reddit.com/user/dogtron64/)
+![Funny Meme](https://i.redd.it/h0xiqettzjub1.jpg?width=100&height=100)
+* Meme Author: [jertsa_faijja](https://www.reddit.com/user/jertsa_faijja/)
 
 
 
