@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5gnt3lt5hmub1.jpg?width=100&height=100)
-* Meme Author: [missingmytowel](https://www.reddit.com/user/missingmytowel/)
+![Funny Meme](https://i.redd.it/6y2cugekulub1.jpg?width=100&height=100)
+* Meme Author: [Simple-Piglet-2664](https://www.reddit.com/user/Simple-Piglet-2664/)
 
 
 
