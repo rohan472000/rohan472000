@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cinvaj9f0fub1.jpg?width=100&height=100)
-* Meme Author: [xIkariShinjix](https://www.reddit.com/user/xIkariShinjix/)
+![Funny Meme](https://i.redd.it/pk7vfbb42gub1.jpg?width=100&height=100)
+* Meme Author: [GoldNRatiO_124](https://www.reddit.com/user/GoldNRatiO_124/)
 
 
 
