@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xnj5erv4ldub1.jpg?width=100&height=100)
-* Meme Author: [PuzzleheadedTap1794](https://www.reddit.com/user/PuzzleheadedTap1794/)
+![Funny Meme](https://i.redd.it/poh8tfyx5bub1.jpg?width=100&height=100)
+* Meme Author: [Directorjustin](https://www.reddit.com/user/Directorjustin/)
 
 
 
