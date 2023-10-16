@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ujw9as7ljfub1.png?width=100&height=100)
-* Meme Author: [Sten_PlayZ](https://www.reddit.com/user/Sten_PlayZ/)
+![Funny Meme](https://i.redd.it/5my6c41c2nub1.jpg?width=100&height=100)
+* Meme Author: [LoveThieves](https://www.reddit.com/user/LoveThieves/)
 
 
 
