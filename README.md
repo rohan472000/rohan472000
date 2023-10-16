@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/to57vso0khub1.jpg?width=100&height=100)
-* Meme Author: [loanmagic24](https://www.reddit.com/user/loanmagic24/)
+![Funny Meme](https://i.redd.it/2nzircu3ehub1.jpg?width=100&height=100)
+* Meme Author: [HelicopterTechnical4](https://www.reddit.com/user/HelicopterTechnical4/)
 
 
 
