@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w4uy98qvdgub1.jpg?width=100&height=100)
-* Meme Author: [Youngsir97](https://www.reddit.com/user/Youngsir97/)
+![Funny Meme](https://i.redd.it/fj3toqbtq8ub1.jpg?width=100&height=100)
+* Meme Author: [DaltarIT24](https://www.reddit.com/user/DaltarIT24/)
 
 
 
