@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/psjsqajs2eub1.jpg?width=100&height=100)
-* Meme Author: [Lifeistrashwithoutu](https://www.reddit.com/user/Lifeistrashwithoutu/)
+![Funny Meme](https://i.redd.it/37nm9hs1ckub1.png?width=100&height=100)
+* Meme Author: [cookie-theif](https://www.reddit.com/user/cookie-theif/)
 
 
 
