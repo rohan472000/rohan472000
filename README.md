@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lk8jn8oudgub1.jpg?width=100&height=100)
-* Meme Author: [Mario_Viana](https://www.reddit.com/user/Mario_Viana/)
+![Funny Meme](https://i.redd.it/yyte7a7s5hub1.jpg?width=100&height=100)
+* Meme Author: [heistandburger](https://www.reddit.com/user/heistandburger/)
 
 
 
