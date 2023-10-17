@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mjsxj5ey7nub1.jpg?width=100&height=100)
-* Meme Author: [RyanX1231](https://www.reddit.com/user/RyanX1231/)
+![Funny Meme](https://i.redd.it/rw33xhi6alub1.jpg?width=100&height=100)
+* Meme Author: [Funkin_Valentine](https://www.reddit.com/user/Funkin_Valentine/)
 
 
 
