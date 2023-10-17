@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dtfzp8q1whub1.jpg?width=100&height=100)
-* Meme Author: [TheRealOsamaru](https://www.reddit.com/user/TheRealOsamaru/)
+![Funny Meme](https://i.redd.it/oexk7e9hsoub1.png?width=100&height=100)
+* Meme Author: [TokAnimations](https://www.reddit.com/user/TokAnimations/)
 
 
 
