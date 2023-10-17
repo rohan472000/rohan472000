@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jvlh4ycbvdub1.png?width=100&height=100)
-* Meme Author: [toxic_rf](https://www.reddit.com/user/toxic_rf/)
+![Funny Meme](https://i.redd.it/lieeq30i1oub1.jpg?width=100&height=100)
+* Meme Author: [SensingWorms](https://www.reddit.com/user/SensingWorms/)
 
 
 
