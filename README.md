@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uhyel5y1prub1.jpg?width=100&height=100)
-* Meme Author: [BloonsMonke](https://www.reddit.com/user/BloonsMonke/)
+![Funny Meme](https://i.redd.it/luw9273n6nub1.jpg?width=100&height=100)
+* Meme Author: [Yoshiprimez](https://www.reddit.com/user/Yoshiprimez/)
 
 
 
