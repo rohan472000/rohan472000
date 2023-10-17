@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jkzrsihfsmub1.jpg?width=100&height=100)
-* Meme Author: [Canners19](https://www.reddit.com/user/Canners19/)
+![Funny Meme](https://i.redd.it/tllwy5ld7nub1.jpg?width=100&height=100)
+* Meme Author: [rooshbag](https://www.reddit.com/user/rooshbag/)
 
 
 
