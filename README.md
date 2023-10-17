@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1lbhlwjgpnub1.jpg?width=100&height=100)
-* Meme Author: [Yoshikage_Kira_333](https://www.reddit.com/user/Yoshikage_Kira_333/)
+![Funny Meme](https://i.redd.it/77jzq93uypub1.jpg?width=100&height=100)
+* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
 
 
 
