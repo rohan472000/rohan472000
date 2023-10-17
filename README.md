@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mdh4glki3oub1.jpg?width=100&height=100)
-* Meme Author: [Jbohan4](https://www.reddit.com/user/Jbohan4/)
+![Funny Meme](https://i.redd.it/rd0bg4rk7nub1.jpg?width=100&height=100)
+* Meme Author: [Kazman2007](https://www.reddit.com/user/Kazman2007/)
 
 
 
