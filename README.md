@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t3lj3adsbsub1.jpg?width=100&height=100)
-* Meme Author: [That-Bed4254](https://www.reddit.com/user/That-Bed4254/)
+![Funny Meme](https://i.redd.it/xe7q75h8fsub1.jpg?width=100&height=100)
+* Meme Author: [UserOfReddit0001](https://www.reddit.com/user/UserOfReddit0001/)
 
 
 
