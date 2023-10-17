@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bhvqxbb4urub1.png?width=100&height=100)
-* Meme Author: [Unlucky-Plenty-2570](https://www.reddit.com/user/Unlucky-Plenty-2570/)
+![Funny Meme](https://i.redd.it/335o71mytpub1.jpg?width=100&height=100)
+* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
 
 
 
