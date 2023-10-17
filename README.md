@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hwvwj92lglub1.jpg?width=100&height=100)
-* Meme Author: [EvaInTheUSA](https://www.reddit.com/user/EvaInTheUSA/)
+![Funny Meme](https://i.redd.it/mdh4glki3oub1.jpg?width=100&height=100)
+* Meme Author: [Jbohan4](https://www.reddit.com/user/Jbohan4/)
 
 
 
