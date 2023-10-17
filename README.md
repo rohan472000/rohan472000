@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e6cya3jwkkub1.jpg?width=100&height=100)
-* Meme Author: [Burg_er](https://www.reddit.com/user/Burg_er/)
+![Funny Meme](https://i.redd.it/spk40ibpknub1.jpg?width=100&height=100)
+* Meme Author: [Good_Doughnut8308](https://www.reddit.com/user/Good_Doughnut8308/)
 
 
 
