@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tllwy5ld7nub1.jpg?width=100&height=100)
-* Meme Author: [rooshbag](https://www.reddit.com/user/rooshbag/)
+![Funny Meme](https://i.redd.it/8la06x62skub1.jpg?width=100&height=100)
+* Meme Author: [Goodboy_22](https://www.reddit.com/user/Goodboy_22/)
 
 
 
