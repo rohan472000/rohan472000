@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/03d6yep25lub1.jpg?width=100&height=100)
-* Meme Author: [lizaaardgood](https://www.reddit.com/user/lizaaardgood/)
+![Funny Meme](https://i.redd.it/t3lj3adsbsub1.jpg?width=100&height=100)
+* Meme Author: [That-Bed4254](https://www.reddit.com/user/That-Bed4254/)
 
 
 
