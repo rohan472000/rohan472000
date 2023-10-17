@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f0256xghesub1.jpg?width=100&height=100)
-* Meme Author: [FatbackAndPintoBeans](https://www.reddit.com/user/FatbackAndPintoBeans/)
+![Funny Meme](https://i.imgur.com/8hIOQhC.png?width=100&height=100)
+* Meme Author: [CobaltAzurean](https://www.reddit.com/user/CobaltAzurean/)
 
 
 
