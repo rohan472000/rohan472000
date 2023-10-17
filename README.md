@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hrle0n3t4mub1.jpg?width=100&height=100)
-* Meme Author: [SCPPeanutMen](https://www.reddit.com/user/SCPPeanutMen/)
+![Funny Meme](https://i.redd.it/b5eh630bgnub1.jpg?width=100&height=100)
+* Meme Author: [Animenerdking14](https://www.reddit.com/user/Animenerdking14/)
 
 
 
