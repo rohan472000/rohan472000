@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gink8rqqsmub1.jpg?width=100&height=100)
-* Meme Author: [chibriguy](https://www.reddit.com/user/chibriguy/)
+![Funny Meme](https://i.redd.it/1f61a6issnub1.jpg?width=100&height=100)
+* Meme Author: [dj91king](https://www.reddit.com/user/dj91king/)
 
 
 
