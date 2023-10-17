@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dhx0221l2kub1.png?width=100&height=100)
-* Meme Author: [lizaaardgood](https://www.reddit.com/user/lizaaardgood/)
+![Funny Meme](https://i.redd.it/y3v19ea8ejub1.jpg?width=100&height=100)
+* Meme Author: [TryingToFindThePeace](https://www.reddit.com/user/TryingToFindThePeace/)
 
 
 
