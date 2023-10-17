@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lzaj7rfeboub1.jpg?width=100&height=100)
-* Meme Author: [Jqjsk](https://www.reddit.com/user/Jqjsk/)
+![Funny Meme](https://i.redd.it/jhgu0n5njmub1.jpg?width=100&height=100)
+* Meme Author: [CARZGOVROOM](https://www.reddit.com/user/CARZGOVROOM/)
 
 
 
