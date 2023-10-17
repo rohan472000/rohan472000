@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1f3am2nkynub1.jpg?width=100&height=100)
-* Meme Author: [c_Layton2](https://www.reddit.com/user/c_Layton2/)
+![Funny Meme](https://i.redd.it/i40ui8m2gtub1.jpg?width=100&height=100)
+* Meme Author: [Enoughplez](https://www.reddit.com/user/Enoughplez/)
 
 
 
