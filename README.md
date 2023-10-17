@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4heyfky46rub1.jpg?width=100&height=100)
-* Meme Author: [Holofan4life](https://www.reddit.com/user/Holofan4life/)
+![Funny Meme](https://i.redd.it/lcbhovy4mnub1.jpg?width=100&height=100)
+* Meme Author: [im_rickyspanish](https://www.reddit.com/user/im_rickyspanish/)
 
 
 
