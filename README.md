@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/moe5fevmqmub1.jpg?width=100&height=100)
-* Meme Author: [jodibwithoutane](https://www.reddit.com/user/jodibwithoutane/)
+![Funny Meme](https://i.redd.it/trxz4ha7yrub1.jpg?width=100&height=100)
+* Meme Author: [MollyDooker99](https://www.reddit.com/user/MollyDooker99/)
 
 
 
