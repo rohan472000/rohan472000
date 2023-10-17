@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1mgggghkdoub1.jpg?width=100&height=100)
-* Meme Author: [CocaineSmellsFunny](https://www.reddit.com/user/CocaineSmellsFunny/)
+![Funny Meme](https://i.redd.it/r9g1jkjyenub1.jpg?width=100&height=100)
+* Meme Author: [PotatoWatch101](https://www.reddit.com/user/PotatoWatch101/)
 
 
 
