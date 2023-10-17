@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fe65pa9idoub1.png?width=100&height=100)
-* Meme Author: [kipaxbooks](https://www.reddit.com/user/kipaxbooks/)
+![Funny Meme](https://i.redd.it/5w37dz27roub1.jpg?width=100&height=100)
+* Meme Author: [Electronic_Lab5486](https://www.reddit.com/user/Electronic_Lab5486/)
 
 
 
