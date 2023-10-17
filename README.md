@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/83lldt28fmub1.jpg?width=100&height=100)
-* Meme Author: [IcyBreloom](https://www.reddit.com/user/IcyBreloom/)
+![Funny Meme](https://i.redd.it/9044wgcdosub1.png?width=100&height=100)
+* Meme Author: [AacornSoup](https://www.reddit.com/user/AacornSoup/)
 
 
 
