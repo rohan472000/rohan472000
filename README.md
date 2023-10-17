@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nkz2mexabmub1.png?width=100&height=100)
-* Meme Author: [CrystalSplicer](https://www.reddit.com/user/CrystalSplicer/)
+![Funny Meme](https://i.redd.it/vpa7vzag1pub1.png?width=100&height=100)
+* Meme Author: [intell1slt](https://www.reddit.com/user/intell1slt/)
 
 
 
