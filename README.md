@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vpa7vzag1pub1.png?width=100&height=100)
-* Meme Author: [intell1slt](https://www.reddit.com/user/intell1slt/)
+![Funny Meme](https://i.redd.it/ku21vq6ucnub1.jpg?width=100&height=100)
+* Meme Author: [KDNetwork](https://www.reddit.com/user/KDNetwork/)
 
 
 
