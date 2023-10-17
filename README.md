@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jsu10xz4plub1.png?width=100&height=100)
-* Meme Author: [r96340](https://www.reddit.com/user/r96340/)
+![Funny Meme](https://i.redd.it/ryb87fkm7qub1.jpg?width=100&height=100)
+* Meme Author: [00Kevin](https://www.reddit.com/user/00Kevin/)
 
 
 
