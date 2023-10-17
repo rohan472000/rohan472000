@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kx6g4txsxiub1.jpg?width=100&height=100)
-* Meme Author: [infinity_gaunlet](https://www.reddit.com/user/infinity_gaunlet/)
+![Funny Meme](https://i.redd.it/q9k3y92f9oub1.jpg?width=100&height=100)
+* Meme Author: [Mr-Ideasman](https://www.reddit.com/user/Mr-Ideasman/)
 
 
 
