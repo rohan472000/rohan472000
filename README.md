@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3hucnqonppub1.jpg?width=100&height=100)
-* Meme Author: [Prestigious-Green-19](https://www.reddit.com/user/Prestigious-Green-19/)
+![Funny Meme](https://i.redd.it/e7o57xdresub1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
