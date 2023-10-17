@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h7u2lt37emub1.jpg?width=100&height=100)
-* Meme Author: [Anomaly-47](https://www.reddit.com/user/Anomaly-47/)
+![Funny Meme](https://i.redd.it/q2kjkyc69pub1.jpg?width=100&height=100)
+* Meme Author: [privateaxe](https://www.reddit.com/user/privateaxe/)
 
 
 
