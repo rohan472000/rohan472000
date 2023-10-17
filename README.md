@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eeg0d2jr7rub1.png?width=100&height=100)
-* Meme Author: [aerograph](https://www.reddit.com/user/aerograph/)
+![Funny Meme](https://i.redd.it/t3lj3adsbsub1.jpg?width=100&height=100)
+* Meme Author: [That-Bed4254](https://www.reddit.com/user/That-Bed4254/)
 
 
 
