@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8la06x62skub1.jpg?width=100&height=100)
-* Meme Author: [Goodboy_22](https://www.reddit.com/user/Goodboy_22/)
+![Funny Meme](https://i.redd.it/xuqpxxgvnmub1.jpg?width=100&height=100)
+* Meme Author: [so-unobvious](https://www.reddit.com/user/so-unobvious/)
 
 
 
