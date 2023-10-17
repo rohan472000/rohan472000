@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vzfzuknvlsub1.png?width=100&height=100)
-* Meme Author: [MsNunez](https://www.reddit.com/user/MsNunez/)
+![Funny Meme](https://i.redd.it/4gyudiit7uub1.png?width=100&height=100)
+* Meme Author: [kipaxbooks](https://www.reddit.com/user/kipaxbooks/)
 
 
 
