@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r9g1jkjyenub1.jpg?width=100&height=100)
-* Meme Author: [PotatoWatch101](https://www.reddit.com/user/PotatoWatch101/)
+![Funny Meme](https://i.redd.it/kii59u00toub1.jpg?width=100&height=100)
+* Meme Author: [h3llofaRide](https://www.reddit.com/user/h3llofaRide/)
 
 
 
