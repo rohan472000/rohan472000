@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/em7j8kh3ekub1.png?width=100&height=100)
-* Meme Author: [William_Tell_746](https://www.reddit.com/user/William_Tell_746/)
+![Funny Meme](https://i.redd.it/3zy8kvzwhpub1.jpg?width=100&height=100)
+* Meme Author: [evilcarrot507](https://www.reddit.com/user/evilcarrot507/)
 
 
 
