@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z3ylodymdlub1.jpg?width=100&height=100)
-* Meme Author: [generalmemer](https://www.reddit.com/user/generalmemer/)
+![Funny Meme](https://i.redd.it/t2clv1iaqmub1.jpg?width=100&height=100)
+* Meme Author: [Fragrant-Zombie1572](https://www.reddit.com/user/Fragrant-Zombie1572/)
 
 
 
