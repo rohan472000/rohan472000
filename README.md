@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cilfqsqzesub1.jpg?width=100&height=100)
-* Meme Author: [Rollen73](https://www.reddit.com/user/Rollen73/)
+![Funny Meme](https://i.redd.it/fp5dowid3sub1.jpg?width=100&height=100)
+* Meme Author: [hurtfulscaffold47](https://www.reddit.com/user/hurtfulscaffold47/)
 
 
 
