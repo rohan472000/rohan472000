@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ay812xbkznub1.jpg?width=100&height=100)
-* Meme Author: [macrohard_certified](https://www.reddit.com/user/macrohard_certified/)
+![Funny Meme](https://i.redd.it/wnpoh2vssoub1.png?width=100&height=100)
+* Meme Author: [GenuineElf80093](https://www.reddit.com/user/GenuineElf80093/)
 
 
 
