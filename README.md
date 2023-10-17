@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9044wgcdosub1.png?width=100&height=100)
-* Meme Author: [AacornSoup](https://www.reddit.com/user/AacornSoup/)
+![Funny Meme](https://i.redd.it/hlxgcfrmesub1.jpg?width=100&height=100)
+* Meme Author: [child-of-old-gods](https://www.reddit.com/user/child-of-old-gods/)
 
 
 
