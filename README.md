@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i5m9jyyeyoub1.jpg?width=100&height=100)
-* Meme Author: [CocaineSmellsFunny](https://www.reddit.com/user/CocaineSmellsFunny/)
+![Funny Meme](https://i.redd.it/5typcvlrdoub1.jpg?width=100&height=100)
+* Meme Author: [heeroo0](https://www.reddit.com/user/heeroo0/)
 
 
 
