@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0cf49xef8mub1.jpg?width=100&height=100)
-* Meme Author: [KrashBlox21](https://www.reddit.com/user/KrashBlox21/)
+![Funny Meme](https://i.redd.it/ku21vq6ucnub1.jpg?width=100&height=100)
+* Meme Author: [KDNetwork](https://www.reddit.com/user/KDNetwork/)
 
 
 
