@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wrzitss6anub1.png?width=100&height=100)
-* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
+![Funny Meme](https://i.redd.it/4u0xfexvwkub1.jpg?width=100&height=100)
+* Meme Author: [ChungusSan](https://www.reddit.com/user/ChungusSan/)
 
 
 
