@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5nvlztztqkub1.jpg?width=100&height=100)
-* Meme Author: [burgernoisenow](https://www.reddit.com/user/burgernoisenow/)
+![Funny Meme](https://i.redd.it/s9d7txni3gub1.png?width=100&height=100)
+* Meme Author: [DNDHomebrewery2](https://www.reddit.com/user/DNDHomebrewery2/)
 
 
 
