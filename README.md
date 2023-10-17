@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/59lmp0cbgrub1.jpg?width=100&height=100)
-* Meme Author: [Own-Cupcake7586](https://www.reddit.com/user/Own-Cupcake7586/)
+![Funny Meme](https://i.redd.it/vei5n490ytub1.jpg?width=100&height=100)
+* Meme Author: [Williwoo321](https://www.reddit.com/user/Williwoo321/)
 
 
 
