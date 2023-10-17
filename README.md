@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6y2cugekulub1.jpg?width=100&height=100)
-* Meme Author: [Simple-Piglet-2664](https://www.reddit.com/user/Simple-Piglet-2664/)
+![Funny Meme](https://i.redd.it/jvlh4ycbvdub1.png?width=100&height=100)
+* Meme Author: [toxic_rf](https://www.reddit.com/user/toxic_rf/)
 
 
 
