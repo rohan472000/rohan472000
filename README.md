@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vap4q6xyrlub1.jpg?width=100&height=100)
-* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
+![Funny Meme](https://i.redd.it/wrzitss6anub1.png?width=100&height=100)
+* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
 
 
 
