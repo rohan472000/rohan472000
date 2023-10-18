@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p0c1uzyenwub1.jpg?width=100&height=100)
-* Meme Author: [ThroinEnsiferum](https://www.reddit.com/user/ThroinEnsiferum/)
+![Funny Meme](https://i.redd.it/fby7e8p3usub1.jpg?width=100&height=100)
+* Meme Author: [NinjaMaster231456](https://www.reddit.com/user/NinjaMaster231456/)
 
 
 
