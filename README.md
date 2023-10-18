@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7gi8z77jkrub1.jpg?width=100&height=100)
-* Meme Author: [Groundbreaking-Egg13](https://www.reddit.com/user/Groundbreaking-Egg13/)
+![Funny Meme](https://i.redd.it/e4ezjf3c6tub1.jpg?width=100&height=100)
+* Meme Author: [Still-Bison-1108](https://www.reddit.com/user/Still-Bison-1108/)
 
 
 
