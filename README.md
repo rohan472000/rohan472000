@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ryy9um8mmxub1.jpg?width=100&height=100)
-* Meme Author: [goose-77-](https://www.reddit.com/user/goose-77-/)
+![Funny Meme](https://i.redd.it/37qe6oefknub1.jpg?width=100&height=100)
+* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
 
 
 
