@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1yjypoemitub1.jpg?width=100&height=100)
-* Meme Author: [Depressed_introvert1](https://www.reddit.com/user/Depressed_introvert1/)
+![Funny Meme](https://i.redd.it/55zel7jftrub1.jpg?width=100&height=100)
+* Meme Author: [burgernoisenow](https://www.reddit.com/user/burgernoisenow/)
 
 
 
