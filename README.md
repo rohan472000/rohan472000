@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ct7av8eh8vub1.jpg?width=100&height=100)
-* Meme Author: [amcg41294](https://www.reddit.com/user/amcg41294/)
+![Funny Meme](https://i.redd.it/kzzklej0izub1.jpg?width=100&height=100)
+* Meme Author: [squishy-boi69](https://www.reddit.com/user/squishy-boi69/)
 
 
 
