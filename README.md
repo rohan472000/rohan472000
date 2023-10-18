@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i8r53a43puub1.jpg?width=100&height=100)
-* Meme Author: [A_aVeRaGe_XbOx_GaMeR](https://www.reddit.com/user/A_aVeRaGe_XbOx_GaMeR/)
+![Funny Meme](https://i.redd.it/109yxmncjtub1.jpg?width=100&height=100)
+* Meme Author: [Twentynine4](https://www.reddit.com/user/Twentynine4/)
 
 
 
