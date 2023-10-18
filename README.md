@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v3to44qu8tub1.png?width=100&height=100)
-* Meme Author: [BlackAndProud343](https://www.reddit.com/user/BlackAndProud343/)
+![Funny Meme](https://i.redd.it/1yjypoemitub1.jpg?width=100&height=100)
+* Meme Author: [Depressed_introvert1](https://www.reddit.com/user/Depressed_introvert1/)
 
 
 
