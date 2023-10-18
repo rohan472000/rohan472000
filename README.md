@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4mpdxxg2vwub1.jpg?width=100&height=100)
-* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
+![Funny Meme](https://i.redd.it/tk6hhkaqrtub1.jpg?width=100&height=100)
+* Meme Author: [uglydadd](https://www.reddit.com/user/uglydadd/)
 
 
 
