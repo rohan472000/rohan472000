@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oykm4m72luub1.jpg?width=100&height=100)
-* Meme Author: [waggy-tails-inc](https://www.reddit.com/user/waggy-tails-inc/)
+![Funny Meme](https://i.redd.it/cytui6vo0zub1.png?width=100&height=100)
+* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
 
 
 
