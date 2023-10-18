@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3iqjto5hgpub1.png?width=100&height=100)
-* Meme Author: [Rajat-Chauhan](https://www.reddit.com/user/Rajat-Chauhan/)
+![Funny Meme](https://i.redd.it/2cql2xgqnyub1.png?width=100&height=100)
+* Meme Author: [ShadowsofDakaron](https://www.reddit.com/user/ShadowsofDakaron/)
 
 
 
