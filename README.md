@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j67wacw0nwub1.jpg?width=100&height=100)
-* Meme Author: [Tankdestroyer78](https://www.reddit.com/user/Tankdestroyer78/)
+![Funny Meme](https://i.redd.it/of7lyirk20vb1.png?width=100&height=100)
+* Meme Author: [Still_Satan](https://www.reddit.com/user/Still_Satan/)
 
 
 
