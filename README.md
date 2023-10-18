@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e4ezjf3c6tub1.jpg?width=100&height=100)
-* Meme Author: [Still-Bison-1108](https://www.reddit.com/user/Still-Bison-1108/)
+![Funny Meme](https://i.redd.it/em3jka97ttub1.jpg?width=100&height=100)
+* Meme Author: [parenthetical_phrase](https://www.reddit.com/user/parenthetical_phrase/)
 
 
 
