@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1w0suge7wuub1.jpg?width=100&height=100)
-* Meme Author: [Hammurabiii](https://www.reddit.com/user/Hammurabiii/)
+![Funny Meme](https://i.redd.it/cipywhxq1vub1.jpg?width=100&height=100)
+* Meme Author: [RefinedTasting55](https://www.reddit.com/user/RefinedTasting55/)
 
 
 
