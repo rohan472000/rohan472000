@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w3eh6cps6zub1.png?width=100&height=100)
-* Meme Author: [Kondrad_Curze](https://www.reddit.com/user/Kondrad_Curze/)
+![Funny Meme](https://i.redd.it/4aktipnjlzub1.jpg?width=100&height=100)
+* Meme Author: [alancarroII](https://www.reddit.com/user/alancarroII/)
 
 
 
