@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j8gbphvdkwub1.jpg?width=100&height=100)
-* Meme Author: [Prudent_Gift8325](https://www.reddit.com/user/Prudent_Gift8325/)
+![Funny Meme](https://i.redd.it/m2xe9iuenvub1.jpg?width=100&height=100)
+* Meme Author: [oblongWallah18](https://www.reddit.com/user/oblongWallah18/)
 
 
 
