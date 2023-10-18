@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ylq1r4y9pub1.jpg?width=100&height=100)
-* Meme Author: [Mixer0001](https://www.reddit.com/user/Mixer0001/)
+![Funny Meme](https://i.redd.it/9nec2klbjvub1.jpg?width=100&height=100)
+* Meme Author: [jungianIcepick88](https://www.reddit.com/user/jungianIcepick88/)
 
 
 
