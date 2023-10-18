@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3hn10xthuvub1.jpg?width=100&height=100)
-* Meme Author: [whitestargammer](https://www.reddit.com/user/whitestargammer/)
+![Funny Meme](https://i.redd.it/4wl5uqcuxrub1.png?width=100&height=100)
+* Meme Author: [XenoSynthesis](https://www.reddit.com/user/XenoSynthesis/)
 
 
 
