@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1eg6s54cctub1.jpg?width=100&height=100)
-* Meme Author: [yaktoma2007](https://www.reddit.com/user/yaktoma2007/)
+![Funny Meme](https://i.redd.it/55zel7jftrub1.jpg?width=100&height=100)
+* Meme Author: [burgernoisenow](https://www.reddit.com/user/burgernoisenow/)
 
 
 
