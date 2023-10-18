@@ -36,7 +36,7 @@ Fork our repository by clicking the "Fork" button on the top right of the reposi
 
 ### Clone the Repository
 
-After forking the repository, clone it to your local machine using the following command, replacing `[your-username]` with your GitHub username:
+After forking the repository, clone it to your local machine using the following command:
 
 ```bash
 git clone https://github.com/rohan472000/rohan472000.git
