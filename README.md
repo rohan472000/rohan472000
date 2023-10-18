@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sjcaufp98sub1.jpg?width=100&height=100)
-* Meme Author: [so-unobvious](https://www.reddit.com/user/so-unobvious/)
+![Funny Meme](https://i.redd.it/stjydno3dvub1.jpg?width=100&height=100)
+* Meme Author: [musical-amara](https://www.reddit.com/user/musical-amara/)
 
 
 
