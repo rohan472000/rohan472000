@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y8mmkqsn8yub1.jpg?width=100&height=100)
-* Meme Author: [Will-Of-D-3D2Y](https://www.reddit.com/user/Will-Of-D-3D2Y/)
+![Funny Meme](https://i.redd.it/8afwtpbp9uub1.jpg?width=100&height=100)
+* Meme Author: [blong217](https://www.reddit.com/user/blong217/)
 
 
 
