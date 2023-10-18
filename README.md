@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pdu5gfgh3uub1.jpg?width=100&height=100)
-* Meme Author: [TangibleHappiness](https://www.reddit.com/user/TangibleHappiness/)
+![Funny Meme](https://i.redd.it/buf1dmw56vub1.jpg?width=100&height=100)
+* Meme Author: [Rmon_34](https://www.reddit.com/user/Rmon_34/)
 
 
 
