@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pwndhr9ckwub1.jpg?width=100&height=100)
-* Meme Author: [BaileyVershawn](https://www.reddit.com/user/BaileyVershawn/)
+![Funny Meme](https://i.redd.it/4f72im47rwub1.jpg?width=100&height=100)
+* Meme Author: [Gabriel38](https://www.reddit.com/user/Gabriel38/)
 
 
 
