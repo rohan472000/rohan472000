@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wurvkqis4yub1.jpg?width=100&height=100)
-* Meme Author: [Extra-Lavishness-105](https://www.reddit.com/user/Extra-Lavishness-105/)
+![Funny Meme](https://i.redd.it/tzdj86tmarub1.png?width=100&height=100)
+* Meme Author: [zephyrsidereal](https://www.reddit.com/user/zephyrsidereal/)
 
 
 
