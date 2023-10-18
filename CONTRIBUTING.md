@@ -26,7 +26,6 @@ Thank you for considering contributing to our open-source project! We appreciate
 Before you start contributing, please make sure you have the following:
 
 - [Git](https://git-scm.com/) installed
-- [A GitHub account](https://github.com/)
 - A text editor or integrated development environment (IDE) of your choice
 - Knowledge of the programming language(s) used in this project
 
