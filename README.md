@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7mnvcbfxfzub1.jpg?width=100&height=100)
-* Meme Author: [Late_Bridge1668](https://www.reddit.com/user/Late_Bridge1668/)
+![Funny Meme](https://i.redd.it/4skaonoc8vub1.png?width=100&height=100)
+* Meme Author: [LGplayz998](https://www.reddit.com/user/LGplayz998/)
 
 
 
