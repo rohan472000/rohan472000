@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6makyysfouub1.jpg?width=100&height=100)
-* Meme Author: [coldflash25](https://www.reddit.com/user/coldflash25/)
+![Funny Meme](https://i.redd.it/7gi8z77jkrub1.jpg?width=100&height=100)
+* Meme Author: [Groundbreaking-Egg13](https://www.reddit.com/user/Groundbreaking-Egg13/)
 
 
 
