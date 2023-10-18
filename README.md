@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/otm44fbo3wub1.jpg?width=100&height=100)
-* Meme Author: [OhYeahYuri](https://www.reddit.com/user/OhYeahYuri/)
+![Funny Meme](https://i.redd.it/vsmouahpztub1.jpg?width=100&height=100)
+* Meme Author: [PrettyCoolTim](https://www.reddit.com/user/PrettyCoolTim/)
 
 
 
