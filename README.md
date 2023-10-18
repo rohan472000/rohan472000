@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dn9gb4myckub1.jpg?width=100&height=100)
-* Meme Author: [10Link23](https://www.reddit.com/user/10Link23/)
+![Funny Meme](https://i.redd.it/eerb0okditub1.jpg?width=100&height=100)
+* Meme Author: [DifferenceNo3097](https://www.reddit.com/user/DifferenceNo3097/)
 
 
 
