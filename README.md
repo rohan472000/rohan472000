@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vnsvxx3111vb1.png?width=100&height=100)
-* Meme Author: [Brief-Cryptographer2](https://www.reddit.com/user/Brief-Cryptographer2/)
+![Funny Meme](https://i.redd.it/pwndhr9ckwub1.jpg?width=100&height=100)
+* Meme Author: [BaileyVershawn](https://www.reddit.com/user/BaileyVershawn/)
 
 
 
