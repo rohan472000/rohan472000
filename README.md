@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y5zxitmmhzub1.jpg?width=100&height=100)
-* Meme Author: [bringmeturtles](https://www.reddit.com/user/bringmeturtles/)
+![Funny Meme](https://i.redd.it/37mln9emn0vb1.jpg?width=100&height=100)
+* Meme Author: [weev1](https://www.reddit.com/user/weev1/)
 
 
 
