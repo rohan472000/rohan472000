@@ -27,7 +27,8 @@ Before you start contributing, please make sure you have the following:
 
 - [Git](https://git-scm.com/) installed
 - A text editor or integrated development environment (IDE) of your choice
-- Knowledge of the programming language(s) used in this project
+- Knowledge of the programming language(s)  
+- Knowledge of python and ci CD with GitHub actions
 
 ### Fork the Repository
 
@@ -82,7 +83,7 @@ When your contribution is ready, open a pull request (PR) from your branch to th
 
 ### Issues
 
-If you find a bug, have a suggestion, or want to work on an issue, please check the project's issue tracker. If the issue doesn't exist yet, feel free to open a new one to discuss the problem or feature request.
+If you find a bug, have a suggestion, or want to work on an issue, please check the project's issue tracker. If the issue doesn't exist yet, feel free to  reach out through my mail.
 
 ## Community and Communication
 
