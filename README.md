@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5lbkhx7usuub1.jpg?width=100&height=100)
-* Meme Author: [Strongarm_11](https://www.reddit.com/user/Strongarm_11/)
+![Funny Meme](https://i.redd.it/p0c1uzyenwub1.jpg?width=100&height=100)
+* Meme Author: [ThroinEnsiferum](https://www.reddit.com/user/ThroinEnsiferum/)
 
 
 
