@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i24pi6168xub1.jpg?width=100&height=100)
-* Meme Author: [MyCatBalls](https://www.reddit.com/user/MyCatBalls/)
+![Funny Meme](https://i.redd.it/gxohvsqfyqub1.jpg?width=100&height=100)
+* Meme Author: [Deathman35](https://www.reddit.com/user/Deathman35/)
 
 
 
