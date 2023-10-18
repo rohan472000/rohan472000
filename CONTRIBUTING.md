@@ -28,7 +28,7 @@ Before you start contributing, please make sure you have the following:
 - [Git](https://git-scm.com/) installed
 - A text editor or integrated development environment (IDE) of your choice
 - Knowledge of the programming language(s)  
-- Knowledge of python and ci CD with GitHub actions
+- Knowledge of python and CI/CD with GitHub actions
 
 ### Fork the Repository
 
