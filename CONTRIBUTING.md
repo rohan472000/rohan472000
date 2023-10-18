@@ -38,7 +38,7 @@ Fork our repository by clicking the "Fork" button on the top right of the reposi
 After forking the repository, clone it to your local machine using the following command, replacing `[your-username]` with your GitHub username:
 
 ```bash
-git clone https://github.com/[your-username]/[repository-name].git
+git clone https://github.com/rohan472000/rohan472000.git
 ```
 
 ## Making Contributions
