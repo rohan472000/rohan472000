@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xhco6qk3hyub1.jpg?width=100&height=100)
-* Meme Author: [Salty-004](https://www.reddit.com/user/Salty-004/)
+![Funny Meme](https://i.redd.it/y8mmkqsn8yub1.jpg?width=100&height=100)
+* Meme Author: [Will-Of-D-3D2Y](https://www.reddit.com/user/Will-Of-D-3D2Y/)
 
 
 
