@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jf9fgmxttwub1.png?width=100&height=100)
-* Meme Author: [Former_Ladder9969](https://www.reddit.com/user/Former_Ladder9969/)
+![Funny Meme](https://i.redd.it/b308o117wwub1.jpg?width=100&height=100)
+* Meme Author: [Wild_Relation3742](https://www.reddit.com/user/Wild_Relation3742/)
 
 
 
