@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xpx2u92bbyub1.png?width=100&height=100)
-* Meme Author: [MattHuntDaug](https://www.reddit.com/user/MattHuntDaug/)
+![Funny Meme](https://i.redd.it/i40ui8m2gtub1.jpg?width=100&height=100)
+* Meme Author: [Enoughplez](https://www.reddit.com/user/Enoughplez/)
 
 
 
