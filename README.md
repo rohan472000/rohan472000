@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/stjydno3dvub1.jpg?width=100&height=100)
-* Meme Author: [musical-amara](https://www.reddit.com/user/musical-amara/)
+![Funny Meme](https://i.redd.it/1ylq1r4y9pub1.jpg?width=100&height=100)
+* Meme Author: [Mixer0001](https://www.reddit.com/user/Mixer0001/)
 
 
 
