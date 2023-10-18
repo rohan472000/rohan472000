@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e62t19mfktub1.png?width=100&height=100)
-* Meme Author: [FatalError418_](https://www.reddit.com/user/FatalError418_/)
+![Funny Meme](https://i.redd.it/94gq3dsi5tub1.jpg?width=100&height=100)
+* Meme Author: [LegoLeonidas](https://www.reddit.com/user/LegoLeonidas/)
 
 
 
