@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kqv39ct6l0vb1.jpg?width=100&height=100)
-* Meme Author: [nowadaysMaim47](https://www.reddit.com/user/nowadaysMaim47/)
+![Funny Meme](https://i.redd.it/y5zxitmmhzub1.jpg?width=100&height=100)
+* Meme Author: [bringmeturtles](https://www.reddit.com/user/bringmeturtles/)
 
 
 
