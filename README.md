@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vsmouahpztub1.jpg?width=100&height=100)
-* Meme Author: [PrettyCoolTim](https://www.reddit.com/user/PrettyCoolTim/)
+![Funny Meme](https://i.redd.it/4hwk1al5nyub1.jpg?width=100&height=100)
+* Meme Author: [RealMundiRiki](https://www.reddit.com/user/RealMundiRiki/)
 
 
 
