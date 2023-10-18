@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b308o117wwub1.jpg?width=100&height=100)
-* Meme Author: [Wild_Relation3742](https://www.reddit.com/user/Wild_Relation3742/)
+![Funny Meme](https://i.redd.it/9ip78z2rhzub1.jpg?width=100&height=100)
+* Meme Author: [Mymemesnogud12365478](https://www.reddit.com/user/Mymemesnogud12365478/)
 
 
 
