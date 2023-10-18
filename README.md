@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iqwmkmm96oub1.png?width=100&height=100)
-* Meme Author: [BooDestroyer](https://www.reddit.com/user/BooDestroyer/)
+![Funny Meme](https://i.redd.it/1ylq1r4y9pub1.jpg?width=100&height=100)
+* Meme Author: [Mixer0001](https://www.reddit.com/user/Mixer0001/)
 
 
 
