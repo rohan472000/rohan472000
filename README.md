@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/75zqegfza1vb1.png?width=100&height=100)
-* Meme Author: [I_have_20_characters](https://www.reddit.com/user/I_have_20_characters/)
+![Funny Meme](https://i.redd.it/wjmkvpeylxub1.png?width=100&height=100)
+* Meme Author: [TheObi-1](https://www.reddit.com/user/TheObi-1/)
 
 
 
