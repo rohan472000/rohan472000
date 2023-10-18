@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/37mln9emn0vb1.jpg?width=100&height=100)
-* Meme Author: [weev1](https://www.reddit.com/user/weev1/)
+![Funny Meme](https://i.redd.it/7mnvcbfxfzub1.jpg?width=100&height=100)
+* Meme Author: [Late_Bridge1668](https://www.reddit.com/user/Late_Bridge1668/)
 
 
 
