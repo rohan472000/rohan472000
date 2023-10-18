@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l813xpdijuub1.png?width=100&height=100)
-* Meme Author: [EpicBirdy2005](https://www.reddit.com/user/EpicBirdy2005/)
+![Funny Meme](https://i.redd.it/jf9fgmxttwub1.png?width=100&height=100)
+* Meme Author: [Former_Ladder9969](https://www.reddit.com/user/Former_Ladder9969/)
 
 
 
