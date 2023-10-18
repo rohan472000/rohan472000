@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fasac433q0vb1.jpg?width=100&height=100)
-* Meme Author: [memegod1918](https://www.reddit.com/user/memegod1918/)
+![Funny Meme](https://i.redd.it/kqv39ct6l0vb1.jpg?width=100&height=100)
+* Meme Author: [nowadaysMaim47](https://www.reddit.com/user/nowadaysMaim47/)
 
 
 
