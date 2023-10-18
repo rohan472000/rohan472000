@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kp50j7zeazub1.jpg?width=100&height=100)
-* Meme Author: [usuallyfaded44](https://www.reddit.com/user/usuallyfaded44/)
+![Funny Meme](https://i.redd.it/zo9a5b0gzzub1.jpg?width=100&height=100)
+* Meme Author: [haha_memur87](https://www.reddit.com/user/haha_memur87/)
 
 
 
