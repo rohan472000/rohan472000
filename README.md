@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7j0vpwl3ktub1.jpg?width=100&height=100)
-* Meme Author: [Blind_Melone](https://www.reddit.com/user/Blind_Melone/)
+![Funny Meme](https://i.redd.it/4gyudiit7uub1.png?width=100&height=100)
+* Meme Author: [kipaxbooks](https://www.reddit.com/user/kipaxbooks/)
 
 
 
