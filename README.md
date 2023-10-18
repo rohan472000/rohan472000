@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2cql2xgqnyub1.png?width=100&height=100)
-* Meme Author: [ShadowsofDakaron](https://www.reddit.com/user/ShadowsofDakaron/)
+![Funny Meme](https://i.redd.it/xpx2u92bbyub1.png?width=100&height=100)
+* Meme Author: [MattHuntDaug](https://www.reddit.com/user/MattHuntDaug/)
 
 
 
