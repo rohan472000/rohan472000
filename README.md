@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fp5dowid3sub1.jpg?width=100&height=100)
-* Meme Author: [hurtfulscaffold47](https://www.reddit.com/user/hurtfulscaffold47/)
+![Funny Meme](https://i.redd.it/wurvkqis4yub1.jpg?width=100&height=100)
+* Meme Author: [Extra-Lavishness-105](https://www.reddit.com/user/Extra-Lavishness-105/)
 
 
 
