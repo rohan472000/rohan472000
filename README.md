@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gwwtk54ivxub1.jpg?width=100&height=100)
-* Meme Author: [reversesentinel](https://www.reddit.com/user/reversesentinel/)
+![Funny Meme](https://i.redd.it/l813xpdijuub1.png?width=100&height=100)
+* Meme Author: [EpicBirdy2005](https://www.reddit.com/user/EpicBirdy2005/)
 
 
 
