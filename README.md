@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/trxz4ha7yrub1.jpg?width=100&height=100)
-* Meme Author: [MollyDooker99](https://www.reddit.com/user/MollyDooker99/)
+![Funny Meme](https://i.redd.it/v3to44qu8tub1.png?width=100&height=100)
+* Meme Author: [BlackAndProud343](https://www.reddit.com/user/BlackAndProud343/)
 
 
 
