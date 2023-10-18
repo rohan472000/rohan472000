@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fby7e8p3usub1.jpg?width=100&height=100)
-* Meme Author: [NinjaMaster231456](https://www.reddit.com/user/NinjaMaster231456/)
+![Funny Meme](https://i.redd.it/fp5dowid3sub1.jpg?width=100&height=100)
+* Meme Author: [hurtfulscaffold47](https://www.reddit.com/user/hurtfulscaffold47/)
 
 
 
