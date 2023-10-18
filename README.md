@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/71r6aj0dzjub1.jpg?width=100&height=100)
-* Meme Author: [iphone6_inmy_ass](https://www.reddit.com/user/iphone6_inmy_ass/)
+![Funny Meme](https://i.redd.it/pifjjjrd4xub1.jpg?width=100&height=100)
+* Meme Author: [Dfuhru22](https://www.reddit.com/user/Dfuhru22/)
 
 
 
