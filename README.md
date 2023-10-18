@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0dk49lukwuub1.jpg?width=100&height=100)
-* Meme Author: [slightly_lisdexic](https://www.reddit.com/user/slightly_lisdexic/)
+![Funny Meme](https://i.redd.it/kp50j7zeazub1.jpg?width=100&height=100)
+* Meme Author: [usuallyfaded44](https://www.reddit.com/user/usuallyfaded44/)
 
 
 
