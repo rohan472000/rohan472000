@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4gyudiit7uub1.png?width=100&height=100)
-* Meme Author: [kipaxbooks](https://www.reddit.com/user/kipaxbooks/)
+![Funny Meme](https://i.redd.it/ayht73d63yub1.jpg?width=100&height=100)
+* Meme Author: [Legitimate-Test-2377](https://www.reddit.com/user/Legitimate-Test-2377/)
 
 
 
