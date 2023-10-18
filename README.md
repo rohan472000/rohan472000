@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8afwtpbp9uub1.jpg?width=100&height=100)
-* Meme Author: [blong217](https://www.reddit.com/user/blong217/)
+![Funny Meme](https://i.redd.it/pifjjjrd4xub1.jpg?width=100&height=100)
+* Meme Author: [Dfuhru22](https://www.reddit.com/user/Dfuhru22/)
 
 
 
