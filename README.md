@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9ip78z2rhzub1.jpg?width=100&height=100)
-* Meme Author: [Mymemesnogud12365478](https://www.reddit.com/user/Mymemesnogud12365478/)
+![Funny Meme](https://i.redd.it/7j0vpwl3ktub1.jpg?width=100&height=100)
+* Meme Author: [Blind_Melone](https://www.reddit.com/user/Blind_Melone/)
 
 
 
