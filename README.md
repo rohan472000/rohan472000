@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ugc9k57sy0vb1.jpg?width=100&height=100)
-* Meme Author: [NinjaMaster231456](https://www.reddit.com/user/NinjaMaster231456/)
+![Funny Meme](https://i.redd.it/mk56cmles1vb1.jpg?width=100&height=100)
+* Meme Author: [hometreat586](https://www.reddit.com/user/hometreat586/)
 
 
 
