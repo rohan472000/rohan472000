@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2e44ughbrwub1.jpg?width=100&height=100)
-* Meme Author: [squishy-boi69](https://www.reddit.com/user/squishy-boi69/)
+![Funny Meme](https://i.redd.it/l3ezqhndczub1.jpg?width=100&height=100)
+* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
 
 
 
