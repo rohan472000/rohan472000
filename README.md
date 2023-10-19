@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ry04hqw990vb1.jpg?width=100&height=100)
-* Meme Author: [JurassicMarshmallow](https://www.reddit.com/user/JurassicMarshmallow/)
+![Funny Meme](https://i.redd.it/qfnhgcbu86vb1.jpg?width=100&height=100)
+* Meme Author: [galaxygamer2427](https://www.reddit.com/user/galaxygamer2427/)
 
 
 
