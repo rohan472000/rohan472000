@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oxe85etuq2vb1.jpg?width=100&height=100)
-* Meme Author: [Jackhammer9762](https://www.reddit.com/user/Jackhammer9762/)
+![Funny Meme](https://i.redd.it/xwif3aeow2vb1.jpg?width=100&height=100)
+* Meme Author: [jakebbeans](https://www.reddit.com/user/jakebbeans/)
 
 
 
