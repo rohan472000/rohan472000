@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w22xed2i23vb1.jpg?width=100&height=100)
-* Meme Author: [Bugtotes](https://www.reddit.com/user/Bugtotes/)
+![Funny Meme](https://i.redd.it/7vsk3kks46vb1.jpg?width=100&height=100)
+* Meme Author: [child-of-old-gods](https://www.reddit.com/user/child-of-old-gods/)
 
 
 
