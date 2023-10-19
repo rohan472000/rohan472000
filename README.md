@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1257s8rqr3vb1.png?width=100&height=100)
-* Meme Author: [thecringeshowaward](https://www.reddit.com/user/thecringeshowaward/)
+![Funny Meme](https://i.redd.it/w6csody9w0vb1.jpg?width=100&height=100)
+* Meme Author: [I_am_a_tomatoooo](https://www.reddit.com/user/I_am_a_tomatoooo/)
 
 
 
