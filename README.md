@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9ri8ma9xqvub1.jpg?width=100&height=100)
-* Meme Author: [Revolutinary_gamer_](https://www.reddit.com/user/Revolutinary_gamer_/)
+![Funny Meme](https://i.redd.it/qbh7hkxv4xub1.jpg?width=100&height=100)
+* Meme Author: [The5Theives](https://www.reddit.com/user/The5Theives/)
 
 
 
