@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j63o54negxub1.png?width=100&height=100)
-* Meme Author: [6spadestheman](https://www.reddit.com/user/6spadestheman/)
+![Funny Meme](https://i.redd.it/nr9hpjumg3vb1.jpg?width=100&height=100)
+* Meme Author: [DragonChasm](https://www.reddit.com/user/DragonChasm/)
 
 
 
