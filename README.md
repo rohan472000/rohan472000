@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tn4ybryr43vb1.jpg?width=100&height=100)
-* Meme Author: [OpportunityCareful75](https://www.reddit.com/user/OpportunityCareful75/)
+![Funny Meme](https://i.redd.it/tcffb9thh4vb1.jpg?width=100&height=100)
+* Meme Author: [ShiftLow](https://www.reddit.com/user/ShiftLow/)
 
 
 
