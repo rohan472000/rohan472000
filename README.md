@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdqi8debx2vb1.jpg?width=100&height=100)
-* Meme Author: [uddi999](https://www.reddit.com/user/uddi999/)
+![Funny Meme](https://i.redd.it/6ucudaeynxub1.jpg?width=100&height=100)
+* Meme Author: [Gabriel38](https://www.reddit.com/user/Gabriel38/)
 
 
 
