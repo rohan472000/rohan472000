@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/79onvbcapzub1.png?width=100&height=100)
-* Meme Author: [Mean_Amphibian1496](https://www.reddit.com/user/Mean_Amphibian1496/)
+![Funny Meme](https://i.redd.it/dusl9z24m1vb1.jpg?width=100&height=100)
+* Meme Author: [7empestOGT92](https://www.reddit.com/user/7empestOGT92/)
 
 
 
