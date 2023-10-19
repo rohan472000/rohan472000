@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/03yylaipgvub1.png?width=100&height=100)
-* Meme Author: [EmuPsychologist](https://www.reddit.com/user/EmuPsychologist/)
+![Funny Meme](https://i.redd.it/9ongj9h494vb1.jpg?width=100&height=100)
+* Meme Author: [parenthetical_phrase](https://www.reddit.com/user/parenthetical_phrase/)
 
 
 
