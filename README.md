@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0o7q40t351vb1.jpg?width=100&height=100)
-* Meme Author: [jodibwithoutane](https://www.reddit.com/user/jodibwithoutane/)
+![Funny Meme](https://i.redd.it/tpici781z0vb1.jpg?width=100&height=100)
+* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
 
 
 
