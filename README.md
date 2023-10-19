@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ub633yafc3vb1.png?width=100&height=100)
-* Meme Author: [Nodlax](https://www.reddit.com/user/Nodlax/)
+![Funny Meme](https://i.redd.it/cgbrghfyc1vb1.jpg?width=100&height=100)
+* Meme Author: [Mattistuta88](https://www.reddit.com/user/Mattistuta88/)
 
 
 
