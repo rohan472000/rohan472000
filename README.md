@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/klc5jatwg4vb1.png?width=100&height=100)
-* Meme Author: [Speedybolts](https://www.reddit.com/user/Speedybolts/)
+![Funny Meme](https://i.redd.it/h1duqnard0vb1.jpg?width=100&height=100)
+* Meme Author: [Sharkfeet19](https://www.reddit.com/user/Sharkfeet19/)
 
 
 
