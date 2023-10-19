@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hjzl036kq1vb1.jpg?width=100&height=100)
-* Meme Author: [stuftaminals](https://www.reddit.com/user/stuftaminals/)
+![Funny Meme](https://i.redd.it/zvxrtli8cwub1.png?width=100&height=100)
+* Meme Author: [Imrustyokay](https://www.reddit.com/user/Imrustyokay/)
 
 
 
