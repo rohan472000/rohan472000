@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tcffb9thh4vb1.jpg?width=100&height=100)
-* Meme Author: [ShiftLow](https://www.reddit.com/user/ShiftLow/)
+![Funny Meme](https://i.redd.it/u9iaalz29zub1.png?width=100&height=100)
+* Meme Author: [Boredguy532](https://www.reddit.com/user/Boredguy532/)
 
 
 
