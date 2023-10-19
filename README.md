@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4lrlob56q1vb1.png?width=100&height=100)
-* Meme Author: [CanadianAndroid](https://www.reddit.com/user/CanadianAndroid/)
+![Funny Meme](https://i.redd.it/nd1lmp5vp5vb1.jpg?width=100&height=100)
+* Meme Author: [Holofan4life](https://www.reddit.com/user/Holofan4life/)
 
 
 
