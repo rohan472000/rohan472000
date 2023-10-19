@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m1i3se9e12vb1.jpg?width=100&height=100)
-* Meme Author: [ShittyDs3player](https://www.reddit.com/user/ShittyDs3player/)
+![Funny Meme](https://i.redd.it/p3eo836to0vb1.jpg?width=100&height=100)
+* Meme Author: [Noobosoaruslive](https://www.reddit.com/user/Noobosoaruslive/)
 
 
 
