@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tpici781z0vb1.jpg?width=100&height=100)
-* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
+![Funny Meme](https://i.redd.it/109yxmncjtub1.jpg?width=100&height=100)
+* Meme Author: [Twentynine4](https://www.reddit.com/user/Twentynine4/)
 
 
 
