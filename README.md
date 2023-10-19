@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3yumhfik38vb1.jpg?width=100&height=100)
-* Meme Author: [Yo-boy-Jimmy](https://www.reddit.com/user/Yo-boy-Jimmy/)
+![Funny Meme](https://i.redd.it/w22xed2i23vb1.jpg?width=100&height=100)
+* Meme Author: [Bugtotes](https://www.reddit.com/user/Bugtotes/)
 
 
 
