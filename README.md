@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1gq7tpb2o3vb1.jpg?width=100&height=100)
-* Meme Author: [Acledent_Gg](https://www.reddit.com/user/Acledent_Gg/)
+![Funny Meme](https://i.redd.it/bdaogs8juzub1.png?width=100&height=100)
+* Meme Author: [Convert3d](https://www.reddit.com/user/Convert3d/)
 
 
 
