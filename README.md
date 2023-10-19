@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qnahcijm1zub1.jpg?width=100&height=100)
-* Meme Author: [yubanhmi](https://www.reddit.com/user/yubanhmi/)
+![Funny Meme](https://i.redd.it/dsdhojj2nxub1.png?width=100&height=100)
+* Meme Author: [SecretSpectre4](https://www.reddit.com/user/SecretSpectre4/)
 
 
 
