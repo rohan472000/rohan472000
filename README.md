@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7is0u79e07vb1.png?width=100&height=100)
-* Meme Author: [kiotohazamaroo](https://www.reddit.com/user/kiotohazamaroo/)
+![Funny Meme](https://i.redd.it/3yumhfik38vb1.jpg?width=100&height=100)
+* Meme Author: [Yo-boy-Jimmy](https://www.reddit.com/user/Yo-boy-Jimmy/)
 
 
 
