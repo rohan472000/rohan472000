@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/plo00n7r16vb1.png?width=100&height=100)
-* Meme Author: [DeezNutsKEKW](https://www.reddit.com/user/DeezNutsKEKW/)
+![Funny Meme](https://i.redd.it/fnkd4xzel5vb1.jpg?width=100&height=100)
+* Meme Author: [DarkSunglassess](https://www.reddit.com/user/DarkSunglassess/)
 
 
 
