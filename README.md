@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bdaogs8juzub1.png?width=100&height=100)
-* Meme Author: [Convert3d](https://www.reddit.com/user/Convert3d/)
+![Funny Meme](https://i.redd.it/qkh2s0rm42vb1.jpg?width=100&height=100)
+* Meme Author: [KingofBalaks](https://www.reddit.com/user/KingofBalaks/)
 
 
 
