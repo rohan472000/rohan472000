@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v5mlybxxuvub1.jpg?width=100&height=100)
-* Meme Author: [BloodEclipse27](https://www.reddit.com/user/BloodEclipse27/)
+![Funny Meme](https://i.redd.it/2znaam0h45vb1.jpg?width=100&height=100)
+* Meme Author: [LycanVan](https://www.reddit.com/user/LycanVan/)
 
 
 
