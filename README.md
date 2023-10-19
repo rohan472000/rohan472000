@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mmoflg73d3vb1.jpg?width=100&height=100)
-* Meme Author: [corruptedcurrency](https://www.reddit.com/user/corruptedcurrency/)
+![Funny Meme](https://i.redd.it/0u7h2wpoq5vb1.png?width=100&height=100)
+* Meme Author: [KubaSamuel](https://www.reddit.com/user/KubaSamuel/)
 
 
 
