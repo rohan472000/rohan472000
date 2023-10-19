@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f67siwzbx2vb1.jpg?width=100&height=100)
-* Meme Author: [Cokacondaa](https://www.reddit.com/user/Cokacondaa/)
+![Funny Meme](https://i.redd.it/2e44ughbrwub1.jpg?width=100&height=100)
+* Meme Author: [squishy-boi69](https://www.reddit.com/user/squishy-boi69/)
 
 
 
