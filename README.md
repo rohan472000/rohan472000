@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mfojdlj0zsub1.jpg?width=100&height=100)
-* Meme Author: [Aqn95](https://www.reddit.com/user/Aqn95/)
+![Funny Meme](https://i.redd.it/c870vzedj0vb1.jpg?width=100&height=100)
+* Meme Author: [BigBlueMountainStar](https://www.reddit.com/user/BigBlueMountainStar/)
 
 
 
