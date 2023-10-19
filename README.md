@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w8ajzurwpwub1.jpg?width=100&height=100)
-* Meme Author: [flamefreeze_YT](https://www.reddit.com/user/flamefreeze_YT/)
+![Funny Meme](https://i.redd.it/cw49vs5mp0vb1.jpg?width=100&height=100)
+* Meme Author: [calcobrena](https://www.reddit.com/user/calcobrena/)
 
 
 
