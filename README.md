@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z7zhah5y03vb1.png?width=100&height=100)
-* Meme Author: [PokoWeebo23](https://www.reddit.com/user/PokoWeebo23/)
+![Funny Meme](https://i.redd.it/w8ajzurwpwub1.jpg?width=100&height=100)
+* Meme Author: [flamefreeze_YT](https://www.reddit.com/user/flamefreeze_YT/)
 
 
 
