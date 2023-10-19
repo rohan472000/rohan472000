@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cgbrghfyc1vb1.jpg?width=100&height=100)
-* Meme Author: [Mattistuta88](https://www.reddit.com/user/Mattistuta88/)
+![Funny Meme](https://i.redd.it/4lrlob56q1vb1.png?width=100&height=100)
+* Meme Author: [CanadianAndroid](https://www.reddit.com/user/CanadianAndroid/)
 
 
 
