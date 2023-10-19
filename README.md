@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fnkd4xzel5vb1.jpg?width=100&height=100)
-* Meme Author: [DarkSunglassess](https://www.reddit.com/user/DarkSunglassess/)
+![Funny Meme](https://i.redd.it/udr8tpuxp6vb1.jpg?width=100&height=100)
+* Meme Author: [josephkeen66](https://www.reddit.com/user/josephkeen66/)
 
 
 
