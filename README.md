@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w6csody9w0vb1.jpg?width=100&height=100)
-* Meme Author: [I_am_a_tomatoooo](https://www.reddit.com/user/I_am_a_tomatoooo/)
+![Funny Meme](https://i.redd.it/m1i3se9e12vb1.jpg?width=100&height=100)
+* Meme Author: [ShittyDs3player](https://www.reddit.com/user/ShittyDs3player/)
 
 
 
