@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gsa6852tbtub1.jpg?width=100&height=100)
-* Meme Author: [TheJewishViking1064](https://www.reddit.com/user/TheJewishViking1064/)
+![Funny Meme](https://i.redd.it/ijtw0r3bj6vb1.jpg?width=100&height=100)
+* Meme Author: [child-of-old-gods](https://www.reddit.com/user/child-of-old-gods/)
 
 
 
