@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ncabonuhkwub1.jpg?width=100&height=100)
-* Meme Author: [ArtemisTorix](https://www.reddit.com/user/ArtemisTorix/)
+![Funny Meme](https://i.redd.it/a2lk3aj1bzub1.jpg?width=100&height=100)
+* Meme Author: [thexbeatboxer](https://www.reddit.com/user/thexbeatboxer/)
 
 
 
