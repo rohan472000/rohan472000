@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0u7h2wpoq5vb1.png?width=100&height=100)
-* Meme Author: [KubaSamuel](https://www.reddit.com/user/KubaSamuel/)
+![Funny Meme](https://i.redd.it/u07vpwn6g3vb1.jpg?width=100&height=100)
+* Meme Author: [Professional_Hashira](https://www.reddit.com/user/Professional_Hashira/)
 
 
 
