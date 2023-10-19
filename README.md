@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gs6p4v0c9zub1.jpg?width=100&height=100)
-* Meme Author: [Boogary](https://www.reddit.com/user/Boogary/)
+![Funny Meme](https://i.redd.it/0o7q40t351vb1.jpg?width=100&height=100)
+* Meme Author: [jodibwithoutane](https://www.reddit.com/user/jodibwithoutane/)
 
 
 
