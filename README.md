@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6ucudaeynxub1.jpg?width=100&height=100)
-* Meme Author: [Gabriel38](https://www.reddit.com/user/Gabriel38/)
+![Funny Meme](https://i.redd.it/f67siwzbx2vb1.jpg?width=100&height=100)
+* Meme Author: [Cokacondaa](https://www.reddit.com/user/Cokacondaa/)
 
 
 
