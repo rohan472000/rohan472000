@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d43ucd5il5vb1.jpg?width=100&height=100)
-* Meme Author: [Flekkenz_](https://www.reddit.com/user/Flekkenz_/)
+![Funny Meme](https://i.redd.it/i6p0iv9jl3vb1.jpg?width=100&height=100)
+* Meme Author: [myvortexlife](https://www.reddit.com/user/myvortexlife/)
 
 
 
