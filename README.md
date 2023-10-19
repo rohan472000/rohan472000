@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qbh7hkxv4xub1.jpg?width=100&height=100)
-* Meme Author: [The5Theives](https://www.reddit.com/user/The5Theives/)
+![Funny Meme](https://i.redd.it/bdaogs8juzub1.png?width=100&height=100)
+* Meme Author: [Convert3d](https://www.reddit.com/user/Convert3d/)
 
 
 
