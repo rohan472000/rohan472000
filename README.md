@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fzot7pwr9bvb1.jpg?width=100&height=100)
-* Meme Author: [Avoxicia](https://www.reddit.com/user/Avoxicia/)
+![Funny Meme](https://i.redd.it/xubuagrlqbvb1.jpg?width=100&height=100)
+* Meme Author: [trollsenpai](https://www.reddit.com/user/trollsenpai/)
 
 
 
