@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kz8dwi5c2avb1.jpg?width=100&height=100)
-* Meme Author: [Ghost-of-melbourne](https://www.reddit.com/user/Ghost-of-melbourne/)
+![Funny Meme](https://i.redd.it/44w0snyo1gvb1.png?width=100&height=100)
+* Meme Author: [No-Pomegranate-69](https://www.reddit.com/user/No-Pomegranate-69/)
 
 
 
