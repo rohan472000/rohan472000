@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1blfjdxp35vb1.jpg?width=100&height=100)
-* Meme Author: [light7me](https://www.reddit.com/user/light7me/)
+![Funny Meme](https://i.redd.it/zfmjhw1xi5vb1.jpg?width=100&height=100)
+* Meme Author: [BillBT](https://www.reddit.com/user/BillBT/)
 
 
 
