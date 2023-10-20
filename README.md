@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1mwamwzj0dvb1.png?width=100&height=100)
-* Meme Author: [Reasonable-You4548](https://www.reddit.com/user/Reasonable-You4548/)
+![Funny Meme](https://i.redd.it/q1gdnue5t6vb1.jpg?width=100&height=100)
+* Meme Author: [Vexfreeze](https://www.reddit.com/user/Vexfreeze/)
 
 
 
