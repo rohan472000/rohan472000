@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4alubym3vcvb1.png?width=100&height=100)
-* Meme Author: [Farranor](https://www.reddit.com/user/Farranor/)
+![Funny Meme](https://i.redd.it/rlsptqsrp7vb1.png?width=100&height=100)
+* Meme Author: [LukaMilic98](https://www.reddit.com/user/LukaMilic98/)
 
 
 
