@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xubuagrlqbvb1.jpg?width=100&height=100)
-* Meme Author: [trollsenpai](https://www.reddit.com/user/trollsenpai/)
+![Funny Meme](https://i.redd.it/kz8dwi5c2avb1.jpg?width=100&height=100)
+* Meme Author: [Ghost-of-melbourne](https://www.reddit.com/user/Ghost-of-melbourne/)
 
 
 
