@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wtu5caiivavb1.png?width=100&height=100)
-* Meme Author: [misteryester88](https://www.reddit.com/user/misteryester88/)
+![Funny Meme](https://i.redd.it/e9sqzgjgx7vb1.jpg?width=100&height=100)
+* Meme Author: [teleporterdown](https://www.reddit.com/user/teleporterdown/)
 
 
 
