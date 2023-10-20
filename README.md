@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2col8tq5x7vb1.jpg?width=100&height=100)
-* Meme Author: [SullyPatel](https://www.reddit.com/user/SullyPatel/)
+![Funny Meme](https://i.redd.it/2n6ny486l9vb1.jpg?width=100&height=100)
+* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
 
 
 
