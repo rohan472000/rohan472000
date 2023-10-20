@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uzpfswhww9vb1.jpg?width=100&height=100)
-* Meme Author: [Therenegadegamer](https://www.reddit.com/user/Therenegadegamer/)
+![Funny Meme](https://i.redd.it/0ttxxgm7u4vb1.png?width=100&height=100)
+* Meme Author: [Meaglo](https://www.reddit.com/user/Meaglo/)
 
 
 
