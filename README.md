@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e9sqzgjgx7vb1.jpg?width=100&height=100)
-* Meme Author: [teleporterdown](https://www.reddit.com/user/teleporterdown/)
+![Funny Meme](https://i.redd.it/mdsio8wh27vb1.jpg?width=100&height=100)
+* Meme Author: [SlamDunkCactus](https://www.reddit.com/user/SlamDunkCactus/)
 
 
 
