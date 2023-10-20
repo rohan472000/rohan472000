@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ehxu7rapc6vb1.jpg?width=100&height=100)
-* Meme Author: [maestrozeldafan](https://www.reddit.com/user/maestrozeldafan/)
+![Funny Meme](https://i.redd.it/euztbl4ot7vb1.jpg?width=100&height=100)
+* Meme Author: [Remote_Worldliness66](https://www.reddit.com/user/Remote_Worldliness66/)
 
 
 
