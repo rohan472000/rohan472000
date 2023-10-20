@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x27qfp5veevb1.jpg?width=100&height=100)
-* Meme Author: [Kale_Brecht](https://www.reddit.com/user/Kale_Brecht/)
+![Funny Meme](https://i.redd.it/ou00iizswbvb1.jpg?width=100&height=100)
+* Meme Author: [JohannesJoshua](https://www.reddit.com/user/JohannesJoshua/)
 
 
 
