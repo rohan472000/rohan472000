@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ab1np1y26bvb1.png?width=100&height=100)
-* Meme Author: [TylerNelsonYT](https://www.reddit.com/user/TylerNelsonYT/)
+![Funny Meme](https://i.redd.it/ifdxx1enm8vb1.jpg?width=100&height=100)
+* Meme Author: [kibazatzue](https://www.reddit.com/user/kibazatzue/)
 
 
 
