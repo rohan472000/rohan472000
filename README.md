@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7z9sktavy6vb1.png?width=100&height=100)
-* Meme Author: [pwrwq](https://www.reddit.com/user/pwrwq/)
+![Funny Meme](https://i.redd.it/fxkw7z4hi6vb1.png?width=100&height=100)
+* Meme Author: [QuaintSir](https://www.reddit.com/user/QuaintSir/)
 
 
 
