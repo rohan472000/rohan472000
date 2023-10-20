@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ztlxlmaynavb1.png?width=100&height=100)
-* Meme Author: [TheWebsploiter](https://www.reddit.com/user/TheWebsploiter/)
+![Funny Meme](https://i.redd.it/8ctezuczldvb1.jpg?width=100&height=100)
+* Meme Author: [swissco](https://www.reddit.com/user/swissco/)
 
 
 
