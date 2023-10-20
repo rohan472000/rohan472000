@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ifdxx1enm8vb1.jpg?width=100&height=100)
-* Meme Author: [kibazatzue](https://www.reddit.com/user/kibazatzue/)
+![Funny Meme](https://i.redd.it/mdsio8wh27vb1.jpg?width=100&height=100)
+* Meme Author: [SlamDunkCactus](https://www.reddit.com/user/SlamDunkCactus/)
 
 
 
