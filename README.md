@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7n94dee5hevb1.jpg?width=100&height=100)
-* Meme Author: [low_budget_trash](https://www.reddit.com/user/low_budget_trash/)
+![Funny Meme](https://i.redd.it/533acmxlb7vb1.jpg?width=100&height=100)
+* Meme Author: [H_G_Bells](https://www.reddit.com/user/H_G_Bells/)
 
 
 
