@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/br7vkdp8z1vb1.jpg?width=100&height=100)
-* Meme Author: [Williwoo321](https://www.reddit.com/user/Williwoo321/)
+![Funny Meme](https://i.redd.it/qbgb0gq4e6vb1.png?width=100&height=100)
+* Meme Author: [SuperSonicSaiyanZA3](https://www.reddit.com/user/SuperSonicSaiyanZA3/)
 
 
 
