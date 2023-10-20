@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/egblyb66b7vb1.jpg?width=100&height=100)
-* Meme Author: [Content_Dragonfly_53](https://www.reddit.com/user/Content_Dragonfly_53/)
+![Funny Meme](https://i.redd.it/5saf4qgql6vb1.jpg?width=100&height=100)
+* Meme Author: [RichMarkleyDotCom](https://www.reddit.com/user/RichMarkleyDotCom/)
 
 
 
