@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ndkkzhu2tavb1.png?width=100&height=100)
-* Meme Author: [ImmortalWasFound](https://www.reddit.com/user/ImmortalWasFound/)
+![Funny Meme](https://i.redd.it/rlsptqsrp7vb1.png?width=100&height=100)
+* Meme Author: [LukaMilic98](https://www.reddit.com/user/LukaMilic98/)
 
 
 
