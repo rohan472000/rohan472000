@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z5h8hz7u68vb1.png?width=100&height=100)
-* Meme Author: [Malkovitch42](https://www.reddit.com/user/Malkovitch42/)
+![Funny Meme](https://i.redd.it/vojsfjv4ecvb1.jpg?width=100&height=100)
+* Meme Author: [PetyrDayne](https://www.reddit.com/user/PetyrDayne/)
 
 
 
