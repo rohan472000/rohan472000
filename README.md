@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nqd1nskn3cvb1.jpg?width=100&height=100)
-* Meme Author: [UnwantedJason](https://www.reddit.com/user/UnwantedJason/)
+![Funny Meme](https://i.redd.it/utusa01f0evb1.png?width=100&height=100)
+* Meme Author: [Dokayn](https://www.reddit.com/user/Dokayn/)
 
 
 
