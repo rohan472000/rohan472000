@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dg7gx8111bvb1.png?width=100&height=100)
-* Meme Author: [PlayGuye_aka_Evolt](https://www.reddit.com/user/PlayGuye_aka_Evolt/)
+![Funny Meme](https://i.redd.it/egblyb66b7vb1.jpg?width=100&height=100)
+* Meme Author: [Content_Dragonfly_53](https://www.reddit.com/user/Content_Dragonfly_53/)
 
 
 
