@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7erjkk4qm9vb1.jpg?width=100&height=100)
-* Meme Author: [brettsantacona](https://www.reddit.com/user/brettsantacona/)
+![Funny Meme](https://i.redd.it/xq8a2c3ky6vb1.jpg?width=100&height=100)
+* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
 
 
 
