@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1p5q4o3kn5vb1.jpg?width=100&height=100)
-* Meme Author: [Bass_slapper_](https://www.reddit.com/user/Bass_slapper_/)
+![Funny Meme](https://i.redd.it/vy823nvpndvb1.jpg?width=100&height=100)
+* Meme Author: [fullmetalmerlin](https://www.reddit.com/user/fullmetalmerlin/)
 
 
 
