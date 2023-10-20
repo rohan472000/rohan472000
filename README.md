@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pggxyob8h9vb1.jpg?width=100&height=100)
-* Meme Author: [aceoftrachs](https://www.reddit.com/user/aceoftrachs/)
+![Funny Meme](https://i.redd.it/rad2zots46vb1.jpg?width=100&height=100)
+* Meme Author: [NietzscheIsMyCopilot](https://www.reddit.com/user/NietzscheIsMyCopilot/)
 
 
 
