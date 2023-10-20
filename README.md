@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/71126sc6n6vb1.jpg?width=100&height=100)
-* Meme Author: [Wolf-424](https://www.reddit.com/user/Wolf-424/)
+![Funny Meme](https://i.redd.it/aq7bhcby5avb1.jpg?width=100&height=100)
+* Meme Author: [Previous_Insurance13](https://www.reddit.com/user/Previous_Insurance13/)
 
 
 
