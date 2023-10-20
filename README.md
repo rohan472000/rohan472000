@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hg60qvsaz8vb1.jpg?width=100&height=100)
-* Meme Author: [IcameInDadsCoffee](https://www.reddit.com/user/IcameInDadsCoffee/)
+![Funny Meme](https://i.redd.it/ehxu7rapc6vb1.jpg?width=100&height=100)
+* Meme Author: [maestrozeldafan](https://www.reddit.com/user/maestrozeldafan/)
 
 
 
