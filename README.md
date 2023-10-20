@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/spt8ewdpv6vb1.png?width=100&height=100)
-* Meme Author: [honda_civic_1993](https://www.reddit.com/user/honda_civic_1993/)
+![Funny Meme](https://i.redd.it/2c5hqu84acvb1.png?width=100&height=100)
+* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
 
 
 
