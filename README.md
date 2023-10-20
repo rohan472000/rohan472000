@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vy823nvpndvb1.jpg?width=100&height=100)
-* Meme Author: [fullmetalmerlin](https://www.reddit.com/user/fullmetalmerlin/)
+![Funny Meme](https://i.redd.it/fzot7pwr9bvb1.jpg?width=100&height=100)
+* Meme Author: [Avoxicia](https://www.reddit.com/user/Avoxicia/)
 
 
 
