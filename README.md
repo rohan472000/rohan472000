@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z04jr5gew7vb1.jpg?width=100&height=100)
-* Meme Author: [LoveThieves](https://www.reddit.com/user/LoveThieves/)
+![Funny Meme](https://i.redd.it/p3qyv7ft2cvb1.jpg?width=100&height=100)
+* Meme Author: [cenkozan](https://www.reddit.com/user/cenkozan/)
 
 
 
