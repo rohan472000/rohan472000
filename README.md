@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aq7bhcby5avb1.jpg?width=100&height=100)
-* Meme Author: [Previous_Insurance13](https://www.reddit.com/user/Previous_Insurance13/)
+![Funny Meme](https://i.redd.it/dqlt1ydkn9vb1.jpg?width=100&height=100)
+* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
 
 
 
