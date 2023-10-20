@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qbgb0gq4e6vb1.png?width=100&height=100)
-* Meme Author: [SuperSonicSaiyanZA3](https://www.reddit.com/user/SuperSonicSaiyanZA3/)
+![Funny Meme](https://i.redd.it/i71f4exxc7vb1.png?width=100&height=100)
+* Meme Author: [AutomatedSausage](https://www.reddit.com/user/AutomatedSausage/)
 
 
 
