@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q1gdnue5t6vb1.jpg?width=100&height=100)
-* Meme Author: [Vexfreeze](https://www.reddit.com/user/Vexfreeze/)
+![Funny Meme](https://i.redd.it/n1i4joif69vb1.jpg?width=100&height=100)
+* Meme Author: [SharkSapphire](https://www.reddit.com/user/SharkSapphire/)
 
 
 
