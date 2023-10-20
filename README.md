@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oyey42hhgavb1.jpg?width=100&height=100)
-* Meme Author: [xXTheFETTXx](https://www.reddit.com/user/xXTheFETTXx/)
+![Funny Meme](https://i.redd.it/br7vkdp8z1vb1.jpg?width=100&height=100)
+* Meme Author: [Williwoo321](https://www.reddit.com/user/Williwoo321/)
 
 
 
