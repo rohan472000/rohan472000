@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p3qyv7ft2cvb1.jpg?width=100&height=100)
-* Meme Author: [cenkozan](https://www.reddit.com/user/cenkozan/)
+![Funny Meme](https://i.redd.it/o39ib5a6rcvb1.jpg?width=100&height=100)
+* Meme Author: [That_Mysterious_Frog](https://www.reddit.com/user/That_Mysterious_Frog/)
 
 
 
