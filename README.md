@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5ilueebq27vb1.png?width=100&height=100)
-* Meme Author: [AutomatedSausage](https://www.reddit.com/user/AutomatedSausage/)
+![Funny Meme](https://i.redd.it/8bkuqqi3u4vb1.png?width=100&height=100)
+* Meme Author: [StamCuriousGuy](https://www.reddit.com/user/StamCuriousGuy/)
 
 
 
