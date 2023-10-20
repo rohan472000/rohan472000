@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/533acmxlb7vb1.jpg?width=100&height=100)
-* Meme Author: [H_G_Bells](https://www.reddit.com/user/H_G_Bells/)
+![Funny Meme](https://i.redd.it/pfy6411l9evb1.png?width=100&height=100)
+* Meme Author: [yeaalright](https://www.reddit.com/user/yeaalright/)
 
 
 
