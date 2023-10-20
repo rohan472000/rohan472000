@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e9drzpx3v8vb1.jpg?width=100&height=100)
-* Meme Author: [Imaykeepthisone](https://www.reddit.com/user/Imaykeepthisone/)
+![Funny Meme](https://i.redd.it/1blfjdxp35vb1.jpg?width=100&height=100)
+* Meme Author: [light7me](https://www.reddit.com/user/light7me/)
 
 
 
