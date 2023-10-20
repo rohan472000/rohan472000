@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yafizz96nbvb1.jpg?width=100&height=100)
-* Meme Author: [Accomplished-Order97](https://www.reddit.com/user/Accomplished-Order97/)
+![Funny Meme](https://i.redd.it/hw6mvv26navb1.jpg?width=100&height=100)
+* Meme Author: [Actually-a-name](https://www.reddit.com/user/Actually-a-name/)
 
 
 
