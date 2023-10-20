@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/44w0snyo1gvb1.png?width=100&height=100)
-* Meme Author: [No-Pomegranate-69](https://www.reddit.com/user/No-Pomegranate-69/)
+![Funny Meme](https://i.redd.it/le9lre2rhdvb1.jpg?width=100&height=100)
+* Meme Author: [Imaykeepthisone](https://www.reddit.com/user/Imaykeepthisone/)
 
 
 
