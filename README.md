@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kvchsfeze8vb1.jpg?width=100&height=100)
-* Meme Author: [xt0s](https://www.reddit.com/user/xt0s/)
+![Funny Meme](https://i.redd.it/j3woqem9ubvb1.jpg?width=100&height=100)
+* Meme Author: [Educated_Memories](https://www.reddit.com/user/Educated_Memories/)
 
 
 
