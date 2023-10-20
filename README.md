@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hz998iaqx6vb1.jpg?width=100&height=100)
-* Meme Author: [toroizamaz](https://www.reddit.com/user/toroizamaz/)
+![Funny Meme](https://i.redd.it/yngn2pfhj7vb1.jpg?width=100&height=100)
+* Meme Author: [alancarroII](https://www.reddit.com/user/alancarroII/)
 
 
 
