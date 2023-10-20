@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hw6mvv26navb1.jpg?width=100&height=100)
-* Meme Author: [Actually-a-name](https://www.reddit.com/user/Actually-a-name/)
+![Funny Meme](https://i.redd.it/ifdxx1enm8vb1.jpg?width=100&height=100)
+* Meme Author: [kibazatzue](https://www.reddit.com/user/kibazatzue/)
 
 
 
