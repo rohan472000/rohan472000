@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bet6npkw05vb1.jpg?width=100&height=100)
-* Meme Author: [PalpitationOdd7107](https://www.reddit.com/user/PalpitationOdd7107/)
+![Funny Meme](https://i.redd.it/47u3hy6i18vb1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
