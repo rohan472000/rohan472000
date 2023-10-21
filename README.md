@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rfh5geurxfvb1.jpg?width=100&height=100)
-* Meme Author: [MTF_DELTA-3](https://www.reddit.com/user/MTF_DELTA-3/)
+![Funny Meme](https://i.redd.it/zwcpv62mtgvb1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
