@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/racre79zqlvb1.png?width=100&height=100)
-* Meme Author: [TQCkona](https://www.reddit.com/user/TQCkona/)
+![Funny Meme](https://i.redd.it/02apyex3gkvb1.png?width=100&height=100)
+* Meme Author: [PeopleAreBozos](https://www.reddit.com/user/PeopleAreBozos/)
 
 
 
