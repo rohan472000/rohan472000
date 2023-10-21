@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/myxut950ahvb1.jpg?width=100&height=100)
-* Meme Author: [FourChordsOfPopPunk](https://www.reddit.com/user/FourChordsOfPopPunk/)
+![Funny Meme](https://i.redd.it/y1cia9vxafvb1.jpg?width=100&height=100)
+* Meme Author: [Humble-Error-5497](https://www.reddit.com/user/Humble-Error-5497/)
 
 
 
