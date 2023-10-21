@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lncltidqyavb1.jpg?width=100&height=100)
-* Meme Author: [Sneaky_bandit7](https://www.reddit.com/user/Sneaky_bandit7/)
+![Funny Meme](https://i.redd.it/xubuagrlqbvb1.jpg?width=100&height=100)
+* Meme Author: [trollsenpai](https://www.reddit.com/user/trollsenpai/)
 
 
 
