@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3sruqljawdvb1.png?width=100&height=100)
-* Meme Author: [Little_Esben](https://www.reddit.com/user/Little_Esben/)
+![Funny Meme](https://i.redd.it/nj9igbkhydvb1.png?width=100&height=100)
+* Meme Author: [Nevek_Green](https://www.reddit.com/user/Nevek_Green/)
 
 
 
