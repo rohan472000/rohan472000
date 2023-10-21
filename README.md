@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u31kj7sz5gvb1.jpg?width=100&height=100)
-* Meme Author: [JoshuaDudeman](https://www.reddit.com/user/JoshuaDudeman/)
+![Funny Meme](https://i.redd.it/6szwh40r6dvb1.jpg?width=100&height=100)
+* Meme Author: [xt0s](https://www.reddit.com/user/xt0s/)
 
 
 
