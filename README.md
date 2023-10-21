@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/718nbx6mmevb1.jpg?width=100&height=100)
-* Meme Author: [VisconitiKing](https://www.reddit.com/user/VisconitiKing/)
+![Funny Meme](https://i.redd.it/4l3dgtryblvb1.jpg?width=100&height=100)
+* Meme Author: [Cleowallday](https://www.reddit.com/user/Cleowallday/)
 
 
 
