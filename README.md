@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4td953q8e9vb1.jpg?width=100&height=100)
-* Meme Author: [BarreGerco1](https://www.reddit.com/user/BarreGerco1/)
+![Funny Meme](https://i.redd.it/r0hrczbjpfvb1.jpg?width=100&height=100)
+* Meme Author: [ChampionOfAzurewrath](https://www.reddit.com/user/ChampionOfAzurewrath/)
 
 
 
