@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hltjlh7ihjvb1.jpg?width=100&height=100)
-* Meme Author: [Successful-Seaweed12](https://www.reddit.com/user/Successful-Seaweed12/)
+![Funny Meme](https://i.redd.it/q5kmwha6cmvb1.png?width=100&height=100)
+* Meme Author: [polishminecraftpig](https://www.reddit.com/user/polishminecraftpig/)
 
 
 
