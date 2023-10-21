@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kupr1btpbbvb1.jpg?width=100&height=100)
-* Meme Author: [Adalf_Hotler69420](https://www.reddit.com/user/Adalf_Hotler69420/)
+![Funny Meme](https://i.redd.it/di2g8exncevb1.jpg?width=100&height=100)
+* Meme Author: [Ok-Fail-540](https://www.reddit.com/user/Ok-Fail-540/)
 
 
 
