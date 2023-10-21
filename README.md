@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uiuw4qtigjvb1.jpg?width=100&height=100)
-* Meme Author: [rxmce](https://www.reddit.com/user/rxmce/)
+![Funny Meme](https://i.redd.it/46xc79pg4kvb1.jpg?width=100&height=100)
+* Meme Author: [average_hooman-](https://www.reddit.com/user/average_hooman-/)
 
 
 
