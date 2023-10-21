@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0v5g19haeivb1.jpg?width=100&height=100)
-* Meme Author: [yours_dad_lesbian](https://www.reddit.com/user/yours_dad_lesbian/)
+![Funny Meme](https://i.redd.it/y757yv3nshvb1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
