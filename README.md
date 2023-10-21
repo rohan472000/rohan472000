@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wkuwfnxpufvb1.png?width=100&height=100)
-* Meme Author: [Spooderfan218](https://www.reddit.com/user/Spooderfan218/)
+![Funny Meme](https://i.redd.it/wh88e5fn8evb1.jpg?width=100&height=100)
+* Meme Author: [RichMarkleyDotCom](https://www.reddit.com/user/RichMarkleyDotCom/)
 
 
 
