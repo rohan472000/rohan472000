@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gka80xl1eevb1.jpg?width=100&height=100)
-* Meme Author: [TheLaw_Son](https://www.reddit.com/user/TheLaw_Son/)
+![Funny Meme](https://i.redd.it/q40jhdrjpfvb1.png?width=100&height=100)
+* Meme Author: [Abject_Advantage_274](https://www.reddit.com/user/Abject_Advantage_274/)
 
 
 
