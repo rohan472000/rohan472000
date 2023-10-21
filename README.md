@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7pca9ipd6dvb1.jpg?width=100&height=100)
-* Meme Author: [Repulsive-Neat6776](https://www.reddit.com/user/Repulsive-Neat6776/)
+![Funny Meme](https://i.redd.it/6cpjxlu48fvb1.jpg?width=100&height=100)
+* Meme Author: [NotUpInHurr](https://www.reddit.com/user/NotUpInHurr/)
 
 
 
