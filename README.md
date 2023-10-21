@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/85sa7l2rxlvb1.jpg?width=100&height=100)
-* Meme Author: [busterbrown78](https://www.reddit.com/user/busterbrown78/)
+![Funny Meme](https://i.redd.it/racre79zqlvb1.png?width=100&height=100)
+* Meme Author: [TQCkona](https://www.reddit.com/user/TQCkona/)
 
 
 
