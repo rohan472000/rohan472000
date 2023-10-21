@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lymz5lek7gvb1.jpg?width=100&height=100)
-* Meme Author: [AgoraSoul](https://www.reddit.com/user/AgoraSoul/)
+![Funny Meme](https://i.redd.it/u31kj7sz5gvb1.jpg?width=100&height=100)
+* Meme Author: [JoshuaDudeman](https://www.reddit.com/user/JoshuaDudeman/)
 
 
 
