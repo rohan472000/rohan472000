@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y1jrr5y5lkvb1.jpg?width=100&height=100)
-* Meme Author: [TheTruckingGod](https://www.reddit.com/user/TheTruckingGod/)
+![Funny Meme](https://i.redd.it/aszwv7k3jevb1.jpg?width=100&height=100)
+* Meme Author: [samihamchev](https://www.reddit.com/user/samihamchev/)
 
 
 
