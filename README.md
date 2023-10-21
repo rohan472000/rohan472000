@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vji2ccuxjgvb1.jpg?width=100&height=100)
-* Meme Author: [TurmaGW](https://www.reddit.com/user/TurmaGW/)
+![Funny Meme](https://i.redd.it/pfy6411l9evb1.png?width=100&height=100)
+* Meme Author: [yeaalright](https://www.reddit.com/user/yeaalright/)
 
 
 
