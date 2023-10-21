@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4ewo3x2fbcvb1.jpg?width=100&height=100)
-* Meme Author: [BrosephMcClean](https://www.reddit.com/user/BrosephMcClean/)
+![Funny Meme](https://i.redd.it/6cpjxlu48fvb1.jpg?width=100&height=100)
+* Meme Author: [NotUpInHurr](https://www.reddit.com/user/NotUpInHurr/)
 
 
 
