@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/81df602p8dvb1.jpg?width=100&height=100)
-* Meme Author: [TryingToFindThePeace](https://www.reddit.com/user/TryingToFindThePeace/)
+![Funny Meme](https://i.redd.it/cbviopznd8vb1.jpg?width=100&height=100)
+* Meme Author: [Bravelybelieve](https://www.reddit.com/user/Bravelybelieve/)
 
 
 
