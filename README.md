@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h2f2ml1nafvb1.jpg?width=100&height=100)
-* Meme Author: [Iginlas_4head_Crease](https://www.reddit.com/user/Iginlas_4head_Crease/)
+![Funny Meme](https://i.redd.it/ou00iizswbvb1.jpg?width=100&height=100)
+* Meme Author: [JohannesJoshua](https://www.reddit.com/user/JohannesJoshua/)
 
 
 
