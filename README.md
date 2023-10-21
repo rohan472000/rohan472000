@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lxtufwoobkvb1.jpg?width=100&height=100)
-* Meme Author: [Icemogianst](https://www.reddit.com/user/Icemogianst/)
+![Funny Meme](https://i.redd.it/daqojkol0gvb1.jpg?width=100&height=100)
+* Meme Author: [adamosity1](https://www.reddit.com/user/adamosity1/)
 
 
 
