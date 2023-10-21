@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5gjs6v5s9hvb1.jpg?width=100&height=100)
-* Meme Author: [testholderplace](https://www.reddit.com/user/testholderplace/)
+![Funny Meme](https://i.redd.it/3sruqljawdvb1.png?width=100&height=100)
+* Meme Author: [Little_Esben](https://www.reddit.com/user/Little_Esben/)
 
 
 
