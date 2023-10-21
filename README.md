@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qcybjyxs6kvb1.png?width=100&height=100)
-* Meme Author: [yandere078](https://www.reddit.com/user/yandere078/)
+![Funny Meme](https://i.redd.it/3sruqljawdvb1.png?width=100&height=100)
+* Meme Author: [Little_Esben](https://www.reddit.com/user/Little_Esben/)
 
 
 
