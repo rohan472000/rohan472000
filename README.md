@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lykb7iopfhvb1.jpg?width=100&height=100)
-* Meme Author: [DrewsPops](https://www.reddit.com/user/DrewsPops/)
+![Funny Meme](https://i.redd.it/racre79zqlvb1.png?width=100&height=100)
+* Meme Author: [TQCkona](https://www.reddit.com/user/TQCkona/)
 
 
 
