@@ -1,5 +1,5 @@
-![Funny Meme](https://imgur.com/5gKR01c.png?width=100&height=100)
-* Meme Author: [thinkingprettyhard](https://www.reddit.com/user/thinkingprettyhard/)
+![Funny Meme](https://i.redd.it/5lbo5qfwrfvb1.jpg?width=100&height=100)
+* Meme Author: [nadiascorpioxx](https://www.reddit.com/user/nadiascorpioxx/)
 
 
 
