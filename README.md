@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/635gdelpm8vb1.png?width=100&height=100)
-* Meme Author: [PixieJinxxx](https://www.reddit.com/user/PixieJinxxx/)
+![Funny Meme](https://i.redd.it/6cpjxlu48fvb1.jpg?width=100&height=100)
+* Meme Author: [NotUpInHurr](https://www.reddit.com/user/NotUpInHurr/)
 
 
 
