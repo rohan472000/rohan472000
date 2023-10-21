@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sm8670pzjgvb1.jpg?width=100&height=100)
-* Meme Author: [Available_Reason7795](https://www.reddit.com/user/Available_Reason7795/)
+![Funny Meme](https://i.redd.it/zjxnrv8o3evb1.jpg?width=100&height=100)
+* Meme Author: [Miserable-Ad-6943](https://www.reddit.com/user/Miserable-Ad-6943/)
 
 
 
