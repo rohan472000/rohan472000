@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/omwap60kmdvb1.jpg?width=100&height=100)
-* Meme Author: [Zestyclose_Bank5110](https://www.reddit.com/user/Zestyclose_Bank5110/)
+![Funny Meme](https://i.redd.it/wao0zpi8qfvb1.png?width=100&height=100)
+* Meme Author: [poopitypong](https://www.reddit.com/user/poopitypong/)
 
 
 
