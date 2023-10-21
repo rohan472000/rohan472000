@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s55hlbztcdvb1.jpg?width=100&height=100)
-* Meme Author: [SchwarzesBlatt](https://www.reddit.com/user/SchwarzesBlatt/)
+![Funny Meme](https://i.redd.it/63ape4u1xjvb1.jpg?width=100&height=100)
+* Meme Author: [iloveeeeemycat](https://www.reddit.com/user/iloveeeeemycat/)
 
 
 
