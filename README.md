@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wao0zpi8qfvb1.png?width=100&height=100)
-* Meme Author: [poopitypong](https://www.reddit.com/user/poopitypong/)
+![Funny Meme](https://i.redd.it/4ewo3x2fbcvb1.jpg?width=100&height=100)
+* Meme Author: [BrosephMcClean](https://www.reddit.com/user/BrosephMcClean/)
 
 
 
