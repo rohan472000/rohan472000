@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l9zi43vxagvb1.jpg?width=100&height=100)
-* Meme Author: [theviperking50](https://www.reddit.com/user/theviperking50/)
+![Funny Meme](https://i.redd.it/m1bkl705ikvb1.jpg?width=100&height=100)
+* Meme Author: [TheTruckingGod](https://www.reddit.com/user/TheTruckingGod/)
 
 
 
