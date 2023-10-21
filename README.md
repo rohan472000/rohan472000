@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5lbo5qfwrfvb1.jpg?width=100&height=100)
-* Meme Author: [nadiascorpioxx](https://www.reddit.com/user/nadiascorpioxx/)
+![Funny Meme](https://i.redd.it/skd7x5oc1fvb1.jpg?width=100&height=100)
+* Meme Author: [Fantastic_Party_3826](https://www.reddit.com/user/Fantastic_Party_3826/)
 
 
 
