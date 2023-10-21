@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m5jvj03q8cvb1.jpg?width=100&height=100)
-* Meme Author: [unrealrichtofen](https://www.reddit.com/user/unrealrichtofen/)
+![Funny Meme](https://i.redd.it/pwjufmv05lvb1.jpg?width=100&height=100)
+* Meme Author: [Oliwier255](https://www.reddit.com/user/Oliwier255/)
 
 
 
