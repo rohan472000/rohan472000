@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r0hrczbjpfvb1.jpg?width=100&height=100)
-* Meme Author: [ChampionOfAzurewrath](https://www.reddit.com/user/ChampionOfAzurewrath/)
+![Funny Meme](https://i.redd.it/sy1lyeaalgvb1.png?width=100&height=100)
+* Meme Author: [tatersalad1234567890](https://www.reddit.com/user/tatersalad1234567890/)
 
 
 
