@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q40jhdrjpfvb1.png?width=100&height=100)
-* Meme Author: [Abject_Advantage_274](https://www.reddit.com/user/Abject_Advantage_274/)
+![Funny Meme](https://i.redd.it/qno4itddlhvb1.png?width=100&height=100)
+* Meme Author: [TakoFry](https://www.reddit.com/user/TakoFry/)
 
 
 
