@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/txev3z0arkvb1.jpg?width=100&height=100)
-* Meme Author: [Gryffindumble](https://www.reddit.com/user/Gryffindumble/)
+![Funny Meme](https://i.redd.it/paj2ujxyffvb1.jpg?width=100&height=100)
+* Meme Author: [Makeitstopgoshdarnit](https://www.reddit.com/user/Makeitstopgoshdarnit/)
 
 
 
