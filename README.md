@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/egt33492m5vb1.png?width=100&height=100)
-* Meme Author: [Hypnotoad4real](https://www.reddit.com/user/Hypnotoad4real/)
+![Funny Meme](https://i.redd.it/o0c8n1wmvfvb1.jpg?width=100&height=100)
+* Meme Author: [LinkN7](https://www.reddit.com/user/LinkN7/)
 
 
 
