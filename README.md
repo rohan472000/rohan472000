@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cbviopznd8vb1.jpg?width=100&height=100)
-* Meme Author: [Bravelybelieve](https://www.reddit.com/user/Bravelybelieve/)
+![Funny Meme](https://i.redd.it/exadrkow6fvb1.jpg?width=100&height=100)
+* Meme Author: [poddy24](https://www.reddit.com/user/poddy24/)
 
 
 
