@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/di2g8exncevb1.jpg?width=100&height=100)
-* Meme Author: [Ok-Fail-540](https://www.reddit.com/user/Ok-Fail-540/)
+![Funny Meme](https://i.redd.it/l9zi43vxagvb1.jpg?width=100&height=100)
+* Meme Author: [theviperking50](https://www.reddit.com/user/theviperking50/)
 
 
 
