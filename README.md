@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/htn00yv86gvb1.jpg?width=100&height=100)
-* Meme Author: [TryingToFindThePeace](https://www.reddit.com/user/TryingToFindThePeace/)
+![Funny Meme](https://i.redd.it/7240e2e43fvb1.jpg?width=100&height=100)
+* Meme Author: [AutomatedSausage](https://www.reddit.com/user/AutomatedSausage/)
 
 
 
