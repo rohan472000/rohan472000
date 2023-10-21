@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/exadrkow6fvb1.jpg?width=100&height=100)
-* Meme Author: [poddy24](https://www.reddit.com/user/poddy24/)
+![Funny Meme](https://i.redd.it/y1cia9vxafvb1.jpg?width=100&height=100)
+* Meme Author: [Humble-Error-5497](https://www.reddit.com/user/Humble-Error-5497/)
 
 
 
