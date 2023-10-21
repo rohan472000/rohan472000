@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2sln0t2xf9vb1.jpg?width=100&height=100)
-* Meme Author: [Best-Consequence-635](https://www.reddit.com/user/Best-Consequence-635/)
+![Funny Meme](https://i.redd.it/di2g8exncevb1.jpg?width=100&height=100)
+* Meme Author: [Ok-Fail-540](https://www.reddit.com/user/Ok-Fail-540/)
 
 
 
