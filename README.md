@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4o6ouimeqfvb1.png?width=100&height=100)
-* Meme Author: [Gametron13](https://www.reddit.com/user/Gametron13/)
+![Funny Meme](https://i.redd.it/81df602p8dvb1.jpg?width=100&height=100)
+* Meme Author: [TryingToFindThePeace](https://www.reddit.com/user/TryingToFindThePeace/)
 
 
 
