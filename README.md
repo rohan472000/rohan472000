@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sy1lyeaalgvb1.png?width=100&height=100)
-* Meme Author: [tatersalad1234567890](https://www.reddit.com/user/tatersalad1234567890/)
+![Funny Meme](https://i.redd.it/mtz6iofz2fvb1.jpg?width=100&height=100)
+* Meme Author: [El_human](https://www.reddit.com/user/El_human/)
 
 
 
