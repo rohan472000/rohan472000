@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xubuagrlqbvb1.jpg?width=100&height=100)
-* Meme Author: [trollsenpai](https://www.reddit.com/user/trollsenpai/)
+![Funny Meme](https://i.redd.it/vgj8j979ylvb1.jpg?width=100&height=100)
+* Meme Author: [Dwarfkiller115](https://www.reddit.com/user/Dwarfkiller115/)
 
 
 
