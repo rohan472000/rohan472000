@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0ithqkrlrqvb1.jpg?width=100&height=100)
-* Meme Author: [so-unobvious](https://www.reddit.com/user/so-unobvious/)
+![Funny Meme](https://i.redd.it/ksliqlws6nvb1.jpg?width=100&height=100)
+* Meme Author: [CyberTacoX](https://www.reddit.com/user/CyberTacoX/)
 
 
 
