@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/egy1fzyk1pvb1.jpg?width=100&height=100)
-* Meme Author: [ErabuUmiHebi](https://www.reddit.com/user/ErabuUmiHebi/)
+![Funny Meme](https://i.redd.it/x391iag6elvb1.jpg?width=100&height=100)
+* Meme Author: [Tankdestroyer78](https://www.reddit.com/user/Tankdestroyer78/)
 
 
 
