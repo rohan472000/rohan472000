@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/8Avwv9h.jpg?width=100&height=100)
-* Meme Author: [Academiral](https://www.reddit.com/user/Academiral/)
+![Funny Meme](https://i.redd.it/upmj59fj1qvb1.jpg?width=100&height=100)
+* Meme Author: [coolidiot2000](https://www.reddit.com/user/coolidiot2000/)
 
 
 
