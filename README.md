@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ambkmdok2rvb1.jpg?width=100&height=100)
-* Meme Author: [Iroda313](https://www.reddit.com/user/Iroda313/)
+![Funny Meme](https://i.redd.it/pw8624mbqovb1.jpg?width=100&height=100)
+* Meme Author: [SharkyCartel_ACU](https://www.reddit.com/user/SharkyCartel_ACU/)
 
 
 
