@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uf0remggjrvb1.png?width=100&height=100)
-* Meme Author: [iozip_](https://www.reddit.com/user/iozip_/)
+![Funny Meme](https://i.redd.it/kslju0m5bmvb1.jpg?width=100&height=100)
+* Meme Author: [Fantastic_Party_3826](https://www.reddit.com/user/Fantastic_Party_3826/)
 
 
 
