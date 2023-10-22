@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q0mjsiynepvb1.jpg?width=100&height=100)
-* Meme Author: [pimxomsel](https://www.reddit.com/user/pimxomsel/)
+![Funny Meme](https://i.imgur.com/8Avwv9h.jpg?width=100&height=100)
+* Meme Author: [Academiral](https://www.reddit.com/user/Academiral/)
 
 
 
