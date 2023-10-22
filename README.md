@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w0uxeh02sovb1.jpg?width=100&height=100)
-* Meme Author: [neuroticnotions](https://www.reddit.com/user/neuroticnotions/)
+![Funny Meme](https://i.redd.it/ueprlrgwcovb1.jpg?width=100&height=100)
+* Meme Author: [Sovereign373](https://www.reddit.com/user/Sovereign373/)
 
 
 
