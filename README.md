@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3fva2z4aolvb1.jpg?width=100&height=100)
-* Meme Author: [i_like_the_sun](https://www.reddit.com/user/i_like_the_sun/)
+![Funny Meme](https://i.redd.it/sr4fmtursnvb1.png?width=100&height=100)
+* Meme Author: [Pug-Sniper](https://www.reddit.com/user/Pug-Sniper/)
 
 
 
