@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l5mn2x54jnvb1.jpg?width=100&height=100)
-* Meme Author: [jasonabaum](https://www.reddit.com/user/jasonabaum/)
+![Funny Meme](https://i.redd.it/i2tmof03jmvb1.jpg?width=100&height=100)
+* Meme Author: [MegaMinerDL](https://www.reddit.com/user/MegaMinerDL/)
 
 
 
