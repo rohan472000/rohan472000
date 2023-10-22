@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l3p713qctmvb1.jpg?width=100&height=100)
-* Meme Author: [Field_ofdreams94](https://www.reddit.com/user/Field_ofdreams94/)
+![Funny Meme](https://i.redd.it/6szwh40r6dvb1.jpg?width=100&height=100)
+* Meme Author: [xt0s](https://www.reddit.com/user/xt0s/)
 
 
 
