@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/upmj59fj1qvb1.jpg?width=100&height=100)
-* Meme Author: [coolidiot2000](https://www.reddit.com/user/coolidiot2000/)
+![Funny Meme](https://i.redd.it/0p5xqxrt7mvb1.jpg?width=100&height=100)
+* Meme Author: [cheat1985](https://www.reddit.com/user/cheat1985/)
 
 
 
