@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4hnhrhhcelvb1.png?width=100&height=100)
-* Meme Author: [Frontrider](https://www.reddit.com/user/Frontrider/)
+![Funny Meme](https://i.redd.it/8cywkgzvnsvb1.jpg?width=100&height=100)
+* Meme Author: [RedditBalls111](https://www.reddit.com/user/RedditBalls111/)
 
 
 
