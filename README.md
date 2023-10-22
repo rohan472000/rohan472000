@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jau6tuirhgvb1.jpg?width=100&height=100)
-* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
+![Funny Meme](https://i.redd.it/k4psyxlm0kvb1.jpg?width=100&height=100)
+* Meme Author: [Kingdom_Republic](https://www.reddit.com/user/Kingdom_Republic/)
 
 
 
