@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g6gusovk9mvb1.jpg?width=100&height=100)
-* Meme Author: [UltraSolution](https://www.reddit.com/user/UltraSolution/)
+![Funny Meme](https://i.redd.it/m1f8rozqlovb1.jpg?width=100&height=100)
+* Meme Author: [Appropriate-Cup-3823](https://www.reddit.com/user/Appropriate-Cup-3823/)
 
 
 
