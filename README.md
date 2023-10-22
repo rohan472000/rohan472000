@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1qpdd44qsmvb1.jpg?width=100&height=100)
-* Meme Author: [Coralthesequel](https://www.reddit.com/user/Coralthesequel/)
+![Funny Meme](https://i.redd.it/wz3ymrtgpivb1.jpg?width=100&height=100)
+* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
 
 
 
