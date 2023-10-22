@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jubiok0i2ovb1.png?width=100&height=100)
-* Meme Author: [OctogoatYTofficial](https://www.reddit.com/user/OctogoatYTofficial/)
+![Funny Meme](https://i.redd.it/11onc7fqipvb1.jpg?width=100&height=100)
+* Meme Author: [Wanderson90](https://www.reddit.com/user/Wanderson90/)
 
 
 
