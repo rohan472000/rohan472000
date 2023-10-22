@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k4psyxlm0kvb1.jpg?width=100&height=100)
-* Meme Author: [Kingdom_Republic](https://www.reddit.com/user/Kingdom_Republic/)
+![Funny Meme](https://i.redd.it/1qpdd44qsmvb1.jpg?width=100&height=100)
+* Meme Author: [Coralthesequel](https://www.reddit.com/user/Coralthesequel/)
 
 
 
