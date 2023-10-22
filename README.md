@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6i5yyrxzysvb1.jpg?width=100&height=100)
-* Meme Author: [gb1609](https://www.reddit.com/user/gb1609/)
+![Funny Meme](https://i.redd.it/egy1fzyk1pvb1.jpg?width=100&height=100)
+* Meme Author: [ErabuUmiHebi](https://www.reddit.com/user/ErabuUmiHebi/)
 
 
 
