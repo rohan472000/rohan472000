@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ezrav413dkvb1.jpg?width=100&height=100)
-* Meme Author: [xt0s](https://www.reddit.com/user/xt0s/)
+![Funny Meme](https://i.redd.it/nskvbdb3cjvb1.png?width=100&height=100)
+* Meme Author: [Syxtaine](https://www.reddit.com/user/Syxtaine/)
 
 
 
