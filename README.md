@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ks6hht4kkmvb1.jpg?width=100&height=100)
-* Meme Author: [CliffLogan54](https://www.reddit.com/user/CliffLogan54/)
+![Funny Meme](https://i.redd.it/903s97vsomvb1.jpg?width=100&height=100)
+* Meme Author: [Tooleater](https://www.reddit.com/user/Tooleater/)
 
 
 
