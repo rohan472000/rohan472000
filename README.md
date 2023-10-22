@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mq7783uuslvb1.jpg?width=100&height=100)
-* Meme Author: [somerandomboi65](https://www.reddit.com/user/somerandomboi65/)
+![Funny Meme](https://i.redd.it/8duhjsehtrvb1.png?width=100&height=100)
+* Meme Author: [Tall-Condition5981](https://www.reddit.com/user/Tall-Condition5981/)
 
 
 
