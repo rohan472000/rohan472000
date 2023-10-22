@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x391iag6elvb1.jpg?width=100&height=100)
-* Meme Author: [Tankdestroyer78](https://www.reddit.com/user/Tankdestroyer78/)
+![Funny Meme](https://i.redd.it/vzcj3z5n3ovb1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
