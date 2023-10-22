@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f0a2qge26nvb1.png?width=100&height=100)
-* Meme Author: [TheMisterDarknight](https://www.reddit.com/user/TheMisterDarknight/)
+![Funny Meme](https://i.redd.it/ezrav413dkvb1.jpg?width=100&height=100)
+* Meme Author: [xt0s](https://www.reddit.com/user/xt0s/)
 
 
 
