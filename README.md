@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hyo2djrwwmvb1.jpg?width=100&height=100)
-* Meme Author: [whatsgudwitu](https://www.reddit.com/user/whatsgudwitu/)
+![Funny Meme](https://i.redd.it/bpkymyt7qkvb1.jpg?width=100&height=100)
+* Meme Author: [Real-Pomegranate-235](https://www.reddit.com/user/Real-Pomegranate-235/)
 
 
 
