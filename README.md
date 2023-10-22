@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5zl9pcv36kvb1.jpg?width=100&height=100)
-* Meme Author: [Regular_Play_2105](https://www.reddit.com/user/Regular_Play_2105/)
+![Funny Meme](https://i.redd.it/7jzo4vqhtlvb1.jpg?width=100&height=100)
+* Meme Author: [otastco](https://www.reddit.com/user/otastco/)
 
 
 
