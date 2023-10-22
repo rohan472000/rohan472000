@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i2tmof03jmvb1.jpg?width=100&height=100)
-* Meme Author: [MegaMinerDL](https://www.reddit.com/user/MegaMinerDL/)
+![Funny Meme](https://i.redd.it/5hmqxq9wilvb1.jpg?width=100&height=100)
+* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
 
 
 
