@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2nymeaf9novb1.jpg?width=100&height=100)
-* Meme Author: [OverlordCantPlay](https://www.reddit.com/user/OverlordCantPlay/)
+![Funny Meme](https://i.redd.it/ro714cfthivb1.png?width=100&height=100)
+* Meme Author: [Hexxegone](https://www.reddit.com/user/Hexxegone/)
 
 
 
