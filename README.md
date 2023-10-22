@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3pgni020yqvb1.jpg?width=100&height=100)
-* Meme Author: [Shylightspeed_69](https://www.reddit.com/user/Shylightspeed_69/)
+![Funny Meme](https://i.redd.it/8kw74t370mvb1.jpg?width=100&height=100)
+* Meme Author: [JackLaundon](https://www.reddit.com/user/JackLaundon/)
 
 
 
