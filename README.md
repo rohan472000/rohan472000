@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kslju0m5bmvb1.jpg?width=100&height=100)
-* Meme Author: [Fantastic_Party_3826](https://www.reddit.com/user/Fantastic_Party_3826/)
+![Funny Meme](https://i.redd.it/pa45f8z3cevb1.png?width=100&height=100)
+* Meme Author: [Legomarioboy08](https://www.reddit.com/user/Legomarioboy08/)
 
 
 
