@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p88l1c63rrvb1.jpg?width=100&height=100)
-* Meme Author: [Successful-Company-2](https://www.reddit.com/user/Successful-Company-2/)
+![Funny Meme](https://i.redd.it/3rwspnq4qovb1.jpg?width=100&height=100)
+* Meme Author: [derpy_derp15](https://www.reddit.com/user/derpy_derp15/)
 
 
 
