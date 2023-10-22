@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9tok0dr21lvb1.jpg?width=100&height=100)
-* Meme Author: [Get-It-Got](https://www.reddit.com/user/Get-It-Got/)
+![Funny Meme](https://i.redd.it/46xc79pg4kvb1.jpg?width=100&height=100)
+* Meme Author: [average_hooman-](https://www.reddit.com/user/average_hooman-/)
 
 
 
