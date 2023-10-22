@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pe8ppm4pfjvb1.jpg?width=100&height=100)
-* Meme Author: [wolfy189](https://www.reddit.com/user/wolfy189/)
+![Funny Meme](https://i.redd.it/k9gnu5qo2nvb1.png?width=100&height=100)
+* Meme Author: [SecretSpectre4](https://www.reddit.com/user/SecretSpectre4/)
 
 
 
