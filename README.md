@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8kw74t370mvb1.jpg?width=100&height=100)
-* Meme Author: [JackLaundon](https://www.reddit.com/user/JackLaundon/)
+![Funny Meme](https://i.redd.it/op8yfkausgvb1.jpg?width=100&height=100)
+* Meme Author: [CaptainMagic777](https://www.reddit.com/user/CaptainMagic777/)
 
 
 
