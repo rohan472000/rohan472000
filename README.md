@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/juvjvrttaovb1.jpg?width=100&height=100)
-* Meme Author: [Parking_Cartoonist90](https://www.reddit.com/user/Parking_Cartoonist90/)
+![Funny Meme](https://i.redd.it/9ur70zia4ovb1.jpg?width=100&height=100)
+* Meme Author: [mc395686](https://www.reddit.com/user/mc395686/)
 
 
 
