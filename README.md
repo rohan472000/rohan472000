@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p3madc95zkvb1.png?width=100&height=100)
-* Meme Author: [YOP46](https://www.reddit.com/user/YOP46/)
+![Funny Meme](https://i.redd.it/97lbnxindnvb1.jpg?width=100&height=100)
+* Meme Author: [Overall-Estate1349](https://www.reddit.com/user/Overall-Estate1349/)
 
 
 
