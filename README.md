@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4fybwh12livb1.jpg?width=100&height=100)
-* Meme Author: [BmMjO](https://www.reddit.com/user/BmMjO/)
+![Funny Meme](https://i.redd.it/cq1bu4ugxjvb1.jpg?width=100&height=100)
+* Meme Author: [Sensitive_Feature791](https://www.reddit.com/user/Sensitive_Feature791/)
 
 
 
