@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7c3qjmepxkvb1.jpg?width=100&height=100)
-* Meme Author: [Fantastic_Party_3826](https://www.reddit.com/user/Fantastic_Party_3826/)
+![Funny Meme](https://i.redd.it/kgktlus9vkvb1.jpg?width=100&height=100)
+* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
 
 
 
