@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9ur70zia4ovb1.jpg?width=100&height=100)
-* Meme Author: [mc395686](https://www.reddit.com/user/mc395686/)
+![Funny Meme](https://i.redd.it/xvqtfdirxovb1.jpg?width=100&height=100)
+* Meme Author: [celticdude234](https://www.reddit.com/user/celticdude234/)
 
 
 
