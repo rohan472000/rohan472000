@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aszwv7k3jevb1.jpg?width=100&height=100)
-* Meme Author: [samihamchev](https://www.reddit.com/user/samihamchev/)
+![Funny Meme](https://i.redd.it/5zl9pcv36kvb1.jpg?width=100&height=100)
+* Meme Author: [Regular_Play_2105](https://www.reddit.com/user/Regular_Play_2105/)
 
 
 
