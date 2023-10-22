@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/02apyex3gkvb1.png?width=100&height=100)
-* Meme Author: [PeopleAreBozos](https://www.reddit.com/user/PeopleAreBozos/)
+![Funny Meme](https://i.redd.it/p3madc95zkvb1.png?width=100&height=100)
+* Meme Author: [YOP46](https://www.reddit.com/user/YOP46/)
 
 
 
