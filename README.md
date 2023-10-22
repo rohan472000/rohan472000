@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/450vdl346ivb1.jpg?width=100&height=100)
-* Meme Author: [Simple_goat_999999](https://www.reddit.com/user/Simple_goat_999999/)
+![Funny Meme](https://i.redd.it/tl40dbmbpjvb1.jpg?width=100&height=100)
+* Meme Author: [kilravock_music_sws](https://www.reddit.com/user/kilravock_music_sws/)
 
 
 
