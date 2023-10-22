@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9tdne1zxdovb1.jpg?width=100&height=100)
-* Meme Author: [JSAB2007](https://www.reddit.com/user/JSAB2007/)
+![Funny Meme](https://i.redd.it/uf0remggjrvb1.png?width=100&height=100)
+* Meme Author: [iozip_](https://www.reddit.com/user/iozip_/)
 
 
 
