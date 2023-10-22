@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/903s97vsomvb1.jpg?width=100&height=100)
-* Meme Author: [Tooleater](https://www.reddit.com/user/Tooleater/)
+![Funny Meme](https://i.redd.it/ermims9cifvb1.jpg?width=100&height=100)
+* Meme Author: [ihateredditguys](https://www.reddit.com/user/ihateredditguys/)
 
 
 
