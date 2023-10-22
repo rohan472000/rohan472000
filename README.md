@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ksliqlws6nvb1.jpg?width=100&height=100)
-* Meme Author: [CyberTacoX](https://www.reddit.com/user/CyberTacoX/)
+![Funny Meme](https://i.redd.it/ilk2pctbnhvb1.jpg?width=100&height=100)
+* Meme Author: [ZakkTheInsomniac](https://www.reddit.com/user/ZakkTheInsomniac/)
 
 
 
