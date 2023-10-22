@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sr4fmtursnvb1.png?width=100&height=100)
-* Meme Author: [Pug-Sniper](https://www.reddit.com/user/Pug-Sniper/)
+![Funny Meme](https://i.redd.it/i90pw9q2znvb1.png?width=100&height=100)
+* Meme Author: [UOSenki](https://www.reddit.com/user/UOSenki/)
 
 
 
