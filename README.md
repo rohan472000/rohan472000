@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8ctezuczldvb1.jpg?width=100&height=100)
-* Meme Author: [swissco](https://www.reddit.com/user/swissco/)
+![Funny Meme](https://i.redd.it/7sf6y1snpmvb1.jpg?width=100&height=100)
+* Meme Author: [Joeblesson](https://www.reddit.com/user/Joeblesson/)
 
 
 
