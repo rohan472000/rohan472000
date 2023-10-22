@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6szwh40r6dvb1.jpg?width=100&height=100)
-* Meme Author: [xt0s](https://www.reddit.com/user/xt0s/)
+![Funny Meme](https://i.redd.it/0ithqkrlrqvb1.jpg?width=100&height=100)
+* Meme Author: [so-unobvious](https://www.reddit.com/user/so-unobvious/)
 
 
 
