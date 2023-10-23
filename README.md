@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3sfzp6j6guvb1.jpg?width=100&height=100)
-* Meme Author: [Standardpitch23](https://www.reddit.com/user/Standardpitch23/)
+![Funny Meme](https://i.redd.it/0hbkeekbduvb1.png?width=100&height=100)
+* Meme Author: [Expensive_Account_78](https://www.reddit.com/user/Expensive_Account_78/)
 
 
 
