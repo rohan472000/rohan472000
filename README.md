@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/egkjqc7wjsvb1.jpg?width=100&height=100)
-* Meme Author: [Cyberwarrior52](https://www.reddit.com/user/Cyberwarrior52/)
+![Funny Meme](https://i.redd.it/1lenyinzvsvb1.jpg?width=100&height=100)
+* Meme Author: [brontokoli](https://www.reddit.com/user/brontokoli/)
 
 
 
