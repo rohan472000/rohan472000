@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q1sxu4bqqyvb1.jpg?width=100&height=100)
-* Meme Author: [EmbarrassedMission50](https://www.reddit.com/user/EmbarrassedMission50/)
+![Funny Meme](https://i.redd.it/elegz3ohnsvb1.jpg?width=100&height=100)
+* Meme Author: [iloveeeeemycat](https://www.reddit.com/user/iloveeeeemycat/)
 
 
 
