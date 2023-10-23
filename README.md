@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5fre73gs3vvb1.jpg?width=100&height=100)
-* Meme Author: [ZakkTheInsomniac](https://www.reddit.com/user/ZakkTheInsomniac/)
+![Funny Meme](https://i.redd.it/hyo2djrwwmvb1.jpg?width=100&height=100)
+* Meme Author: [whatsgudwitu](https://www.reddit.com/user/whatsgudwitu/)
 
 
 
