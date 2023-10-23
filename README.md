@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pw8624mbqovb1.jpg?width=100&height=100)
-* Meme Author: [SharkyCartel_ACU](https://www.reddit.com/user/SharkyCartel_ACU/)
+![Funny Meme](https://i.redd.it/9p1tox4jivvb1.png?width=100&height=100)
+* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
 
 
 
