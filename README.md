@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/11onc7fqipvb1.jpg?width=100&height=100)
-* Meme Author: [Wanderson90](https://www.reddit.com/user/Wanderson90/)
+![Funny Meme](https://i.redd.it/n279zxzlfuvb1.jpg?width=100&height=100)
+* Meme Author: [bravohotelechomike](https://www.reddit.com/user/bravohotelechomike/)
 
 
 
