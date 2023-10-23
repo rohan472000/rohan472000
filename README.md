@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nuziq6f05tvb1.png?width=100&height=100)
-* Meme Author: [Davestating](https://www.reddit.com/user/Davestating/)
+![Funny Meme](https://i.redd.it/dpz41nqzauvb1.png?width=100&height=100)
+* Meme Author: [Expensive_Account_78](https://www.reddit.com/user/Expensive_Account_78/)
 
 
 
