@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ywwiowj8ltvb1.png?width=100&height=100)
-* Meme Author: [satans_grandpa](https://www.reddit.com/user/satans_grandpa/)
+![Funny Meme](https://i.redd.it/t9jzkgknyrvb1.jpg?width=100&height=100)
+* Meme Author: [PointlessPoem](https://www.reddit.com/user/PointlessPoem/)
 
 
 
