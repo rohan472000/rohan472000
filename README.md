@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a7sln6vz2zvb1.jpg?width=100&height=100)
-* Meme Author: [TallExtension9312](https://www.reddit.com/user/TallExtension9312/)
+![Funny Meme](https://i.redd.it/02u1nk6qzxvb1.jpg?width=100&height=100)
+* Meme Author: [Doctor-Patronising](https://www.reddit.com/user/Doctor-Patronising/)
 
 
 
