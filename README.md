@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ns9cl3ypcsvb1.jpg?width=100&height=100)
-* Meme Author: [John-333](https://www.reddit.com/user/John-333/)
+![Funny Meme](https://i.redd.it/t31379g8kuvb1.jpg?width=100&height=100)
+* Meme Author: [Tankdestroyer78](https://www.reddit.com/user/Tankdestroyer78/)
 
 
 
