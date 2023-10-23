@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0hbkeekbduvb1.png?width=100&height=100)
-* Meme Author: [Expensive_Account_78](https://www.reddit.com/user/Expensive_Account_78/)
+![Funny Meme](https://i.imgur.com/Vzq0fkU.png?width=100&height=100)
+* Meme Author: [CobaltAzurean](https://www.reddit.com/user/CobaltAzurean/)
 
 
 
