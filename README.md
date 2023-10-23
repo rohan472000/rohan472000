@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/chqh4eymuvvb1.png?width=100&height=100)
-* Meme Author: [PandaMaster720](https://www.reddit.com/user/PandaMaster720/)
+![Funny Meme](https://i.redd.it/n8y0c7tmptvb1.png?width=100&height=100)
+* Meme Author: [ChampionOfAzurewrath](https://www.reddit.com/user/ChampionOfAzurewrath/)
 
 
 
