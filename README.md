@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dpz41nqzauvb1.png?width=100&height=100)
-* Meme Author: [Expensive_Account_78](https://www.reddit.com/user/Expensive_Account_78/)
+![Funny Meme](https://i.redd.it/um6ign49etvb1.png?width=100&height=100)
+* Meme Author: [TheNinjaSausage](https://www.reddit.com/user/TheNinjaSausage/)
 
 
 
