@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7ggio5miluvb1.png?width=100&height=100)
-* Meme Author: [Varvein](https://www.reddit.com/user/Varvein/)
+![Funny Meme](https://i.imgur.com/Vzq0fkU.png?width=100&height=100)
+* Meme Author: [CobaltAzurean](https://www.reddit.com/user/CobaltAzurean/)
 
 
 
