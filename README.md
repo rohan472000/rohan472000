@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3fn1vpvz1wvb1.jpg?width=100&height=100)
-* Meme Author: [Avg_joe17](https://www.reddit.com/user/Avg_joe17/)
+![Funny Meme](https://i.redd.it/61sm7kcicxvb1.jpg?width=100&height=100)
+* Meme Author: [MikeTorsson](https://www.reddit.com/user/MikeTorsson/)
 
 
 
