@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3maqy6qkkyvb1.jpg?width=100&height=100)
-* Meme Author: [ConanCimmerian](https://www.reddit.com/user/ConanCimmerian/)
+![Funny Meme](https://i.redd.it/k1ivloj3b0wb1.jpg?width=100&height=100)
+* Meme Author: [UltriLeginaXI](https://www.reddit.com/user/UltriLeginaXI/)
 
 
 
