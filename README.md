@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8tk96pkunxvb1.jpg?width=100&height=100)
-* Meme Author: [Simple_goat_999999](https://www.reddit.com/user/Simple_goat_999999/)
+![Funny Meme](https://i.redd.it/ywwiowj8ltvb1.png?width=100&height=100)
+* Meme Author: [satans_grandpa](https://www.reddit.com/user/satans_grandpa/)
 
 
 
