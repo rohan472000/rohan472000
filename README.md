@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bpv3edz6cqvb1.jpg?width=100&height=100)
-* Meme Author: [Spidey_Petey](https://www.reddit.com/user/Spidey_Petey/)
+![Funny Meme](https://i.redd.it/7kxr5ejvspvb1.png?width=100&height=100)
+* Meme Author: [CatloafHere](https://www.reddit.com/user/CatloafHere/)
 
 
 
