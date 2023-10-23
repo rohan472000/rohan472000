@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kf4m5axbstvb1.jpg?width=100&height=100)
-* Meme Author: [TheGuy_1985](https://www.reddit.com/user/TheGuy_1985/)
+![Funny Meme](https://i.redd.it/gupz1176wrvb1.jpg?width=100&height=100)
+* Meme Author: [Life_Maximum385](https://www.reddit.com/user/Life_Maximum385/)
 
 
 
