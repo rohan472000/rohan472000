@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k1ivloj3b0wb1.jpg?width=100&height=100)
-* Meme Author: [UltriLeginaXI](https://www.reddit.com/user/UltriLeginaXI/)
+![Funny Meme](https://i.redd.it/xoqjqxc2lzvb1.png?width=100&height=100)
+* Meme Author: [Black_Rose2710](https://www.reddit.com/user/Black_Rose2710/)
 
 
 
