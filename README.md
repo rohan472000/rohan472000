@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rzw3almaxtvb1.jpg?width=100&height=100)
-* Meme Author: [the_akshit_2425](https://www.reddit.com/user/the_akshit_2425/)
+![Funny Meme](https://i.redd.it/411k19dy8zvb1.jpg?width=100&height=100)
+* Meme Author: [NutsBruv](https://www.reddit.com/user/NutsBruv/)
 
 
 
