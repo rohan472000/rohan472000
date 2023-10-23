@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/11ehk8lzwtvb1.jpg?width=100&height=100)
-* Meme Author: [Eligon-5th](https://www.reddit.com/user/Eligon-5th/)
+![Funny Meme](https://i.redd.it/44arbbucxuvb1.jpg?width=100&height=100)
+* Meme Author: [og-lollercopter](https://www.reddit.com/user/og-lollercopter/)
 
 
 
