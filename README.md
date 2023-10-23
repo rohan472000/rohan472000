@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n8y0c7tmptvb1.png?width=100&height=100)
-* Meme Author: [ChampionOfAzurewrath](https://www.reddit.com/user/ChampionOfAzurewrath/)
+![Funny Meme](https://i.redd.it/44arbbucxuvb1.jpg?width=100&height=100)
+* Meme Author: [og-lollercopter](https://www.reddit.com/user/og-lollercopter/)
 
 
 
