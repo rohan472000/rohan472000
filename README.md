@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n279zxzlfuvb1.jpg?width=100&height=100)
-* Meme Author: [bravohotelechomike](https://www.reddit.com/user/bravohotelechomike/)
+![Funny Meme](https://i.redd.it/4imwf8pbouvb1.jpg?width=100&height=100)
+* Meme Author: [WhippetRun](https://www.reddit.com/user/WhippetRun/)
 
 
 
