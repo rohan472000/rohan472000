@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/elegz3ohnsvb1.jpg?width=100&height=100)
-* Meme Author: [iloveeeeemycat](https://www.reddit.com/user/iloveeeeemycat/)
+![Funny Meme](https://i.redd.it/chqh4eymuvvb1.png?width=100&height=100)
+* Meme Author: [PandaMaster720](https://www.reddit.com/user/PandaMaster720/)
 
 
 
