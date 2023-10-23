@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wq724gwjjsvb1.png?width=100&height=100)
-* Meme Author: [Thumbs0fDestiny](https://www.reddit.com/user/Thumbs0fDestiny/)
+![Funny Meme](https://i.redd.it/by3c0m32swvb1.jpg?width=100&height=100)
+* Meme Author: [Zengoku89](https://www.reddit.com/user/Zengoku89/)
 
 
 
