@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aonqrj5yvrvb1.jpg?width=100&height=100)
-* Meme Author: [primethoracic2](https://www.reddit.com/user/primethoracic2/)
+![Funny Meme](https://i.redd.it/wq724gwjjsvb1.png?width=100&height=100)
+* Meme Author: [Thumbs0fDestiny](https://www.reddit.com/user/Thumbs0fDestiny/)
 
 
 
