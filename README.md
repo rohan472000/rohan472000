@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a7pyrdxthtvb1.jpg?width=100&height=100)
-* Meme Author: [TyYoshi69](https://www.reddit.com/user/TyYoshi69/)
+![Funny Meme](https://i.redd.it/8tk96pkunxvb1.jpg?width=100&height=100)
+* Meme Author: [Simple_goat_999999](https://www.reddit.com/user/Simple_goat_999999/)
 
 
 
