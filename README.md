@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3u09lz9xwqvb1.png?width=100&height=100)
-* Meme Author: [BlackpillGuy](https://www.reddit.com/user/BlackpillGuy/)
+![Funny Meme](https://i.redd.it/3maqy6qkkyvb1.jpg?width=100&height=100)
+* Meme Author: [ConanCimmerian](https://www.reddit.com/user/ConanCimmerian/)
 
 
 
