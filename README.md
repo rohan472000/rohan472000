@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mq7783uuslvb1.jpg?width=100&height=100)
-* Meme Author: [somerandomboi65](https://www.reddit.com/user/somerandomboi65/)
+![Funny Meme](https://i.redd.it/n9q0v54klqvb1.jpg?width=100&height=100)
+* Meme Author: [Holy_Shifter](https://www.reddit.com/user/Holy_Shifter/)
 
 
 
