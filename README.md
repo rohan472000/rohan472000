@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/syhg0rz1pzvb1.jpg?width=100&height=100)
-* Meme Author: [PotenciaMachina](https://www.reddit.com/user/PotenciaMachina/)
+![Funny Meme](https://i.redd.it/h45zkymmhyvb1.jpg?width=100&height=100)
+* Meme Author: [_Jhaatu](https://www.reddit.com/user/_Jhaatu/)
 
 
 
