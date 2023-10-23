@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x0s1qz87ssvb1.jpg?width=100&height=100)
-* Meme Author: [johnclarklevin](https://www.reddit.com/user/johnclarklevin/)
+![Funny Meme](https://i.redd.it/galc1newuvvb1.jpg?width=100&height=100)
+* Meme Author: [Silly-Ladder-8603](https://www.reddit.com/user/Silly-Ladder-8603/)
 
 
 
