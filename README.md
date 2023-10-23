@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ztkm4piruvb1.jpg?width=100&height=100)
-* Meme Author: [skinfrakki](https://www.reddit.com/user/skinfrakki/)
+![Funny Meme](https://i.redd.it/3u09lz9xwqvb1.png?width=100&height=100)
+* Meme Author: [BlackpillGuy](https://www.reddit.com/user/BlackpillGuy/)
 
 
 
