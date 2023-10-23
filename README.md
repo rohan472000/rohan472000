@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/44arbbucxuvb1.jpg?width=100&height=100)
-* Meme Author: [og-lollercopter](https://www.reddit.com/user/og-lollercopter/)
+![Funny Meme](https://i.redd.it/yrlvx0p4muvb1.jpg?width=100&height=100)
+* Meme Author: [SnafuMist](https://www.reddit.com/user/SnafuMist/)
 
 
 
