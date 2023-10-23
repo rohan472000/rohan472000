@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/um6ign49etvb1.png?width=100&height=100)
-* Meme Author: [TheNinjaSausage](https://www.reddit.com/user/TheNinjaSausage/)
+![Funny Meme](https://i.redd.it/aonqrj5yvrvb1.jpg?width=100&height=100)
+* Meme Author: [primethoracic2](https://www.reddit.com/user/primethoracic2/)
 
 
 
