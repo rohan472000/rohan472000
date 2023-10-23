@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rjyxgw7vvyvb1.jpg?width=100&height=100)
-* Meme Author: [Ghosted_Alpha](https://www.reddit.com/user/Ghosted_Alpha/)
+![Funny Meme](https://i.redd.it/21xddgjymyvb1.jpg?width=100&height=100)
+* Meme Author: [phenomenal_7879](https://www.reddit.com/user/phenomenal_7879/)
 
 
 
