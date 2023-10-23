@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z5sso047etvb1.jpg?width=100&height=100)
-* Meme Author: [Bella4077](https://www.reddit.com/user/Bella4077/)
+![Funny Meme](https://i.redd.it/ztr4abitdtvb1.jpg?width=100&height=100)
+* Meme Author: [oranke_dino](https://www.reddit.com/user/oranke_dino/)
 
 
 
