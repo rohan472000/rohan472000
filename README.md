@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yrlvx0p4muvb1.jpg?width=100&height=100)
-* Meme Author: [SnafuMist](https://www.reddit.com/user/SnafuMist/)
+![Funny Meme](https://i.redd.it/nuziq6f05tvb1.png?width=100&height=100)
+* Meme Author: [Davestating](https://www.reddit.com/user/Davestating/)
 
 
 
