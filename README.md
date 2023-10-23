@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ns9cl3ypcsvb1.jpg?width=100&height=100)
-* Meme Author: [John-333](https://www.reddit.com/user/John-333/)
+![Funny Meme](https://i.redd.it/phkhfysj1xvb1.jpg?width=100&height=100)
+* Meme Author: [viel_lenia](https://www.reddit.com/user/viel_lenia/)
 
 
 
