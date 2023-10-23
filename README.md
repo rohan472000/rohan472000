@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hyo2djrwwmvb1.jpg?width=100&height=100)
-* Meme Author: [whatsgudwitu](https://www.reddit.com/user/whatsgudwitu/)
+![Funny Meme](https://i.redd.it/elegz3ohnsvb1.jpg?width=100&height=100)
+* Meme Author: [iloveeeeemycat](https://www.reddit.com/user/iloveeeeemycat/)
 
 
 
