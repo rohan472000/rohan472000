@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g3n0db98iwvb1.jpg?width=100&height=100)
-* Meme Author: [HooptyDooDooMeister](https://www.reddit.com/user/HooptyDooDooMeister/)
+![Funny Meme](https://i.redd.it/21xddgjymyvb1.jpg?width=100&height=100)
+* Meme Author: [phenomenal_7879](https://www.reddit.com/user/phenomenal_7879/)
 
 
 
