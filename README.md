@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t9jzkgknyrvb1.jpg?width=100&height=100)
-* Meme Author: [PointlessPoem](https://www.reddit.com/user/PointlessPoem/)
+![Funny Meme](https://i.redd.it/ehifamku5uvb1.jpg?width=100&height=100)
+* Meme Author: [Kieduss](https://www.reddit.com/user/Kieduss/)
 
 
 
