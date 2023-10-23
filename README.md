@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nrkdie89kvvb1.png?width=100&height=100)
-* Meme Author: [fatuglyhairyloser](https://www.reddit.com/user/fatuglyhairyloser/)
+![Funny Meme](https://i.redd.it/7ggio5miluvb1.png?width=100&height=100)
+* Meme Author: [Varvein](https://www.reddit.com/user/Varvein/)
 
 
 
