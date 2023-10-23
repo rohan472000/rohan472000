@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fcu8fixvbuvb1.jpg?width=100&height=100)
-* Meme Author: [Thebigdog79](https://www.reddit.com/user/Thebigdog79/)
+![Funny Meme](https://i.redd.it/nrkdie89kvvb1.png?width=100&height=100)
+* Meme Author: [fatuglyhairyloser](https://www.reddit.com/user/fatuglyhairyloser/)
 
 
 
