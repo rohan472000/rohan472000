@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u3fn7w8f35wb1.jpg?width=100&height=100)
-* Meme Author: [Majestic_Mission1682](https://www.reddit.com/user/Majestic_Mission1682/)
+![Funny Meme](https://i.redd.it/g65sl9nbb1wb1.jpg?width=100&height=100)
+* Meme Author: [DarkAlbertino](https://www.reddit.com/user/DarkAlbertino/)
 
 
 
