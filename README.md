@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7s68t18lm4wb1.jpg?width=100&height=100)
-* Meme Author: [StickGaminggYT](https://www.reddit.com/user/StickGaminggYT/)
+![Funny Meme](https://i.redd.it/11rp4usaa3wb1.png?width=100&height=100)
+* Meme Author: [simagus](https://www.reddit.com/user/simagus/)
 
 
 
