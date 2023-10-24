@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6hlyrl2uy4wb1.jpg?width=100&height=100)
-* Meme Author: [Similar_Nothing_7509](https://www.reddit.com/user/Similar_Nothing_7509/)
+![Funny Meme](https://i.redd.it/0suvewe9k2wb1.jpg?width=100&height=100)
+* Meme Author: [yesyouarerightlol](https://www.reddit.com/user/yesyouarerightlol/)
 
 
 
