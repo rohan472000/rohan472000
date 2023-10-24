@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ykfx9q7rwzvb1.jpg?width=100&height=100)
-* Meme Author: [Piotrek9t](https://www.reddit.com/user/Piotrek9t/)
+![Funny Meme](https://i.redd.it/ydhxtj2nc4wb1.png?width=100&height=100)
+* Meme Author: [mojo72400](https://www.reddit.com/user/mojo72400/)
 
 
 
