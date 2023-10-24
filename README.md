@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c1bfh35dr1wb1.jpg?width=100&height=100)
-* Meme Author: [softwarexinstability](https://www.reddit.com/user/softwarexinstability/)
+![Funny Meme](https://i.redd.it/wzsvh6svt7wb1.png?width=100&height=100)
+* Meme Author: [I_Like_Toast_7](https://www.reddit.com/user/I_Like_Toast_7/)
 
 
 
