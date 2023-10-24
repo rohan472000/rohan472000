@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hzze4n3bk2wb1.jpg?width=100&height=100)
-* Meme Author: [Expert_Camel5619](https://www.reddit.com/user/Expert_Camel5619/)
+![Funny Meme](https://i.redd.it/8i792t8l3xvb1.jpg?width=100&height=100)
+* Meme Author: [Top-Aside-1881](https://www.reddit.com/user/Top-Aside-1881/)
 
 
 
