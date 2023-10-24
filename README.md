@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q3sfrv3812wb1.jpg?width=100&height=100)
-* Meme Author: [BigSpongebobFanatic](https://www.reddit.com/user/BigSpongebobFanatic/)
+![Funny Meme](https://i.redd.it/duvzpua9l6wb1.jpg?width=100&height=100)
+* Meme Author: [AloneIsWhatIHave](https://www.reddit.com/user/AloneIsWhatIHave/)
 
 
 
