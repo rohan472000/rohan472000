@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/duvzpua9l6wb1.jpg?width=100&height=100)
-* Meme Author: [AloneIsWhatIHave](https://www.reddit.com/user/AloneIsWhatIHave/)
+![Funny Meme](https://i.redd.it/by3c0m32swvb1.jpg?width=100&height=100)
+* Meme Author: [Zengoku89](https://www.reddit.com/user/Zengoku89/)
 
 
 
