@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kryrxm8537wb1.jpg?width=100&height=100)
-* Meme Author: [toweleatery2](https://www.reddit.com/user/toweleatery2/)
+![Funny Meme](https://i.redd.it/r71u5q9wu0wb1.jpg?width=100&height=100)
+* Meme Author: [Slushy69420](https://www.reddit.com/user/Slushy69420/)
 
 
 
