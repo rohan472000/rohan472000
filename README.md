@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mnbstntdcyvb1.jpg?width=100&height=100)
-* Meme Author: [RavioofLorul3](https://www.reddit.com/user/RavioofLorul3/)
+![Funny Meme](https://i.redd.it/i36csw7rguvb1.jpg?width=100&height=100)
+* Meme Author: [toastmaster869](https://www.reddit.com/user/toastmaster869/)
 
 
 
