@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cnaw41zhn0wb1.jpg?width=100&height=100)
-* Meme Author: [SodiiumGames](https://www.reddit.com/user/SodiiumGames/)
+![Funny Meme](https://i.redd.it/d2w61pjuhyvb1.jpg?width=100&height=100)
+* Meme Author: [Expert_Camel5619](https://www.reddit.com/user/Expert_Camel5619/)
 
 
 
