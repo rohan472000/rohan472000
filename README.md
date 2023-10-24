@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7lq42hvjl1wb1.jpg?width=100&height=100)
-* Meme Author: [Waitingforlunch](https://www.reddit.com/user/Waitingforlunch/)
+![Funny Meme](https://i.redd.it/tr6lqqc4sxvb1.jpg?width=100&height=100)
+* Meme Author: [OKishGuy](https://www.reddit.com/user/OKishGuy/)
 
 
 
