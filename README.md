@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tr6lqqc4sxvb1.jpg?width=100&height=100)
-* Meme Author: [OKishGuy](https://www.reddit.com/user/OKishGuy/)
+![Funny Meme](https://i.redd.it/9piclvdk50wb1.jpg?width=100&height=100)
+* Meme Author: [Alarming-Big8245](https://www.reddit.com/user/Alarming-Big8245/)
 
 
 
