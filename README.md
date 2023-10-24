@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pyj7zrp428wb1.jpg?width=100&height=100)
-* Meme Author: [Traditional-Reach818](https://www.reddit.com/user/Traditional-Reach818/)
+![Funny Meme](https://i.redd.it/7s68t18lm4wb1.jpg?width=100&height=100)
+* Meme Author: [StickGaminggYT](https://www.reddit.com/user/StickGaminggYT/)
 
 
 
