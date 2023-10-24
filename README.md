@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pr0gn2pmn1wb1.jpg?width=100&height=100)
-* Meme Author: [PiggyBank32](https://www.reddit.com/user/PiggyBank32/)
+![Funny Meme](https://i.redd.it/r71u5q9wu0wb1.jpg?width=100&height=100)
+* Meme Author: [Slushy69420](https://www.reddit.com/user/Slushy69420/)
 
 
 
