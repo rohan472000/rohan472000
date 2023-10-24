@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zyqyifrz0uvb1.png?width=100&height=100)
-* Meme Author: [SpoonyBardXIV-2](https://www.reddit.com/user/SpoonyBardXIV-2/)
+![Funny Meme](https://i.redd.it/zxi5jtgmozvb1.jpg?width=100&height=100)
+* Meme Author: [Huge-Scene6139](https://www.reddit.com/user/Huge-Scene6139/)
 
 
 
