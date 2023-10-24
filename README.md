@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l5fw4t0xu5wb1.jpg?width=100&height=100)
-* Meme Author: [Ez-lectronic](https://www.reddit.com/user/Ez-lectronic/)
+![Funny Meme](https://i.redd.it/ydhxtj2nc4wb1.png?width=100&height=100)
+* Meme Author: [mojo72400](https://www.reddit.com/user/mojo72400/)
 
 
 
