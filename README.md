@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r71u5q9wu0wb1.jpg?width=100&height=100)
-* Meme Author: [Slushy69420](https://www.reddit.com/user/Slushy69420/)
+![Funny Meme](https://i.redd.it/zp6owp0x64wb1.jpg?width=100&height=100)
+* Meme Author: [Gaming_ORB](https://www.reddit.com/user/Gaming_ORB/)
 
 
 
