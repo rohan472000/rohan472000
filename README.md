@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v8h3niavt0wb1.jpg?width=100&height=100)
-* Meme Author: [PhysicalDentist3808](https://www.reddit.com/user/PhysicalDentist3808/)
+![Funny Meme](https://i.redd.it/2cxkx196d2wb1.jpg?width=100&height=100)
+* Meme Author: [ihavebirb](https://www.reddit.com/user/ihavebirb/)
 
 
 
