@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m4g3kndeg3wb1.png?width=100&height=100)
-* Meme Author: [Total-Experience2787](https://www.reddit.com/user/Total-Experience2787/)
+![Funny Meme](https://i.redd.it/a5b0vl2g90wb1.jpg?width=100&height=100)
+* Meme Author: [moddedbrain](https://www.reddit.com/user/moddedbrain/)
 
 
 
