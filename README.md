@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3do7wurs94wb1.jpg?width=100&height=100)
-* Meme Author: [senior_meme_engineer](https://www.reddit.com/user/senior_meme_engineer/)
+![Funny Meme](https://i.imgur.com/M1VHkHu.jpg?width=100&height=100)
+* Meme Author: [CobaltAzurean](https://www.reddit.com/user/CobaltAzurean/)
 
 
 
