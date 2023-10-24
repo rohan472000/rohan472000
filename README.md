@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9piclvdk50wb1.jpg?width=100&height=100)
-* Meme Author: [Alarming-Big8245](https://www.reddit.com/user/Alarming-Big8245/)
+![Funny Meme](https://i.redd.it/wesnn4qv32wb1.jpg?width=100&height=100)
+* Meme Author: [Exact_Team6979](https://www.reddit.com/user/Exact_Team6979/)
 
 
 
