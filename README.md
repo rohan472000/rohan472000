@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x54exw4z5yvb1.jpg?width=100&height=100)
-* Meme Author: [SkepticDrinker](https://www.reddit.com/user/SkepticDrinker/)
+![Funny Meme](https://i.redd.it/0t68bp4ebxvb1.jpg?width=100&height=100)
+* Meme Author: [IcyBreloom](https://www.reddit.com/user/IcyBreloom/)
 
 
 
