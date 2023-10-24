@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/02u1nk6qzxvb1.jpg?width=100&height=100)
-* Meme Author: [Doctor-Patronising](https://www.reddit.com/user/Doctor-Patronising/)
+![Funny Meme](https://i.redd.it/lorj7y4hhvvb1.jpg?width=100&height=100)
+* Meme Author: [yesyouarerightlol](https://www.reddit.com/user/yesyouarerightlol/)
 
 
 
