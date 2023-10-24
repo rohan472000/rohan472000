@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7ehx66bqi0wb1.jpg?width=100&height=100)
-* Meme Author: [JayFury55](https://www.reddit.com/user/JayFury55/)
+![Funny Meme](https://i.redd.it/zxi5jtgmozvb1.jpg?width=100&height=100)
+* Meme Author: [Huge-Scene6139](https://www.reddit.com/user/Huge-Scene6139/)
 
 
 
