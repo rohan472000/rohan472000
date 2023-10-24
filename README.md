@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0suvewe9k2wb1.jpg?width=100&height=100)
-* Meme Author: [yesyouarerightlol](https://www.reddit.com/user/yesyouarerightlol/)
+![Funny Meme](https://i.redd.it/zfh4d9ams0wb1.jpg?width=100&height=100)
+* Meme Author: [Ilowe_042](https://www.reddit.com/user/Ilowe_042/)
 
 
 
