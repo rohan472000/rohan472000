@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dzliib94g3wb1.jpg?width=100&height=100)
-* Meme Author: [1997D190P](https://www.reddit.com/user/1997D190P/)
+![Funny Meme](https://i.redd.it/3do7wurs94wb1.jpg?width=100&height=100)
+* Meme Author: [senior_meme_engineer](https://www.reddit.com/user/senior_meme_engineer/)
 
 
 
