@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bpujh1ysotvb1.jpg?width=100&height=100)
-* Meme Author: [megamax1o](https://www.reddit.com/user/megamax1o/)
+![Funny Meme](https://i.redd.it/tr6lqqc4sxvb1.jpg?width=100&height=100)
+* Meme Author: [OKishGuy](https://www.reddit.com/user/OKishGuy/)
 
 
 
