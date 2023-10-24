@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kx2yjhq6i0wb1.png?width=100&height=100)
-* Meme Author: [nighthawk0954](https://www.reddit.com/user/nighthawk0954/)
+![Funny Meme](https://i.redd.it/cnaw41zhn0wb1.jpg?width=100&height=100)
+* Meme Author: [SodiiumGames](https://www.reddit.com/user/SodiiumGames/)
 
 
 
