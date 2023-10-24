@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ld8vihmkb1wb1.jpg?width=100&height=100)
-* Meme Author: [Renatop569](https://www.reddit.com/user/Renatop569/)
+![Funny Meme](https://i.redd.it/44oodyn7gzvb1.jpg?width=100&height=100)
+* Meme Author: [Emilia_PF](https://www.reddit.com/user/Emilia_PF/)
 
 
 
