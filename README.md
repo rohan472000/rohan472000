@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zfh4d9ams0wb1.jpg?width=100&height=100)
-* Meme Author: [Ilowe_042](https://www.reddit.com/user/Ilowe_042/)
+![Funny Meme](https://i.redd.it/vxw9sncrk5wb1.jpg?width=100&height=100)
+* Meme Author: [Significant-Hyena870](https://www.reddit.com/user/Significant-Hyena870/)
 
 
 
