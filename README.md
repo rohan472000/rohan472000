@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4muigivwl6wb1.jpg?width=100&height=100)
-* Meme Author: [kevonicus](https://www.reddit.com/user/kevonicus/)
+![Funny Meme](https://i.redd.it/gb279tes22wb1.png?width=100&height=100)
+* Meme Author: [283leis](https://www.reddit.com/user/283leis/)
 
 
 
