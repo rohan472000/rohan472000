@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wf7kg2mho1wb1.jpg?width=100&height=100)
-* Meme Author: [Chivalrick9_6](https://www.reddit.com/user/Chivalrick9_6/)
+![Funny Meme](https://i.redd.it/u3fn7w8f35wb1.jpg?width=100&height=100)
+* Meme Author: [Majestic_Mission1682](https://www.reddit.com/user/Majestic_Mission1682/)
 
 
 
