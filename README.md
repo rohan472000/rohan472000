@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lorj7y4hhvvb1.jpg?width=100&height=100)
-* Meme Author: [yesyouarerightlol](https://www.reddit.com/user/yesyouarerightlol/)
+![Funny Meme](https://i.redd.it/v8h3niavt0wb1.jpg?width=100&height=100)
+* Meme Author: [PhysicalDentist3808](https://www.reddit.com/user/PhysicalDentist3808/)
 
 
 
