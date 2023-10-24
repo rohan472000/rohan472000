@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3soms82iezvb1.jpg?width=100&height=100)
-* Meme Author: [WalkingHydrogen](https://www.reddit.com/user/WalkingHydrogen/)
+![Funny Meme](https://i.redd.it/zzuboxfn00wb1.jpg?width=100&height=100)
+* Meme Author: [oranke_dino](https://www.reddit.com/user/oranke_dino/)
 
 
 
