@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mvx7aigke0wb1.jpg?width=100&height=100)
-* Meme Author: [Flaviphone](https://www.reddit.com/user/Flaviphone/)
+![Funny Meme](https://i.redd.it/z4r5vgm2ktvb1.jpg?width=100&height=100)
+* Meme Author: [AKLmfreak](https://www.reddit.com/user/AKLmfreak/)
 
 
 
