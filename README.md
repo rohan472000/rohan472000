@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dbpoh2qmdvvb1.jpg?width=100&height=100)
-* Meme Author: [VerySadGrizzlyBear](https://www.reddit.com/user/VerySadGrizzlyBear/)
+![Funny Meme](https://i.redd.it/rjyxgw7vvyvb1.jpg?width=100&height=100)
+* Meme Author: [Ghosted_Alpha](https://www.reddit.com/user/Ghosted_Alpha/)
 
 
 
