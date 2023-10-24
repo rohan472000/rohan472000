@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xb1vu4ak0zvb1.jpg?width=100&height=100)
-* Meme Author: [SuperAlex25](https://www.reddit.com/user/SuperAlex25/)
+![Funny Meme](https://i.redd.it/wywdluov9wvb1.png?width=100&height=100)
+* Meme Author: [scoutfromtf2isreal](https://www.reddit.com/user/scoutfromtf2isreal/)
 
 
 
