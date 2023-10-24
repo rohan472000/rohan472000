@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uo18ixbuo5wb1.jpg?width=100&height=100)
-* Meme Author: [khamelean](https://www.reddit.com/user/khamelean/)
+![Funny Meme](https://i.redd.it/l5fw4t0xu5wb1.jpg?width=100&height=100)
+* Meme Author: [Ez-lectronic](https://www.reddit.com/user/Ez-lectronic/)
 
 
 
