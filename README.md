@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/at504qilp0wb1.png?width=100&height=100)
-* Meme Author: [Unsure_Fry](https://www.reddit.com/user/Unsure_Fry/)
+![Funny Meme](https://i.redd.it/02u1nk6qzxvb1.jpg?width=100&height=100)
+* Meme Author: [Doctor-Patronising](https://www.reddit.com/user/Doctor-Patronising/)
 
 
 
