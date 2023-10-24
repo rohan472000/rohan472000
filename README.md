@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xub1fz0tr1wb1.jpg?width=100&height=100)
-* Meme Author: [Ch33zNugg3ts](https://www.reddit.com/user/Ch33zNugg3ts/)
+![Funny Meme](https://i.redd.it/1hozkzzcp4wb1.jpg?width=100&height=100)
+* Meme Author: [Yushin61](https://www.reddit.com/user/Yushin61/)
 
 
 
