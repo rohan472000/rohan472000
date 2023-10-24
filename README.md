@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1nc4zj3x1zvb1.jpg?width=100&height=100)
-* Meme Author: [TapiocaTuesday](https://www.reddit.com/user/TapiocaTuesday/)
+![Funny Meme](https://i.redd.it/oncx3t3651wb1.jpg?width=100&height=100)
+* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
 
 
 
