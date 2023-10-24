@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g65sl9nbb1wb1.jpg?width=100&height=100)
-* Meme Author: [DarkAlbertino](https://www.reddit.com/user/DarkAlbertino/)
+![Funny Meme](https://i.redd.it/ekrxf0okg3wb1.jpg?width=100&height=100)
+* Meme Author: [zacattack1989](https://www.reddit.com/user/zacattack1989/)
 
 
 
