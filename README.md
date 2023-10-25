@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hbxinjeb95wb1.jpg?width=100&height=100)
-* Meme Author: [oilcanboogie](https://www.reddit.com/user/oilcanboogie/)
+![Funny Meme](https://i.redd.it/3w85r2n7f6wb1.png?width=100&height=100)
+* Meme Author: [You_dontkn0wme](https://www.reddit.com/user/You_dontkn0wme/)
 
 
 
