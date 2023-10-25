@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/46dgbzdp2dwb1.jpg?width=100&height=100)
-* Meme Author: [ThrowawayBlast](https://www.reddit.com/user/ThrowawayBlast/)
+![Funny Meme](https://i.redd.it/j0cq4w4ld9wb1.png?width=100&height=100)
+* Meme Author: [Gudalik](https://www.reddit.com/user/Gudalik/)
 
 
 
