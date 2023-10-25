@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8wk3fd66wdwb1.jpg?width=100&height=100)
-* Meme Author: [Zajic_kamo](https://www.reddit.com/user/Zajic_kamo/)
+![Funny Meme](https://i.redd.it/zqepmt4dd9wb1.jpg?width=100&height=100)
+* Meme Author: [Eligon-5th](https://www.reddit.com/user/Eligon-5th/)
 
 
 
