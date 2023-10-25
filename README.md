@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m60e6n61m7wb1.png?width=100&height=100)
-* Meme Author: [LinuxLover21](https://www.reddit.com/user/LinuxLover21/)
+![Funny Meme](https://i.redd.it/fgzaepaz9xvb1.jpg?width=100&height=100)
+* Meme Author: [Jamminmb](https://www.reddit.com/user/Jamminmb/)
 
 
 
