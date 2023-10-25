@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oafa4rojtdwb1.jpg?width=100&height=100)
-* Meme Author: [painki11erzx](https://www.reddit.com/user/painki11erzx/)
+![Funny Meme](https://i.redd.it/dyemqfrqi8wb1.png?width=100&height=100)
+* Meme Author: [personnomad](https://www.reddit.com/user/personnomad/)
 
 
 
