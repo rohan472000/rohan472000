@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6i9gg0r0rdwb1.jpg?width=100&height=100)
-* Meme Author: [ryte-69](https://www.reddit.com/user/ryte-69/)
+![Funny Meme](https://i.redd.it/j0cq4w4ld9wb1.png?width=100&height=100)
+* Meme Author: [Gudalik](https://www.reddit.com/user/Gudalik/)
 
 
 
