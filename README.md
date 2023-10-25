@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lp7jzc8fm4wb1.jpg?width=100&height=100)
-* Meme Author: [ToufikSartana](https://www.reddit.com/user/ToufikSartana/)
+![Funny Meme](https://i.redd.it/pwmqy7ekq4wb1.jpg?width=100&height=100)
+* Meme Author: [CrysisFan2007](https://www.reddit.com/user/CrysisFan2007/)
 
 
 
