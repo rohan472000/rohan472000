@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/avoiuarmqdwb1.jpg?width=100&height=100)
-* Meme Author: [IcyBreloom](https://www.reddit.com/user/IcyBreloom/)
+![Funny Meme](https://i.redd.it/kwx9772tecwb1.jpg?width=100&height=100)
+* Meme Author: [FireFighter1459](https://www.reddit.com/user/FireFighter1459/)
 
 
 
