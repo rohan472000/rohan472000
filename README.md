@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pa7f3dumuewb1.jpg?width=100&height=100)
-* Meme Author: [rook183_](https://www.reddit.com/user/rook183_/)
+![Funny Meme](https://i.redd.it/lsc4ll1mrbwb1.jpg?width=100&height=100)
+* Meme Author: [shadid_bhai](https://www.reddit.com/user/shadid_bhai/)
 
 
 
