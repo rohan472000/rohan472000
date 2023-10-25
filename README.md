@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ug7ov3c125wb1.jpg?width=100&height=100)
-* Meme Author: [Successful-Seaweed12](https://www.reddit.com/user/Successful-Seaweed12/)
+![Funny Meme](https://i.redd.it/dzliib94g3wb1.jpg?width=100&height=100)
+* Meme Author: [1997D190P](https://www.reddit.com/user/1997D190P/)
 
 
 
