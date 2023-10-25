@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ghnqfehmsewb1.png?width=100&height=100)
-* Meme Author: [loolkeeper](https://www.reddit.com/user/loolkeeper/)
+![Funny Meme](https://i.redd.it/ki64o5jeh6wb1.jpg?width=100&height=100)
+* Meme Author: [Kinaepixy](https://www.reddit.com/user/Kinaepixy/)
 
 
 
