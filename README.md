@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x48kg75e18wb1.png?width=100&height=100)
-* Meme Author: [MRFAMER](https://www.reddit.com/user/MRFAMER/)
+![Funny Meme](https://i.redd.it/ydhxtj2nc4wb1.png?width=100&height=100)
+* Meme Author: [mojo72400](https://www.reddit.com/user/mojo72400/)
 
 
 
