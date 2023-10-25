@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/83od0j.jpg?width=100&height=100)
-* Meme Author: [artemismilkman](https://www.reddit.com/user/artemismilkman/)
+![Funny Meme](https://i.redd.it/c50rtk23f9wb1.jpg?width=100&height=100)
+* Meme Author: [Embarrassed-Mouse-49](https://www.reddit.com/user/Embarrassed-Mouse-49/)
 
 
 
