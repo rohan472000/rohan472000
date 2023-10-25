@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nl6mms7vjcwb1.jpg?width=100&height=100)
-* Meme Author: [Swimming-Ad-6842](https://www.reddit.com/user/Swimming-Ad-6842/)
+![Funny Meme](https://i.redd.it/pyj7zrp428wb1.jpg?width=100&height=100)
+* Meme Author: [Traditional-Reach818](https://www.reddit.com/user/Traditional-Reach818/)
 
 
 
