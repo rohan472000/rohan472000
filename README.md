@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wxb9w1gap5wb1.jpg?width=100&height=100)
-* Meme Author: [SpackleButt](https://www.reddit.com/user/SpackleButt/)
+![Funny Meme](https://i.redd.it/d923n5e0g9wb1.png?width=100&height=100)
+* Meme Author: [RiskNew6639](https://www.reddit.com/user/RiskNew6639/)
 
 
 
