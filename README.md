@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d923n5e0g9wb1.png?width=100&height=100)
-* Meme Author: [RiskNew6639](https://www.reddit.com/user/RiskNew6639/)
+![Funny Meme](https://i.redd.it/skcaiwqna9wb1.jpg?width=100&height=100)
+* Meme Author: [Pizzafactory102](https://www.reddit.com/user/Pizzafactory102/)
 
 
 
