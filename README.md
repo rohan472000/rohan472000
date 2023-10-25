@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x67mb1to35wb1.jpg?width=100&height=100)
-* Meme Author: [snowfalcon777](https://www.reddit.com/user/snowfalcon777/)
+![Funny Meme](https://i.redd.it/igfmq5qlr9wb1.jpg?width=100&height=100)
+* Meme Author: [adolf_tittler69](https://www.reddit.com/user/adolf_tittler69/)
 
 
 
