@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0oqw5ohgpcwb1.png?width=100&height=100)
-* Meme Author: [BrokenSignal22](https://www.reddit.com/user/BrokenSignal22/)
+![Funny Meme](https://i.redd.it/fk1akdxc49wb1.jpg?width=100&height=100)
+* Meme Author: [TyYoshi69](https://www.reddit.com/user/TyYoshi69/)
 
 
 
