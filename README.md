@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lgn4qwpg3bwb1.jpg?width=100&height=100)
-* Meme Author: [OddSpend2577](https://www.reddit.com/user/OddSpend2577/)
+![Funny Meme](https://i.redd.it/0oqw5ohgpcwb1.png?width=100&height=100)
+* Meme Author: [BrokenSignal22](https://www.reddit.com/user/BrokenSignal22/)
 
 
 
