@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y2rz37fkxcwb1.png?width=100&height=100)
-* Meme Author: [rewritingextinction](https://www.reddit.com/user/rewritingextinction/)
+![Funny Meme](https://i.redd.it/2wjk4rmdudwb1.jpg?width=100&height=100)
+* Meme Author: [Ubizwa](https://www.reddit.com/user/Ubizwa/)
 
 
 
