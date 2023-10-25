@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wdjrm1v6f6wb1.jpg?width=100&height=100)
-* Meme Author: [xgodlesssaintx](https://www.reddit.com/user/xgodlesssaintx/)
+![Funny Meme](https://i.redd.it/qhawwda4j5wb1.png?width=100&height=100)
+* Meme Author: [honda_civic_1993](https://www.reddit.com/user/honda_civic_1993/)
 
 
 
