@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9orapzcgz3wb1.jpg?width=100&height=100)
-* Meme Author: [WaterConstant](https://www.reddit.com/user/WaterConstant/)
+![Funny Meme](https://i.redd.it/e3o37kqss8wb1.jpg?width=100&height=100)
+* Meme Author: [Ryg128](https://www.reddit.com/user/Ryg128/)
 
 
 
