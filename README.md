@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/luoqbala86wb1.png?width=100&height=100)
-* Meme Author: [Leinad_Aropmaca](https://www.reddit.com/user/Leinad_Aropmaca/)
+![Funny Meme](https://i.redd.it/edabwiwpb5wb1.jpg?width=100&height=100)
+* Meme Author: [Enugie](https://www.reddit.com/user/Enugie/)
 
 
 
