@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b2l8lqsqn4wb1.jpg?width=100&height=100)
-* Meme Author: [Klausensen](https://www.reddit.com/user/Klausensen/)
+![Funny Meme](https://i.redd.it/105rz11tybwb1.png?width=100&height=100)
+* Meme Author: [Zestyclose_Public372](https://www.reddit.com/user/Zestyclose_Public372/)
 
 
 
