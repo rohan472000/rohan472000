@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vzaj5nv5sawb1.png?width=100&height=100)
-* Meme Author: [Acegenius18](https://www.reddit.com/user/Acegenius18/)
+![Funny Meme](https://i.redd.it/x67mb1to35wb1.jpg?width=100&height=100)
+* Meme Author: [snowfalcon777](https://www.reddit.com/user/snowfalcon777/)
 
 
 
