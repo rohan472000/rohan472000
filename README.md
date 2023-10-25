@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r2271vjmg9wb1.jpg?width=100&height=100)
-* Meme Author: [OkSignificance7617](https://www.reddit.com/user/OkSignificance7617/)
+![Funny Meme](https://i.redd.it/oafa4rojtdwb1.jpg?width=100&height=100)
+* Meme Author: [painki11erzx](https://www.reddit.com/user/painki11erzx/)
 
 
 
