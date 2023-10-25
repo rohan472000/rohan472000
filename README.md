@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qhawwda4j5wb1.png?width=100&height=100)
-* Meme Author: [honda_civic_1993](https://www.reddit.com/user/honda_civic_1993/)
+![Funny Meme](https://i.redd.it/y2rz37fkxcwb1.png?width=100&height=100)
+* Meme Author: [rewritingextinction](https://www.reddit.com/user/rewritingextinction/)
 
 
 
