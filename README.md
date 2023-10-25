@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nzwy2fda47wb1.jpg?width=100&height=100)
-* Meme Author: [bewarethechameleon](https://www.reddit.com/user/bewarethechameleon/)
+![Funny Meme](https://i.redd.it/w1llejtdi6wb1.jpg?width=100&height=100)
+* Meme Author: [TwoNamesNoFace](https://www.reddit.com/user/TwoNamesNoFace/)
 
 
 
