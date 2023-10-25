@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vzaj5nv5sawb1.png?width=100&height=100)
-* Meme Author: [Acegenius18](https://www.reddit.com/user/Acegenius18/)
+![Funny Meme](https://i.redd.it/97gx1dnx16wb1.jpg?width=100&height=100)
+* Meme Author: [-_-RSlashFan-_-](https://www.reddit.com/user/-_-RSlashFan-_-/)
 
 
 
