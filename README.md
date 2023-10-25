@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b2l8lqsqn4wb1.jpg?width=100&height=100)
-* Meme Author: [Klausensen](https://www.reddit.com/user/Klausensen/)
+![Funny Meme](https://i.redd.it/skcaiwqna9wb1.jpg?width=100&height=100)
+* Meme Author: [Pizzafactory102](https://www.reddit.com/user/Pizzafactory102/)
 
 
 
