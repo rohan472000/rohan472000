@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ujvyvqkkl8wb1.jpg?width=100&height=100)
-* Meme Author: [PleaseMakeUpYourMind](https://www.reddit.com/user/PleaseMakeUpYourMind/)
+![Funny Meme](https://i.redd.it/3j6yjuhjrcwb1.jpg?width=100&height=100)
+* Meme Author: [Both_Tone](https://www.reddit.com/user/Both_Tone/)
 
 
 
