@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ug7ov3c125wb1.jpg?width=100&height=100)
-* Meme Author: [Successful-Seaweed12](https://www.reddit.com/user/Successful-Seaweed12/)
+![Funny Meme](https://i.redd.it/wxb9w1gap5wb1.jpg?width=100&height=100)
+* Meme Author: [SpackleButt](https://www.reddit.com/user/SpackleButt/)
 
 
 
