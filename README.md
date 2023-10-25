@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lpf7ds9ge7wb1.jpg?width=100&height=100)
-* Meme Author: [brontokoli](https://www.reddit.com/user/brontokoli/)
+![Funny Meme](https://i.redd.it/0w0gphcdy6wb1.jpg?width=100&height=100)
+* Meme Author: [Iamfromsweden11_2](https://www.reddit.com/user/Iamfromsweden11_2/)
 
 
 
