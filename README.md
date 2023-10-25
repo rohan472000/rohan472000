@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zqepmt4dd9wb1.jpg?width=100&height=100)
-* Meme Author: [Eligon-5th](https://www.reddit.com/user/Eligon-5th/)
+![Funny Meme](https://i.redd.it/z4oloufrdcwb1.jpg?width=100&height=100)
+* Meme Author: [Gugarabelo](https://www.reddit.com/user/Gugarabelo/)
 
 
 
