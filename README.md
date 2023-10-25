@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qtw8imdmr9wb1.jpg?width=100&height=100)
-* Meme Author: [Bugtotes](https://www.reddit.com/user/Bugtotes/)
+![Funny Meme](https://i.redd.it/ut788w5kk8wb1.jpg?width=100&height=100)
+* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
 
 
 
