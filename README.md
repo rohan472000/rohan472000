@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7mjmj0nwtdwb1.jpg?width=100&height=100)
-* Meme Author: [Get-the-Vibe](https://www.reddit.com/user/Get-the-Vibe/)
+![Funny Meme](https://i.redd.it/abh30nnjd6wb1.jpg?width=100&height=100)
+* Meme Author: [Enough_Limit_501](https://www.reddit.com/user/Enough_Limit_501/)
 
 
 
