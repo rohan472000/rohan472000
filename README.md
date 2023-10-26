@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1177ujztnbwb1.jpg?width=100&height=100)
-* Meme Author: [Fox-HD](https://www.reddit.com/user/Fox-HD/)
+![Funny Meme](https://i.redd.it/2d47fsy1t8wb1.jpg?width=100&height=100)
+* Meme Author: [uppsak](https://www.reddit.com/user/uppsak/)
 
 
 
