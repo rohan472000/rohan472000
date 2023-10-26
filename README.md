@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uo4qynk5ecwb1.jpg?width=100&height=100)
-* Meme Author: [wurstwassa-](https://www.reddit.com/user/wurstwassa-/)
+![Funny Meme](https://i.redd.it/k3jhqbus3lwb1.jpg?width=100&height=100)
+* Meme Author: [Beanz_wut_du_fu-](https://www.reddit.com/user/Beanz_wut_du_fu-/)
 
 
 
