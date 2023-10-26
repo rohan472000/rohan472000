@@ -4,7 +4,7 @@ import re
 
 class TestReadme(unittest.TestCase):
     def test_readme_contains_sections(self):
-        with open("README.md", "r", encoding="utf-8") as readme_file:
+        with open("../README.md", "r", encoding="utf-8") as readme_file:
             readme_contents = readme_file.read()
 
         # Check for the "Connect with me👋" section
