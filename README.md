@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/go8pglslf9wb1.jpg?width=100&height=100)
-* Meme Author: [i-love-nintendo-1402](https://www.reddit.com/user/i-love-nintendo-1402/)
+![Funny Meme](https://i.redd.it/iqps0vxg1fwb1.jpg?width=100&height=100)
+* Meme Author: [I-eat-foot](https://www.reddit.com/user/I-eat-foot/)
 
 
 
