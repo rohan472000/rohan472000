@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fwncuv1gdfwb1.jpg?width=100&height=100)
-* Meme Author: [Hikillyourself](https://www.reddit.com/user/Hikillyourself/)
+![Funny Meme](https://i.redd.it/uo4qynk5ecwb1.jpg?width=100&height=100)
+* Meme Author: [wurstwassa-](https://www.reddit.com/user/wurstwassa-/)
 
 
 
