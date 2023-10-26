@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wl9df1k279wb1.jpg?width=100&height=100)
-* Meme Author: [theunknown_master](https://www.reddit.com/user/theunknown_master/)
+![Funny Meme](https://i.redd.it/go8pglslf9wb1.jpg?width=100&height=100)
+* Meme Author: [i-love-nintendo-1402](https://www.reddit.com/user/i-love-nintendo-1402/)
 
 
 
