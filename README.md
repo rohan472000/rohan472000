@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/40wz0ktdbewb1.jpg?width=100&height=100)
-* Meme Author: [Lazy-Lengthiness1188](https://www.reddit.com/user/Lazy-Lengthiness1188/)
+![Funny Meme](https://i.redd.it/ul8w22cy3ewb1.jpg?width=100&height=100)
+* Meme Author: [porkchop150](https://www.reddit.com/user/porkchop150/)
 
 
 
