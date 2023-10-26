@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zflx43d9pgwb1.jpg?width=100&height=100)
-* Meme Author: [CalciferAtlas](https://www.reddit.com/user/CalciferAtlas/)
+![Funny Meme](https://i.redd.it/o013ecrak9wb1.jpg?width=100&height=100)
+* Meme Author: [greenmountainstoned](https://www.reddit.com/user/greenmountainstoned/)
 
 
 
