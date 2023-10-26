@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4qliey32icwb1.jpg?width=100&height=100)
-* Meme Author: [Wattersonpl](https://www.reddit.com/user/Wattersonpl/)
+![Funny Meme](https://i.redd.it/cb6ihok2rbwb1.jpg?width=100&height=100)
+* Meme Author: [sozialabfall](https://www.reddit.com/user/sozialabfall/)
 
 
 
