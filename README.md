@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j9sviu9rfcwb1.jpg?width=100&height=100)
-* Meme Author: [Bald_Wolverine](https://www.reddit.com/user/Bald_Wolverine/)
+![Funny Meme](https://i.redd.it/oafa4rojtdwb1.jpg?width=100&height=100)
+* Meme Author: [painki11erzx](https://www.reddit.com/user/painki11erzx/)
 
 
 
