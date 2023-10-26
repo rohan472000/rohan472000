@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4f3tzx17dcwb1.jpg?width=100&height=100)
-* Meme Author: [EMERALDREAPER_503](https://www.reddit.com/user/EMERALDREAPER_503/)
+![Funny Meme](https://i.redd.it/1177ujztnbwb1.jpg?width=100&height=100)
+* Meme Author: [Fox-HD](https://www.reddit.com/user/Fox-HD/)
 
 
 
