@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l851njtl9fwb1.png?width=100&height=100)
-* Meme Author: [HeroR9390](https://www.reddit.com/user/HeroR9390/)
+![Funny Meme](https://i.redd.it/oxq3x7mz6gwb1.jpg?width=100&height=100)
+* Meme Author: [CerrtifiedBrUhmoMenT](https://www.reddit.com/user/CerrtifiedBrUhmoMenT/)
 
 
 
