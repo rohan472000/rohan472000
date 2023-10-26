@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4mhhbyrxiewb1.jpg?width=100&height=100)
-* Meme Author: [pureedchicken](https://www.reddit.com/user/pureedchicken/)
+![Funny Meme](https://i.redd.it/9e1tie0n1hwb1.jpg?width=100&height=100)
+* Meme Author: [misterdudebro](https://www.reddit.com/user/misterdudebro/)
 
 
 
