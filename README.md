@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mtoa1ej7abwb1.jpg?width=100&height=100)
-* Meme Author: [usamaejazch](https://www.reddit.com/user/usamaejazch/)
+![Funny Meme](https://i.redd.it/hegc3wgajhwb1.jpg?width=100&height=100)
+* Meme Author: [Inside_League_5610](https://www.reddit.com/user/Inside_League_5610/)
 
 
 
