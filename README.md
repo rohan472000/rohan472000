@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mxjhunftshwb1.jpg?width=100&height=100)
-* Meme Author: [Neither_Excitement63](https://www.reddit.com/user/Neither_Excitement63/)
+![Funny Meme](https://i.redd.it/us3ldxn0ydwb1.png?width=100&height=100)
+* Meme Author: [The_Stampede_Black](https://www.reddit.com/user/The_Stampede_Black/)
 
 
 
