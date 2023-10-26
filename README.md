@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qtw8imdmr9wb1.jpg?width=100&height=100)
-* Meme Author: [Bugtotes](https://www.reddit.com/user/Bugtotes/)
+![Funny Meme](https://i.imgflip.com/83tmz1.jpg?width=100&height=100)
+* Meme Author: [artemismilkman](https://www.reddit.com/user/artemismilkman/)
 
 
 
