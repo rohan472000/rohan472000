@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fwncuv1gdfwb1.jpg?width=100&height=100)
-* Meme Author: [Hikillyourself](https://www.reddit.com/user/Hikillyourself/)
+![Funny Meme](https://i.redd.it/zjwkru7pnewb1.jpg?width=100&height=100)
+* Meme Author: [PeevesPoltergist](https://www.reddit.com/user/PeevesPoltergist/)
 
 
 
