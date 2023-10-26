@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9e1tie0n1hwb1.jpg?width=100&height=100)
-* Meme Author: [misterdudebro](https://www.reddit.com/user/misterdudebro/)
+![Funny Meme](https://i.redd.it/7dwxmpsjmiwb1.jpg?width=100&height=100)
+* Meme Author: [Speederkyle](https://www.reddit.com/user/Speederkyle/)
 
 
 
