@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/96ocvtfy7hwb1.jpg?width=100&height=100)
-* Meme Author: [PolishKuroaki](https://www.reddit.com/user/PolishKuroaki/)
+![Funny Meme](https://i.redd.it/hg4kgp1a1mwb1.jpg?width=100&height=100)
+* Meme Author: [MahloGolem](https://www.reddit.com/user/MahloGolem/)
 
 
 
