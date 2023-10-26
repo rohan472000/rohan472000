@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9k6osiq8kgwb1.jpg?width=100&height=100)
-* Meme Author: [Ssboipoiy](https://www.reddit.com/user/Ssboipoiy/)
+![Funny Meme](https://i.redd.it/wl9df1k279wb1.jpg?width=100&height=100)
+* Meme Author: [theunknown_master](https://www.reddit.com/user/theunknown_master/)
 
 
 
