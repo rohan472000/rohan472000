@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2aloffwzyiwb1.jpg?width=100&height=100)
-* Meme Author: [Arcadepokemon](https://www.reddit.com/user/Arcadepokemon/)
+![Funny Meme](https://i.redd.it/g9tq2vwfcdwb1.jpg?width=100&height=100)
+* Meme Author: [TheMem3Lord](https://www.reddit.com/user/TheMem3Lord/)
 
 
 
