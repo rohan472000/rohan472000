@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zdgvzvqflfwb1.jpg?width=100&height=100)
-* Meme Author: [dr_stitch_bitch](https://www.reddit.com/user/dr_stitch_bitch/)
+![Funny Meme](https://i.redd.it/ndb4zr101hwb1.jpg?width=100&height=100)
+* Meme Author: [smoothAsH20](https://www.reddit.com/user/smoothAsH20/)
 
 
 
