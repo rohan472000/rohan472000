@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o013ecrak9wb1.jpg?width=100&height=100)
-* Meme Author: [greenmountainstoned](https://www.reddit.com/user/greenmountainstoned/)
+![Funny Meme](https://i.redd.it/go8pglslf9wb1.jpg?width=100&height=100)
+* Meme Author: [i-love-nintendo-1402](https://www.reddit.com/user/i-love-nintendo-1402/)
 
 
 
