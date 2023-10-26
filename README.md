@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ro0n8pcfxgwb1.jpg?width=100&height=100)
-* Meme Author: [TheMadJAM](https://www.reddit.com/user/TheMadJAM/)
+![Funny Meme](https://i.redd.it/valb2m362gwb1.png?width=100&height=100)
+* Meme Author: [JaxTheCrafter](https://www.reddit.com/user/JaxTheCrafter/)
 
 
 
