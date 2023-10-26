@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dbfzmpf8fdwb1.jpg?width=100&height=100)
-* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
+![Funny Meme](https://i.redd.it/jvdsmf2t1cwb1.png?width=100&height=100)
+* Meme Author: [LawfulCrac](https://www.reddit.com/user/LawfulCrac/)
 
 
 
