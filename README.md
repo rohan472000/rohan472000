@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eh19xoq6efwb1.jpg?width=100&height=100)
-* Meme Author: [lukhomdingi](https://www.reddit.com/user/lukhomdingi/)
+![Funny Meme](https://i.redd.it/15mjiur4ulwb1.jpg?width=100&height=100)
+* Meme Author: [Cold_Zero_](https://www.reddit.com/user/Cold_Zero_/)
 
 
 
