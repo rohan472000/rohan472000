@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2d47fsy1t8wb1.jpg?width=100&height=100)
-* Meme Author: [uppsak](https://www.reddit.com/user/uppsak/)
+![Funny Meme](https://i.redd.it/1p246ql3sewb1.jpg?width=100&height=100)
+* Meme Author: [Coralthesequel](https://www.reddit.com/user/Coralthesequel/)
 
 
 
