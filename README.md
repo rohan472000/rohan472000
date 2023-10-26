@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fw5cyx3qhdwb1.jpg?width=100&height=100)
-* Meme Author: [Embarrassed-Drive-82](https://www.reddit.com/user/Embarrassed-Drive-82/)
+![Funny Meme](https://i.redd.it/34nkfn56niwb1.png?width=100&height=100)
+* Meme Author: [Hexxegone](https://www.reddit.com/user/Hexxegone/)
 
 
 
