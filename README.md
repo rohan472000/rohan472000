@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/valb2m362gwb1.png?width=100&height=100)
-* Meme Author: [JaxTheCrafter](https://www.reddit.com/user/JaxTheCrafter/)
+![Funny Meme](https://i.redd.it/hgd0dzcjybwb1.jpg?width=100&height=100)
+* Meme Author: [danny_divillo](https://www.reddit.com/user/danny_divillo/)
 
 
 
