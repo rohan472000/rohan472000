@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hrbdaxroulwb1.jpg?width=100&height=100)
-* Meme Author: [wired1984](https://www.reddit.com/user/wired1984/)
+![Funny Meme](https://i.redd.it/vjh2jbssqjwb1.jpg?width=100&height=100)
+* Meme Author: [Alexdoh](https://www.reddit.com/user/Alexdoh/)
 
 
 
