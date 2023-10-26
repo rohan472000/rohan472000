@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k3jhqbus3lwb1.jpg?width=100&height=100)
-* Meme Author: [Beanz_wut_du_fu-](https://www.reddit.com/user/Beanz_wut_du_fu-/)
+![Funny Meme](https://i.redd.it/mpqrsd966lwb1.jpg?width=100&height=100)
+* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
 
 
 
