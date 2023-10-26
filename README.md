@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iqps0vxg1fwb1.jpg?width=100&height=100)
-* Meme Author: [I-eat-foot](https://www.reddit.com/user/I-eat-foot/)
+![Funny Meme](https://i.redd.it/107yg2ntqgwb1.jpg?width=100&height=100)
+* Meme Author: [Expert_Camel5619](https://www.reddit.com/user/Expert_Camel5619/)
 
 
 
