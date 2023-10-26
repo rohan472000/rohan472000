@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nyk46o82zfwb1.png?width=100&height=100)
-* Meme Author: [Still_Satan](https://www.reddit.com/user/Still_Satan/)
+![Funny Meme](https://i.redd.it/zjwkru7pnewb1.jpg?width=100&height=100)
+* Meme Author: [PeevesPoltergist](https://www.reddit.com/user/PeevesPoltergist/)
 
 
 
