@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jvdsmf2t1cwb1.png?width=100&height=100)
-* Meme Author: [LawfulCrac](https://www.reddit.com/user/LawfulCrac/)
+![Funny Meme](https://i.redd.it/1xroa9nj6hwb1.jpg?width=100&height=100)
+* Meme Author: [Phantom-Wolf13](https://www.reddit.com/user/Phantom-Wolf13/)
 
 
 
