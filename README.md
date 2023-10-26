@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wmtu1ezg39wb1.png?width=100&height=100)
-* Meme Author: [alefpmsz](https://www.reddit.com/user/alefpmsz/)
+![Funny Meme](https://i.redd.it/zflx43d9pgwb1.jpg?width=100&height=100)
+* Meme Author: [CalciferAtlas](https://www.reddit.com/user/CalciferAtlas/)
 
 
 
