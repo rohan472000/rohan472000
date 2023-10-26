@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g9tq2vwfcdwb1.jpg?width=100&height=100)
-* Meme Author: [TheMem3Lord](https://www.reddit.com/user/TheMem3Lord/)
+![Funny Meme](https://i.redd.it/ryvs6gcl3jwb1.jpg?width=100&height=100)
+* Meme Author: [GoodGuy_Strelok](https://www.reddit.com/user/GoodGuy_Strelok/)
 
 
 
