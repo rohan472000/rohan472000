@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oxq3x7mz6gwb1.jpg?width=100&height=100)
-* Meme Author: [CerrtifiedBrUhmoMenT](https://www.reddit.com/user/CerrtifiedBrUhmoMenT/)
+![Funny Meme](https://i.redd.it/bjn6s312oewb1.jpg?width=100&height=100)
+* Meme Author: [KingGoldar](https://www.reddit.com/user/KingGoldar/)
 
 
 
