@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rjbkpftdcdwb1.jpg?width=100&height=100)
-* Meme Author: [Significant-Hyena870](https://www.reddit.com/user/Significant-Hyena870/)
+![Funny Meme](https://i.redd.it/7mjmj0nwtdwb1.jpg?width=100&height=100)
+* Meme Author: [Get-the-Vibe](https://www.reddit.com/user/Get-the-Vibe/)
 
 
 
