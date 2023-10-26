@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mpqrsd966lwb1.jpg?width=100&height=100)
-* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
+![Funny Meme](https://i.redd.it/nyvo120bhewb1.png?width=100&height=100)
+* Meme Author: [Crafter235](https://www.reddit.com/user/Crafter235/)
 
 
 
