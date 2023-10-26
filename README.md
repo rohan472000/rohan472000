@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6xm9m38gahwb1.jpg?width=100&height=100)
-* Meme Author: [tekzenmusic](https://www.reddit.com/user/tekzenmusic/)
+![Funny Meme](https://i.redd.it/4mhhbyrxiewb1.jpg?width=100&height=100)
+* Meme Author: [pureedchicken](https://www.reddit.com/user/pureedchicken/)
 
 
 
