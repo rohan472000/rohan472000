@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/goi7i5dcybwb1.jpg?width=100&height=100)
-* Meme Author: [ArnoyaAri](https://www.reddit.com/user/ArnoyaAri/)
+![Funny Meme](https://i.redd.it/vid5kizlpcwb1.jpg?width=100&height=100)
+* Meme Author: [SafifromSevenSeas](https://www.reddit.com/user/SafifromSevenSeas/)
 
 
 
