@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ebsr8cta6gwb1.jpg?width=100&height=100)
-* Meme Author: [SmoothieRedditor](https://www.reddit.com/user/SmoothieRedditor/)
+![Funny Meme](https://i.redd.it/qt6nsi5vkhwb1.jpg?width=100&height=100)
+* Meme Author: [ajjflash](https://www.reddit.com/user/ajjflash/)
 
 
 
