@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bjn6s312oewb1.jpg?width=100&height=100)
-* Meme Author: [KingGoldar](https://www.reddit.com/user/KingGoldar/)
+![Funny Meme](https://i.redd.it/2aloffwzyiwb1.jpg?width=100&height=100)
+* Meme Author: [Arcadepokemon](https://www.reddit.com/user/Arcadepokemon/)
 
 
 
