@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c1zfxudlukwb1.jpg?width=100&height=100)
-* Meme Author: [mrid82](https://www.reddit.com/user/mrid82/)
+![Funny Meme](https://i.redd.it/9iih83pkpewb1.jpg?width=100&height=100)
+* Meme Author: [Tedster42](https://www.reddit.com/user/Tedster42/)
 
 
 
