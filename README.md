@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d9ywotuxx9wb1.jpg?width=100&height=100)
-* Meme Author: [muglife-101](https://www.reddit.com/user/muglife-101/)
+![Funny Meme](https://i.redd.it/ijepusjutdwb1.jpg?width=100&height=100)
+* Meme Author: [inevitable__guy__](https://www.reddit.com/user/inevitable__guy__/)
 
 
 
