@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ksue6dk64dwb1.jpg?width=100&height=100)
-* Meme Author: [PeevesPoltergist](https://www.reddit.com/user/PeevesPoltergist/)
+![Funny Meme](https://i.redd.it/8r8ofl8acewb1.jpg?width=100&height=100)
+* Meme Author: [DaveTheRocketGuy](https://www.reddit.com/user/DaveTheRocketGuy/)
 
 
 
