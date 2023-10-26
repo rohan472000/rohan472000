@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ijepusjutdwb1.jpg?width=100&height=100)
-* Meme Author: [inevitable__guy__](https://www.reddit.com/user/inevitable__guy__/)
+![Funny Meme](https://i.redd.it/4qliey32icwb1.jpg?width=100&height=100)
+* Meme Author: [Wattersonpl](https://www.reddit.com/user/Wattersonpl/)
 
 
 
