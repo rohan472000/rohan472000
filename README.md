@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ul8w22cy3ewb1.jpg?width=100&height=100)
-* Meme Author: [porkchop150](https://www.reddit.com/user/porkchop150/)
+![Funny Meme](https://i.redd.it/goi7i5dcybwb1.jpg?width=100&height=100)
+* Meme Author: [ArnoyaAri](https://www.reddit.com/user/ArnoyaAri/)
 
 
 
