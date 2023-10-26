@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f709iw9fxdwb1.jpg?width=100&height=100)
-* Meme Author: [Still-Bison-1108](https://www.reddit.com/user/Still-Bison-1108/)
+![Funny Meme](https://i.redd.it/d9ywotuxx9wb1.jpg?width=100&height=100)
+* Meme Author: [muglife-101](https://www.reddit.com/user/muglife-101/)
 
 
 
