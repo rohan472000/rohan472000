@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dr731tdpnlwb1.jpg?width=100&height=100)
-* Meme Author: [BoMesSa](https://www.reddit.com/user/BoMesSa/)
+![Funny Meme](https://i.redd.it/2hq6yuadikwb1.png?width=100&height=100)
+* Meme Author: [honda_civic_1993](https://www.reddit.com/user/honda_civic_1993/)
 
 
 
