@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jvdsmf2t1cwb1.png?width=100&height=100)
-* Meme Author: [LawfulCrac](https://www.reddit.com/user/LawfulCrac/)
+![Funny Meme](https://i.imgur.com/SmyMLIt.jpg?width=100&height=100)
+* Meme Author: [Valladian](https://www.reddit.com/user/Valladian/)
 
 
 
