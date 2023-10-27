@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hcdq96htdqwb1.jpg?width=100&height=100)
-* Meme Author: [oranke_dino](https://www.reddit.com/user/oranke_dino/)
+![Funny Meme](https://i.redd.it/icrgpwgx8pwb1.jpg?width=100&height=100)
+* Meme Author: [scroll_down_or_not](https://www.reddit.com/user/scroll_down_or_not/)
 
 
 
