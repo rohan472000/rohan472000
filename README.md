@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/litwu8sr9kwb1.jpg?width=100&height=100)
-* Meme Author: [yaboiiiiii146](https://www.reddit.com/user/yaboiiiiii146/)
+![Funny Meme](https://i.redd.it/g07jis7i0hwb1.jpg?width=100&height=100)
+* Meme Author: [child-of-old-gods](https://www.reddit.com/user/child-of-old-gods/)
 
 
 
