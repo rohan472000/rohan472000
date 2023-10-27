@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/icrgpwgx8pwb1.jpg?width=100&height=100)
-* Meme Author: [scroll_down_or_not](https://www.reddit.com/user/scroll_down_or_not/)
+![Funny Meme](https://i.redd.it/ay3qcuajsswb1.jpg?width=100&height=100)
+* Meme Author: [ollie20025](https://www.reddit.com/user/ollie20025/)
 
 
 
