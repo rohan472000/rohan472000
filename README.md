@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x3m57ne25nwb1.jpg?width=100&height=100)
-* Meme Author: [Zelphadiem](https://www.reddit.com/user/Zelphadiem/)
+![Funny Meme](https://i.redd.it/sz8ssgmm2jwb1.jpg?width=100&height=100)
+* Meme Author: [FrankieGS](https://www.reddit.com/user/FrankieGS/)
 
 
 
