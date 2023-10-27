@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z3wojxkrjmwb1.jpg?width=100&height=100)
-* Meme Author: [Tom2Tom2005](https://www.reddit.com/user/Tom2Tom2005/)
+![Funny Meme](https://i.redd.it/obih4impdowb1.jpg?width=100&height=100)
+* Meme Author: [Midnight_Barbara](https://www.reddit.com/user/Midnight_Barbara/)
 
 
 
