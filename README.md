@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/caqv0g3jtjwb1.jpg?width=100&height=100)
-* Meme Author: [Sweaty-Wealth9157](https://www.reddit.com/user/Sweaty-Wealth9157/)
+![Funny Meme](https://i.redd.it/eyqylbeo8gwb1.jpg?width=100&height=100)
+* Meme Author: [DJ_Ender_](https://www.reddit.com/user/DJ_Ender_/)
 
 
 
