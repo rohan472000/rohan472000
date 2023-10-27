@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hrbdaxroulwb1.jpg?width=100&height=100)
-* Meme Author: [wired1984](https://www.reddit.com/user/wired1984/)
+![Funny Meme](https://i.redd.it/ecw3118ueqwb1.jpg?width=100&height=100)
+* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
 
 
 
