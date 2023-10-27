@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9k6osiq8kgwb1.jpg?width=100&height=100)
-* Meme Author: [Ssboipoiy](https://www.reddit.com/user/Ssboipoiy/)
+![Funny Meme](https://i.redd.it/mjds2fgi8nwb1.jpg?width=100&height=100)
+* Meme Author: [Beneficial-Ad-5492](https://www.reddit.com/user/Beneficial-Ad-5492/)
 
 
 
