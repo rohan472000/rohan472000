@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eyqylbeo8gwb1.jpg?width=100&height=100)
-* Meme Author: [DJ_Ender_](https://www.reddit.com/user/DJ_Ender_/)
+![Funny Meme](https://i.redd.it/qysv2uhkbkwb1.jpg?width=100&height=100)
+* Meme Author: [DeathyWolf](https://www.reddit.com/user/DeathyWolf/)
 
 
 
