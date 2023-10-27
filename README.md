@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1m44vp1fgswb1.jpg?width=100&height=100)
-* Meme Author: [Lego_Gasgano_Minifig](https://www.reddit.com/user/Lego_Gasgano_Minifig/)
+![Funny Meme](https://i.redd.it/hrbdaxroulwb1.jpg?width=100&height=100)
+* Meme Author: [wired1984](https://www.reddit.com/user/wired1984/)
 
 
 
