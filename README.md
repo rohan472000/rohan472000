@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/satvmcnv4mwb1.jpg?width=100&height=100)
-* Meme Author: [Mr-Ideasman](https://www.reddit.com/user/Mr-Ideasman/)
+![Funny Meme](https://i.redd.it/0pvp8rf4pkwb1.jpg?width=100&height=100)
+* Meme Author: [Dry_Concentrate6653](https://www.reddit.com/user/Dry_Concentrate6653/)
 
 
 
