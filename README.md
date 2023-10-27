@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qefg27cd3lwb1.jpg?width=100&height=100)
-* Meme Author: [VividAwareness4719](https://www.reddit.com/user/VividAwareness4719/)
+![Funny Meme](https://i.redd.it/s3nar1tj4nwb1.png?width=100&height=100)
+* Meme Author: [EnderFlyingLizard](https://www.reddit.com/user/EnderFlyingLizard/)
 
 
 
