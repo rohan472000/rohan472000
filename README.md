@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lr27n5tiwpwb1.jpg?width=100&height=100)
-* Meme Author: [Turbulent-Passage124](https://www.reddit.com/user/Turbulent-Passage124/)
+![Funny Meme](https://i.redd.it/qt6nsi5vkhwb1.jpg?width=100&height=100)
+* Meme Author: [ajjflash](https://www.reddit.com/user/ajjflash/)
 
 
 
