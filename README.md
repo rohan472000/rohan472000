@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0pstrhuuvmwb1.jpg?width=100&height=100)
-* Meme Author: [IDoctorZer0I](https://www.reddit.com/user/IDoctorZer0I/)
+![Funny Meme](https://i.redd.it/f7cf7qalmjwb1.png?width=100&height=100)
+* Meme Author: [Not-Patrick](https://www.reddit.com/user/Not-Patrick/)
 
 
 
