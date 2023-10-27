@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ubvmrkxwzkwb1.png?width=100&height=100)
-* Meme Author: [IAmAccutane](https://www.reddit.com/user/IAmAccutane/)
+![Funny Meme](https://i.redd.it/qysv2uhkbkwb1.jpg?width=100&height=100)
+* Meme Author: [DeathyWolf](https://www.reddit.com/user/DeathyWolf/)
 
 
 
