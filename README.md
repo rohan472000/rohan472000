@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f7cf7qalmjwb1.png?width=100&height=100)
-* Meme Author: [Not-Patrick](https://www.reddit.com/user/Not-Patrick/)
+![Funny Meme](https://i.redd.it/3pd5b7fnqqwb1.png?width=100&height=100)
+* Meme Author: [Alexdoh](https://www.reddit.com/user/Alexdoh/)
 
 
 
