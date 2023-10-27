@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u79xaci3bjwb1.jpg?width=100&height=100)
-* Meme Author: [memepork](https://www.reddit.com/user/memepork/)
+![Funny Meme](https://i.redd.it/qefg27cd3lwb1.jpg?width=100&height=100)
+* Meme Author: [VividAwareness4719](https://www.reddit.com/user/VividAwareness4719/)
 
 
 
