@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1hf6x5n1plwb1.png?width=100&height=100)
-* Meme Author: [TheOneWhoLikesSW](https://www.reddit.com/user/TheOneWhoLikesSW/)
+![Funny Meme](https://i.redd.it/729e5f07kswb1.jpg?width=100&height=100)
+* Meme Author: [Madiz007](https://www.reddit.com/user/Madiz007/)
 
 
 
