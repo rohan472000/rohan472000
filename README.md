@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sz8ssgmm2jwb1.jpg?width=100&height=100)
-* Meme Author: [FrankieGS](https://www.reddit.com/user/FrankieGS/)
+![Funny Meme](https://i.redd.it/yoi58gq2yowb1.jpg?width=100&height=100)
+* Meme Author: [Chaotic_Quickie_1983](https://www.reddit.com/user/Chaotic_Quickie_1983/)
 
 
 
