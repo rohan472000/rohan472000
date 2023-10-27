@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wl6kwpyc1kwb1.jpg?width=100&height=100)
-* Meme Author: [entityrider670](https://www.reddit.com/user/entityrider670/)
+![Funny Meme](https://i.redd.it/wybo16i4pqwb1.jpg?width=100&height=100)
+* Meme Author: [thexbeatboxer](https://www.reddit.com/user/thexbeatboxer/)
 
 
 
