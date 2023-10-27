@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n0grmcmy2gwb1.jpg?width=100&height=100)
-* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
+![Funny Meme](https://i.redd.it/lys3up2w7nwb1.jpg?width=100&height=100)
+* Meme Author: [meadow-mouse](https://www.reddit.com/user/meadow-mouse/)
 
 
 
