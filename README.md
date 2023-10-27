@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8r0afal0ckwb1.jpg?width=100&height=100)
-* Meme Author: [ArashA8](https://www.reddit.com/user/ArashA8/)
+![Funny Meme](https://i.redd.it/3jutfer70pwb1.jpg?width=100&height=100)
+* Meme Author: [Inside_League_5610](https://www.reddit.com/user/Inside_League_5610/)
 
 
 
