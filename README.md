@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qysv2uhkbkwb1.jpg?width=100&height=100)
-* Meme Author: [DeathyWolf](https://www.reddit.com/user/DeathyWolf/)
+![Funny Meme](https://i.imgur.com/25a94uw.jpeg?width=100&height=100)
+* Meme Author: [David_lego235](https://www.reddit.com/user/David_lego235/)
 
 
 
