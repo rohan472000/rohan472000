@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ay3qcuajsswb1.jpg?width=100&height=100)
-* Meme Author: [ollie20025](https://www.reddit.com/user/ollie20025/)
+![Funny Meme](https://i.redd.it/iptluzu53twb1.jpg?width=100&height=100)
+* Meme Author: [Equivalent-Ad-3562](https://www.reddit.com/user/Equivalent-Ad-3562/)
 
 
 
