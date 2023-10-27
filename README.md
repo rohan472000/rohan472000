@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/82tou3.jpg?width=100&height=100)
-* Meme Author: [Basith_Shinrah](https://www.reddit.com/user/Basith_Shinrah/)
+![Funny Meme](https://i.redd.it/04i0hzqi6lwb1.jpg?width=100&height=100)
+* Meme Author: [RichMarkleyDotCom](https://www.reddit.com/user/RichMarkleyDotCom/)
 
 
 
