@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qysv2uhkbkwb1.jpg?width=100&height=100)
-* Meme Author: [DeathyWolf](https://www.reddit.com/user/DeathyWolf/)
+![Funny Meme](https://i.imgflip.com/82tou3.jpg?width=100&height=100)
+* Meme Author: [Basith_Shinrah](https://www.reddit.com/user/Basith_Shinrah/)
 
 
 
