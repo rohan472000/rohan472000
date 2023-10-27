@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yoi58gq2yowb1.jpg?width=100&height=100)
-* Meme Author: [Chaotic_Quickie_1983](https://www.reddit.com/user/Chaotic_Quickie_1983/)
+![Funny Meme](https://i.redd.it/1smkqi8k3nwb1.jpg?width=100&height=100)
+* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
 
 
 
