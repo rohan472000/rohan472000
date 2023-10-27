@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z5db0dqx2kwb1.jpg?width=100&height=100)
-* Meme Author: [Tarryman](https://www.reddit.com/user/Tarryman/)
+![Funny Meme](https://i.redd.it/hg4kgp1a1mwb1.jpg?width=100&height=100)
+* Meme Author: [MahloGolem](https://www.reddit.com/user/MahloGolem/)
 
 
 
