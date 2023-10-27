@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/93tt8lfnhqwb1.jpg?width=100&height=100)
-* Meme Author: [SharkBreath625](https://www.reddit.com/user/SharkBreath625/)
+![Funny Meme](https://i.redd.it/5q44iu9d2qwb1.jpg?width=100&height=100)
+* Meme Author: [OmegaReprise](https://www.reddit.com/user/OmegaReprise/)
 
 
 
