@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b00qkitjunwb1.jpg?width=100&height=100)
-* Meme Author: [porksiomae](https://www.reddit.com/user/porksiomae/)
+![Funny Meme](https://i.redd.it/z5db0dqx2kwb1.jpg?width=100&height=100)
+* Meme Author: [Tarryman](https://www.reddit.com/user/Tarryman/)
 
 
 
