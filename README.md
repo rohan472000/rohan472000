@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5q44iu9d2qwb1.jpg?width=100&height=100)
-* Meme Author: [OmegaReprise](https://www.reddit.com/user/OmegaReprise/)
+![Funny Meme](https://i.redd.it/5nu8j7j3ijwb1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
