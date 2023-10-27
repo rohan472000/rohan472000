@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/729e5f07kswb1.jpg?width=100&height=100)
-* Meme Author: [Madiz007](https://www.reddit.com/user/Madiz007/)
+![Funny Meme](https://i.redd.it/900bxtuejnwb1.png?width=100&height=100)
+* Meme Author: [Puopudoe](https://www.reddit.com/user/Puopudoe/)
 
 
 
