@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vtvucyinqewb1.jpg?width=100&height=100)
-* Meme Author: [MaxSoup8](https://www.reddit.com/user/MaxSoup8/)
+![Funny Meme](https://i.redd.it/n0grmcmy2gwb1.jpg?width=100&height=100)
+* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
 
 
 
