@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kar9w5r5fowb1.jpg?width=100&height=100)
-* Meme Author: [wktr_t](https://www.reddit.com/user/wktr_t/)
+![Funny Meme](https://i.redd.it/vlbv9daxclwb1.jpg?width=100&height=100)
+* Meme Author: [Gombrongler](https://www.reddit.com/user/Gombrongler/)
 
 
 
