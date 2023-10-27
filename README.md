@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a20vpm6vxlwb1.jpg?width=100&height=100)
-* Meme Author: [Pretty-Ice9696](https://www.reddit.com/user/Pretty-Ice9696/)
+![Funny Meme](https://i.redd.it/eoh48sf2fiwb1.png?width=100&height=100)
+* Meme Author: [trolmeneer_023](https://www.reddit.com/user/trolmeneer_023/)
 
 
 
