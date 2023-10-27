@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tb8gte6hgkwb1.jpg?width=100&height=100)
-* Meme Author: [TheBatmanfromMumbai](https://www.reddit.com/user/TheBatmanfromMumbai/)
+![Funny Meme](https://i.redd.it/fuk9oeg50lwb1.jpg?width=100&height=100)
+* Meme Author: [GrabbingCatTails](https://www.reddit.com/user/GrabbingCatTails/)
 
 
 
