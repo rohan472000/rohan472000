@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eln4e5urfmwb1.jpg?width=100&height=100)
-* Meme Author: [Billybob123456778](https://www.reddit.com/user/Billybob123456778/)
+![Funny Meme](https://i.redd.it/satvmcnv4mwb1.jpg?width=100&height=100)
+* Meme Author: [Mr-Ideasman](https://www.reddit.com/user/Mr-Ideasman/)
 
 
 
