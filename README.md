@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/SmyMLIt.jpg?width=100&height=100)
-* Meme Author: [Valladian](https://www.reddit.com/user/Valladian/)
+![Funny Meme](https://i.redd.it/3v9qozd8qowb1.png?width=100&height=100)
+* Meme Author: [Nobody_997](https://www.reddit.com/user/Nobody_997/)
 
 
 
