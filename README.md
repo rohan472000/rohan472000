@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dbk2dr613gwb1.jpg?width=100&height=100)
-* Meme Author: [Atomico](https://www.reddit.com/user/Atomico/)
+![Funny Meme](https://i.redd.it/eb3bty1jxfwb1.png?width=100&height=100)
+* Meme Author: [SERV05](https://www.reddit.com/user/SERV05/)
 
 
 
