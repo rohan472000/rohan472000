@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eoh48sf2fiwb1.png?width=100&height=100)
-* Meme Author: [trolmeneer_023](https://www.reddit.com/user/trolmeneer_023/)
+![Funny Meme](https://i.redd.it/eh19xoq6efwb1.jpg?width=100&height=100)
+* Meme Author: [lukhomdingi](https://www.reddit.com/user/lukhomdingi/)
 
 
 
