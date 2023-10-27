@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ssonop5rjkwb1.jpg?width=100&height=100)
-* Meme Author: [bscrash](https://www.reddit.com/user/bscrash/)
+![Funny Meme](https://i.redd.it/g07jis7i0hwb1.jpg?width=100&height=100)
+* Meme Author: [child-of-old-gods](https://www.reddit.com/user/child-of-old-gods/)
 
 
 
