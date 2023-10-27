@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3ym90fd29nwb1.jpg?width=100&height=100)
-* Meme Author: [cosmo_thenaut](https://www.reddit.com/user/cosmo_thenaut/)
+![Funny Meme](https://i.redd.it/854zw95bikwb1.png?width=100&height=100)
+* Meme Author: [ImtheEggMan_Walrus](https://www.reddit.com/user/ImtheEggMan_Walrus/)
 
 
 
