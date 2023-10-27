@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/twgpgjlnfpwb1.jpg?width=100&height=100)
-* Meme Author: [vibes_slayer](https://www.reddit.com/user/vibes_slayer/)
+![Funny Meme](https://i.redd.it/nqqmnjjt6rwb1.jpg?width=100&height=100)
+* Meme Author: [JustBobert](https://www.reddit.com/user/JustBobert/)
 
 
 
