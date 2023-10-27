@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gv9ocr8k7lwb1.jpg?width=100&height=100)
-* Meme Author: [Salty-004](https://www.reddit.com/user/Salty-004/)
+![Funny Meme](https://i.redd.it/g07jis7i0hwb1.jpg?width=100&height=100)
+* Meme Author: [child-of-old-gods](https://www.reddit.com/user/child-of-old-gods/)
 
 
 
