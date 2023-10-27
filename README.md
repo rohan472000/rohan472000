@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l5vhpdqohmwb1.jpg?width=100&height=100)
-* Meme Author: [TymeXD](https://www.reddit.com/user/TymeXD/)
+![Funny Meme](https://i.redd.it/uog0116lbkwb1.jpg?width=100&height=100)
+* Meme Author: [holozoicpriapus37](https://www.reddit.com/user/holozoicpriapus37/)
 
 
 
