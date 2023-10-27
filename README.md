@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ijzq0jwosmwb1.png?width=100&height=100)
-* Meme Author: [Remix_Master21](https://www.reddit.com/user/Remix_Master21/)
+![Funny Meme](https://i.redd.it/khlsup6bkiwb1.png?width=100&height=100)
+* Meme Author: [zamantukendi](https://www.reddit.com/user/zamantukendi/)
 
 
 
