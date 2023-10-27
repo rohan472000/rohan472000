@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3v9qozd8qowb1.png?width=100&height=100)
-* Meme Author: [Nobody_997](https://www.reddit.com/user/Nobody_997/)
+![Funny Meme](https://i.redd.it/jvdsmf2t1cwb1.png?width=100&height=100)
+* Meme Author: [LawfulCrac](https://www.reddit.com/user/LawfulCrac/)
 
 
 
