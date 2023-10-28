@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t09mvt309rwb1.jpg?width=100&height=100)
-* Meme Author: [DrSanwich](https://www.reddit.com/user/DrSanwich/)
+![Funny Meme](https://i.redd.it/obih4impdowb1.jpg?width=100&height=100)
+* Meme Author: [Midnight_Barbara](https://www.reddit.com/user/Midnight_Barbara/)
 
 
 
