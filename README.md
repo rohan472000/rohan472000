@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ga3o4g173lwb1.jpg?width=100&height=100)
-* Meme Author: [minecraftndbooks](https://www.reddit.com/user/minecraftndbooks/)
+![Funny Meme](https://i.redd.it/casd55zrirwb1.jpg?width=100&height=100)
+* Meme Author: [coolsteelboyS4ndyBoy](https://www.reddit.com/user/coolsteelboyS4ndyBoy/)
 
 
 
