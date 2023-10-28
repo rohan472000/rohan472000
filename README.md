@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/55dd4kbaupwb1.png?width=100&height=100)
-* Meme Author: [sunsoftbass](https://www.reddit.com/user/sunsoftbass/)
+![Funny Meme](https://i.redd.it/wybo16i4pqwb1.jpg?width=100&height=100)
+* Meme Author: [thexbeatboxer](https://www.reddit.com/user/thexbeatboxer/)
 
 
 
