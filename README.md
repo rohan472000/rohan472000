@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v0516xh94rwb1.jpg?width=100&height=100)
-* Meme Author: [Ilowe_042](https://www.reddit.com/user/Ilowe_042/)
+![Funny Meme](https://i.redd.it/u4zqo6d9plwb1.jpg?width=100&height=100)
+* Meme Author: [LonelySteve21](https://www.reddit.com/user/LonelySteve21/)
 
 
 
