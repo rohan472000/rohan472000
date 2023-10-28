@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rgerffl4ouwb1.jpg?width=100&height=100)
-* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
+![Funny Meme](https://i.redd.it/msa5ty6k3twb1.png?width=100&height=100)
+* Meme Author: [catfishman](https://www.reddit.com/user/catfishman/)
 
 
 
