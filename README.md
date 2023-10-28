@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/apo3bbxeqqwb1.jpg?width=100&height=100)
-* Meme Author: [Olivebuddiesforlife](https://www.reddit.com/user/Olivebuddiesforlife/)
+![Funny Meme](https://i.redd.it/o5isxwabfnwb1.jpg?width=100&height=100)
+* Meme Author: [negundo](https://www.reddit.com/user/negundo/)
 
 
 
