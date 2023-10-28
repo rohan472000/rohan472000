@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7jqoumdq8vwb1.jpg?width=100&height=100)
-* Meme Author: [thomas_notthetrain](https://www.reddit.com/user/thomas_notthetrain/)
+![Funny Meme](https://i.redd.it/g6jomyhxqvwb1.jpg?width=100&height=100)
+* Meme Author: [DrewsPops](https://www.reddit.com/user/DrewsPops/)
 
 
 
