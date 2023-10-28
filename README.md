@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/42vsfqi70twb1.jpg?width=100&height=100)
-* Meme Author: [head-equate2](https://www.reddit.com/user/head-equate2/)
+![Funny Meme](https://i.redd.it/pmth92gcnvwb1.jpg?width=100&height=100)
+* Meme Author: [bentizzy](https://www.reddit.com/user/bentizzy/)
 
 
 
