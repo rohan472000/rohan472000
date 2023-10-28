@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tsqpydhszuwb1.png?width=100&height=100)
-* Meme Author: [SirCatsanova](https://www.reddit.com/user/SirCatsanova/)
+![Funny Meme](https://i.redd.it/16mfnxg11swb1.jpg?width=100&height=100)
+* Meme Author: [DuchessSpong5000](https://www.reddit.com/user/DuchessSpong5000/)
 
 
 
