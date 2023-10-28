@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ewvrbjreaxwb1.png?width=100&height=100)
-* Meme Author: [ToffeeTheArcticFox](https://www.reddit.com/user/ToffeeTheArcticFox/)
+![Funny Meme](https://i.redd.it/irhgatvvduwb1.jpg?width=100&height=100)
+* Meme Author: [Idontknow10304](https://www.reddit.com/user/Idontknow10304/)
 
 
 
