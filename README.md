@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0y0gms4jsrwb1.jpg?width=100&height=100)
-* Meme Author: [Neither_Excitement63](https://www.reddit.com/user/Neither_Excitement63/)
+![Funny Meme](https://i.redd.it/7hqgh3utzswb1.jpg?width=100&height=100)
+* Meme Author: [toweleatery2](https://www.reddit.com/user/toweleatery2/)
 
 
 
