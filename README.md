@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/900bxtuejnwb1.png?width=100&height=100)
-* Meme Author: [Puopudoe](https://www.reddit.com/user/Puopudoe/)
+![Funny Meme](https://i.redd.it/w1wt4j2wmrwb1.jpg?width=100&height=100)
+* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
 
 
 
