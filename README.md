@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fuk9oeg50lwb1.jpg?width=100&height=100)
-* Meme Author: [GrabbingCatTails](https://www.reddit.com/user/GrabbingCatTails/)
+![Funny Meme](https://i.redd.it/tdlami53awwb1.png?width=100&height=100)
+* Meme Author: [rateb03](https://www.reddit.com/user/rateb03/)
 
 
 
