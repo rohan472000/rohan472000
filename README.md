@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sqtl8mr22owb1.jpg?width=100&height=100)
-* Meme Author: [SafeComfortable1009](https://www.reddit.com/user/SafeComfortable1009/)
+![Funny Meme](https://i.redd.it/a0m3bnc6xswb1.jpg?width=100&height=100)
+* Meme Author: [CJBoom77](https://www.reddit.com/user/CJBoom77/)
 
 
 
