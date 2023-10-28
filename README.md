@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/16mfnxg11swb1.jpg?width=100&height=100)
-* Meme Author: [DuchessSpong5000](https://www.reddit.com/user/DuchessSpong5000/)
+![Funny Meme](https://i.redd.it/phkh4mtolswb1.jpg?width=100&height=100)
+* Meme Author: [danny_divillo](https://www.reddit.com/user/danny_divillo/)
 
 
 
