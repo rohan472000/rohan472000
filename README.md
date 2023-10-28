@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x86ctusyi0xb1.jpg?width=100&height=100)
-* Meme Author: [IGotGolfTips](https://www.reddit.com/user/IGotGolfTips/)
+![Funny Meme](https://i.redd.it/ebt9ku3e80xb1.jpg?width=100&height=100)
+* Meme Author: [PassgettiGod](https://www.reddit.com/user/PassgettiGod/)
 
 
 
