@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8b7f9e4q2twb1.jpg?width=100&height=100)
-* Meme Author: [Elegant_Housing_For](https://www.reddit.com/user/Elegant_Housing_For/)
+![Funny Meme](https://i.redd.it/7qn6qkgj3qwb1.png?width=100&height=100)
+* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
 
 
 
