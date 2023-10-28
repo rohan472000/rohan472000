@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pmth92gcnvwb1.jpg?width=100&height=100)
-* Meme Author: [bentizzy](https://www.reddit.com/user/bentizzy/)
+![Funny Meme](https://i.redd.it/25vc3lqapmwb1.jpg?width=100&height=100)
+* Meme Author: [Resident_Problem4008](https://www.reddit.com/user/Resident_Problem4008/)
 
 
 
