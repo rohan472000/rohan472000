@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ebebai4rlrwb1.jpg?width=100&height=100)
-* Meme Author: [miku_dominos](https://www.reddit.com/user/miku_dominos/)
+![Funny Meme](https://i.redd.it/ooty0lcqnrwb1.jpg?width=100&height=100)
+* Meme Author: [ogre_boy](https://www.reddit.com/user/ogre_boy/)
 
 
 
