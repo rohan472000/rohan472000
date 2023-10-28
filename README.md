@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7fy2qjmj8xwb1.jpg?width=100&height=100)
-* Meme Author: [Inner_Information_26](https://www.reddit.com/user/Inner_Information_26/)
+![Funny Meme](https://i.redd.it/b5r7oomp7uwb1.jpg?width=100&height=100)
+* Meme Author: [prlugo4162](https://www.reddit.com/user/prlugo4162/)
 
 
 
