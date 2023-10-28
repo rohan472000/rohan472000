@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iptluzu53twb1.jpg?width=100&height=100)
-* Meme Author: [Equivalent-Ad-3562](https://www.reddit.com/user/Equivalent-Ad-3562/)
+![Funny Meme](https://i.redd.it/jumjmz8oetwb1.jpg?width=100&height=100)
+* Meme Author: [Sarkkitehti](https://www.reddit.com/user/Sarkkitehti/)
 
 
 
