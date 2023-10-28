@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7qn6qkgj3qwb1.png?width=100&height=100)
-* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
+![Funny Meme](https://i.redd.it/2krnbdnwbuwb1.jpg?width=100&height=100)
+* Meme Author: [badbandit10](https://www.reddit.com/user/badbandit10/)
 
 
 
