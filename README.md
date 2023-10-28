@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1hk0d3p88xwb1.png?width=100&height=100)
-* Meme Author: [SecretSpectre4](https://www.reddit.com/user/SecretSpectre4/)
+![Funny Meme](https://i.redd.it/u2ffzdj60uwb1.jpg?width=100&height=100)
+* Meme Author: [Asriel177](https://www.reddit.com/user/Asriel177/)
 
 
 
