@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4ocs4qjw6wwb1.jpg?width=100&height=100)
-* Meme Author: [Cheeseisrottenmilk](https://www.reddit.com/user/Cheeseisrottenmilk/)
+![Funny Meme](https://i.redd.it/obmitv6ytvwb1.jpg?width=100&height=100)
+* Meme Author: [ProNoobCombo](https://www.reddit.com/user/ProNoobCombo/)
 
 
 
