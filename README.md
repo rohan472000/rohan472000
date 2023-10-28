@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u4zqo6d9plwb1.jpg?width=100&height=100)
-* Meme Author: [LonelySteve21](https://www.reddit.com/user/LonelySteve21/)
+![Funny Meme](https://i.redd.it/vcxkcdir3twb1.jpg?width=100&height=100)
+* Meme Author: [TurmaGW](https://www.reddit.com/user/TurmaGW/)
 
 
 
