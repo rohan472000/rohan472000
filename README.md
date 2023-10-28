@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/msa5ty6k3twb1.png?width=100&height=100)
-* Meme Author: [catfishman](https://www.reddit.com/user/catfishman/)
+![Funny Meme](https://i.redd.it/7hqgh3utzswb1.jpg?width=100&height=100)
+* Meme Author: [toweleatery2](https://www.reddit.com/user/toweleatery2/)
 
 
 
