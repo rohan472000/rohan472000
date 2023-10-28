@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7fy2qjmj8xwb1.jpg?width=100&height=100)
-* Meme Author: [Inner_Information_26](https://www.reddit.com/user/Inner_Information_26/)
+![Funny Meme](https://i.redd.it/wi8pxlduvzwb1.jpg?width=100&height=100)
+* Meme Author: [Superbroderone](https://www.reddit.com/user/Superbroderone/)
 
 
 
