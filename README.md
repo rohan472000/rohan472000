@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m2uv3eiuuzwb1.jpg?width=100&height=100)
-* Meme Author: [BungyBoi704](https://www.reddit.com/user/BungyBoi704/)
+![Funny Meme](https://i.redd.it/7jqoumdq8vwb1.jpg?width=100&height=100)
+* Meme Author: [thomas_notthetrain](https://www.reddit.com/user/thomas_notthetrain/)
 
 
 
