@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h8le1ihs1wwb1.jpg?width=100&height=100)
-* Meme Author: [me_colin](https://www.reddit.com/user/me_colin/)
+![Funny Meme](https://i.redd.it/farwa6653uwb1.jpg?width=100&height=100)
+* Meme Author: [Zaphod392](https://www.reddit.com/user/Zaphod392/)
 
 
 
