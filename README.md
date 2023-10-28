@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wi8pxlduvzwb1.jpg?width=100&height=100)
-* Meme Author: [Superbroderone](https://www.reddit.com/user/Superbroderone/)
+![Funny Meme](https://i.redd.it/0sbs48pv00xb1.jpg?width=100&height=100)
+* Meme Author: [ULTSUS_pect](https://www.reddit.com/user/ULTSUS_pect/)
 
 
 
