@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nmz02mwxzzwb1.jpg?width=100&height=100)
-* Meme Author: [Friedl1220](https://www.reddit.com/user/Friedl1220/)
+![Funny Meme](https://i.redd.it/irhgatvvduwb1.jpg?width=100&height=100)
+* Meme Author: [Idontknow10304](https://www.reddit.com/user/Idontknow10304/)
 
 
 
