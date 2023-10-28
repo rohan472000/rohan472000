@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s862v0onyxwb1.jpg?width=100&height=100)
-* Meme Author: [Economy-Manner-9938](https://www.reddit.com/user/Economy-Manner-9938/)
+![Funny Meme](https://i.redd.it/x86ctusyi0xb1.jpg?width=100&height=100)
+* Meme Author: [IGotGolfTips](https://www.reddit.com/user/IGotGolfTips/)
 
 
 
