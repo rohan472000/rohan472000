@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ee1wfh440wwb1.jpg?width=100&height=100)
-* Meme Author: [Charming-Macaron-322](https://www.reddit.com/user/Charming-Macaron-322/)
+![Funny Meme](https://i.redd.it/7fy2qjmj8xwb1.jpg?width=100&height=100)
+* Meme Author: [Inner_Information_26](https://www.reddit.com/user/Inner_Information_26/)
 
 
 
