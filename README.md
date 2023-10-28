@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vr5dvvob7qwb1.jpg?width=100&height=100)
-* Meme Author: [Schwalbtraum](https://www.reddit.com/user/Schwalbtraum/)
+![Funny Meme](https://i.redd.it/ebebai4rlrwb1.jpg?width=100&height=100)
+* Meme Author: [miku_dominos](https://www.reddit.com/user/miku_dominos/)
 
 
 
