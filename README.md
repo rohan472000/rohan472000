@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0e98qoi0vuwb1.jpg?width=100&height=100)
-* Meme Author: [dannyday10700](https://www.reddit.com/user/dannyday10700/)
+![Funny Meme](https://i.redd.it/8epc2rx1itwb1.png?width=100&height=100)
+* Meme Author: [Dr_Galio](https://www.reddit.com/user/Dr_Galio/)
 
 
 
