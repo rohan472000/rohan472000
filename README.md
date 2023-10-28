@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h8le1ihs1wwb1.jpg?width=100&height=100)
-* Meme Author: [me_colin](https://www.reddit.com/user/me_colin/)
+![Funny Meme](https://i.redd.it/fx56467uppwb1.jpg?width=100&height=100)
+* Meme Author: [Beskerber](https://www.reddit.com/user/Beskerber/)
 
 
 
