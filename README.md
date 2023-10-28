@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3nj57ity2vwb1.jpg?width=100&height=100)
-* Meme Author: [Precubescence](https://www.reddit.com/user/Precubescence/)
+![Funny Meme](https://i.redd.it/jkn4iomn7twb1.jpg?width=100&height=100)
+* Meme Author: [CardLeft](https://www.reddit.com/user/CardLeft/)
 
 
 
