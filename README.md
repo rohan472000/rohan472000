@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fx56467uppwb1.jpg?width=100&height=100)
-* Meme Author: [Beskerber](https://www.reddit.com/user/Beskerber/)
+![Funny Meme](https://i.redd.it/ioxlflbmhtwb1.jpg?width=100&height=100)
+* Meme Author: [RyantheSithLord](https://www.reddit.com/user/RyantheSithLord/)
 
 
 
