@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/49y8bor7grwb1.jpg?width=100&height=100)
-* Meme Author: [pseudo__pandit](https://www.reddit.com/user/pseudo__pandit/)
+![Funny Meme](https://i.redd.it/apo3bbxeqqwb1.jpg?width=100&height=100)
+* Meme Author: [Olivebuddiesforlife](https://www.reddit.com/user/Olivebuddiesforlife/)
 
 
 
