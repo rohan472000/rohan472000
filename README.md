@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/akse1ali7twb1.png?width=100&height=100)
-* Meme Author: [JalhiMamed](https://www.reddit.com/user/JalhiMamed/)
+![Funny Meme](https://i.redd.it/v0516xh94rwb1.jpg?width=100&height=100)
+* Meme Author: [Ilowe_042](https://www.reddit.com/user/Ilowe_042/)
 
 
 
