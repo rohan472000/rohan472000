@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jalgh8942uwb1.jpg?width=100&height=100)
-* Meme Author: [CaptainObvius00](https://www.reddit.com/user/CaptainObvius00/)
+![Funny Meme](https://i.redd.it/1613t9aovrwb1.jpg?width=100&height=100)
+* Meme Author: [SuckMyPenisReddit](https://www.reddit.com/user/SuckMyPenisReddit/)
 
 
 
