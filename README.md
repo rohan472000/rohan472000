@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hxx6cpzslywb1.jpg?width=100&height=100)
-* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
+![Funny Meme](https://i.redd.it/1dvd1nbrqtwb1.jpg?width=100&height=100)
+* Meme Author: [EverythingPSP](https://www.reddit.com/user/EverythingPSP/)
 
 
 
