@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vcxkcdir3twb1.jpg?width=100&height=100)
-* Meme Author: [TurmaGW](https://www.reddit.com/user/TurmaGW/)
+![Funny Meme](https://i.redd.it/vr5dvvob7qwb1.jpg?width=100&height=100)
+* Meme Author: [Schwalbtraum](https://www.reddit.com/user/Schwalbtraum/)
 
 
 
