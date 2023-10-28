@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u2ffzdj60uwb1.jpg?width=100&height=100)
-* Meme Author: [Asriel177](https://www.reddit.com/user/Asriel177/)
+![Funny Meme](https://i.redd.it/yw4wp6vx3zwb1.png?width=100&height=100)
+* Meme Author: [doyouevenrate](https://www.reddit.com/user/doyouevenrate/)
 
 
 
