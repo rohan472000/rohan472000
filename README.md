@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q0njpqedfywb1.jpg?width=100&height=100)
-* Meme Author: [InsideCharity4824](https://www.reddit.com/user/InsideCharity4824/)
+![Funny Meme](https://i.redd.it/8ys99biadqwb1.png?width=100&height=100)
+* Meme Author: [trolmeneer_023](https://www.reddit.com/user/trolmeneer_023/)
 
 
 
