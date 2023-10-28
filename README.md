@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hgw1hhp9gtwb1.jpg?width=100&height=100)
-* Meme Author: [endorstick](https://www.reddit.com/user/endorstick/)
+![Funny Meme](https://i.redd.it/4ocs4qjw6wwb1.jpg?width=100&height=100)
+* Meme Author: [Cheeseisrottenmilk](https://www.reddit.com/user/Cheeseisrottenmilk/)
 
 
 
