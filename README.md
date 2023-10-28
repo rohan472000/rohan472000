@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/99zpr0441zwb1.jpg?width=100&height=100)
-* Meme Author: [ImpressiveLie1352](https://www.reddit.com/user/ImpressiveLie1352/)
+![Funny Meme](https://i.redd.it/1ulvcejfztwb1.jpg?width=100&height=100)
+* Meme Author: [Xx_Dark-Shrek_xX](https://www.reddit.com/user/Xx_Dark-Shrek_xX/)
 
 
 
