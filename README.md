@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4r6748n7p0xb1.png?width=100&height=100)
-* Meme Author: [Equal_Actuary664](https://www.reddit.com/user/Equal_Actuary664/)
+![Funny Meme](https://i.redd.it/x86ctusyi0xb1.jpg?width=100&height=100)
+* Meme Author: [IGotGolfTips](https://www.reddit.com/user/IGotGolfTips/)
 
 
 
