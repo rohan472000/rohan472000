@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5zlwebf8czwb1.jpg?width=100&height=100)
-* Meme Author: [OpportunityCareful75](https://www.reddit.com/user/OpportunityCareful75/)
+![Funny Meme](https://i.redd.it/4r6748n7p0xb1.png?width=100&height=100)
+* Meme Author: [Equal_Actuary664](https://www.reddit.com/user/Equal_Actuary664/)
 
 
 
