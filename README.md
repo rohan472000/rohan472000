@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2uyqb4mev2xb1.jpg?width=100&height=100)
-* Meme Author: [Mustsidrun](https://www.reddit.com/user/Mustsidrun/)
+![Funny Meme](https://i.redd.it/ys74l7o255xb1.jpg?width=100&height=100)
+* Meme Author: [Sleeper--](https://www.reddit.com/user/Sleeper--/)
 
 
 
