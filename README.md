@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0xe97rvfa0xb1.jpg?width=100&height=100)
-* Meme Author: [Over-Investment-1547](https://www.reddit.com/user/Over-Investment-1547/)
+![Funny Meme](https://i.redd.it/rr816adnszwb1.jpg?width=100&height=100)
+* Meme Author: [Born_Diamond_2610](https://www.reddit.com/user/Born_Diamond_2610/)
 
 
 
