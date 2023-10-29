@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/remojcicm4xb1.jpg?width=100&height=100)
-* Meme Author: [befarked247](https://www.reddit.com/user/befarked247/)
+![Funny Meme](https://i.redd.it/o5wgzfjmn1xb1.jpg?width=100&height=100)
+* Meme Author: [RIRI5665](https://www.reddit.com/user/RIRI5665/)
 
 
 
