@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/koljcfec36xb1.jpg?width=100&height=100)
-* Meme Author: [FormerlyDuck](https://www.reddit.com/user/FormerlyDuck/)
+![Funny Meme](https://i.redd.it/t6xktt0ng1xb1.jpg?width=100&height=100)
+* Meme Author: [pirateprowl](https://www.reddit.com/user/pirateprowl/)
 
 
 
