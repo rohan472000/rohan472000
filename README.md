@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jphr3fymoywb1.jpg?width=100&height=100)
-* Meme Author: [AaronDarkus](https://www.reddit.com/user/AaronDarkus/)
+![Funny Meme](https://i.redd.it/uzlpw94y32xb1.png?width=100&height=100)
+* Meme Author: [Crafter235](https://www.reddit.com/user/Crafter235/)
 
 
 
