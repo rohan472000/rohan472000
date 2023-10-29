@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/voqlhi3kdwwb1.png?width=100&height=100)
-* Meme Author: [Patient_Weakness3866](https://www.reddit.com/user/Patient_Weakness3866/)
+![Funny Meme](https://i.redd.it/jphr3fymoywb1.jpg?width=100&height=100)
+* Meme Author: [AaronDarkus](https://www.reddit.com/user/AaronDarkus/)
 
 
 
