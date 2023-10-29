@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x9i6lr963ywb1.png?width=100&height=100)
-* Meme Author: [GAOLANGWUNSAWAT](https://www.reddit.com/user/GAOLANGWUNSAWAT/)
+![Funny Meme](https://i.redd.it/t5sag6b7bxwb1.png?width=100&height=100)
+* Meme Author: [RubsDJ27](https://www.reddit.com/user/RubsDJ27/)
 
 
 
