@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x6jd5f6waxwb1.jpg?width=100&height=100)
-* Meme Author: [WukuAndrew](https://www.reddit.com/user/WukuAndrew/)
+![Funny Meme](https://i.redd.it/ibr64jtek0xb1.jpg?width=100&height=100)
+* Meme Author: [Espio5506](https://www.reddit.com/user/Espio5506/)
 
 
 
