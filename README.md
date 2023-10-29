@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9wcd6as2cywb1.jpg?width=100&height=100)
-* Meme Author: [Legalslimjim](https://www.reddit.com/user/Legalslimjim/)
+![Funny Meme](https://i.redd.it/t7hzqivsu0xb1.jpg?width=100&height=100)
+* Meme Author: [Freudianslip1987](https://www.reddit.com/user/Freudianslip1987/)
 
 
 
