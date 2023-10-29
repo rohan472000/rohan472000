@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zdczw5fv0vwb1.jpg?width=100&height=100)
-* Meme Author: [unbrokenwreck](https://www.reddit.com/user/unbrokenwreck/)
+![Funny Meme](https://i.redd.it/hndbvh64izwb1.jpg?width=100&height=100)
+* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
 
 
 
