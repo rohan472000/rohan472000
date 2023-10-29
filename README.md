@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nte1860h50xb1.jpg?width=100&height=100)
-* Meme Author: [dannyday10700](https://www.reddit.com/user/dannyday10700/)
+![Funny Meme](https://i.redd.it/3udpv2upj2xb1.png?width=100&height=100)
+* Meme Author: [the_globglobgabalab](https://www.reddit.com/user/the_globglobgabalab/)
 
 
 
