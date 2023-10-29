@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/llr08x8af0xb1.png?width=100&height=100)
-* Meme Author: [Truth_Hurts_People2](https://www.reddit.com/user/Truth_Hurts_People2/)
+![Funny Meme](https://i.redd.it/9wcd6as2cywb1.jpg?width=100&height=100)
+* Meme Author: [Legalslimjim](https://www.reddit.com/user/Legalslimjim/)
 
 
 
