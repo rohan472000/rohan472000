@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3fui59rt22xb1.jpg?width=100&height=100)
-* Meme Author: [AnonimZim_Real](https://www.reddit.com/user/AnonimZim_Real/)
+![Funny Meme](https://i.redd.it/3nj57ity2vwb1.jpg?width=100&height=100)
+* Meme Author: [Precubescence](https://www.reddit.com/user/Precubescence/)
 
 
 
