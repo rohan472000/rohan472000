@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aka14s41l3xb1.jpg?width=100&height=100)
-* Meme Author: [ILikeGames22](https://www.reddit.com/user/ILikeGames22/)
+![Funny Meme](https://i.redd.it/ydidjbjus6xb1.jpg?width=100&height=100)
+* Meme Author: [Cmdr-Pel](https://www.reddit.com/user/Cmdr-Pel/)
 
 
 
