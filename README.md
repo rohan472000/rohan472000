@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3dtt8es48zwb1.jpg?width=100&height=100)
-* Meme Author: [Twig_Scampi](https://www.reddit.com/user/Twig_Scampi/)
+![Funny Meme](https://i.redd.it/x9i6lr963ywb1.png?width=100&height=100)
+* Meme Author: [GAOLANGWUNSAWAT](https://www.reddit.com/user/GAOLANGWUNSAWAT/)
 
 
 
