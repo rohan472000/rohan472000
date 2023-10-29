@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x86ctusyi0xb1.jpg?width=100&height=100)
-* Meme Author: [IGotGolfTips](https://www.reddit.com/user/IGotGolfTips/)
+![Funny Meme](https://i.redd.it/wg0uq5nwyywb1.jpg?width=100&height=100)
+* Meme Author: [proeu](https://www.reddit.com/user/proeu/)
 
 
 
