@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ads2ccykjywb1.jpg?width=100&height=100)
-* Meme Author: [YummyTerror8259](https://www.reddit.com/user/YummyTerror8259/)
+![Funny Meme](https://i.redd.it/f4c65yr6h1xb1.jpg?width=100&height=100)
+* Meme Author: [Ok-Walk7881](https://www.reddit.com/user/Ok-Walk7881/)
 
 
 
