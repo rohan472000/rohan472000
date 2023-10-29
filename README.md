@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s25jd1zju6xb1.jpg?width=100&height=100)
-* Meme Author: [No-World2](https://www.reddit.com/user/No-World2/)
+![Funny Meme](https://i.redd.it/obky6sc5c4xb1.png?width=100&height=100)
+* Meme Author: [coolidiot2000](https://www.reddit.com/user/coolidiot2000/)
 
 
 
