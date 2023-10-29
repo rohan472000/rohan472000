@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ujagzvb7x0xb1.jpg?width=100&height=100)
-* Meme Author: [Alchemist_Joshua](https://www.reddit.com/user/Alchemist_Joshua/)
+![Funny Meme](https://i.redd.it/3bqi1f4uf4xb1.jpg?width=100&height=100)
+* Meme Author: [X05Real](https://www.reddit.com/user/X05Real/)
 
 
 
