@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8l9ftscb67xb1.jpg?width=100&height=100)
-* Meme Author: [RealGeneralX](https://www.reddit.com/user/RealGeneralX/)
+![Funny Meme](https://i.redd.it/nn4iam5co6xb1.jpg?width=100&height=100)
+* Meme Author: [n8saces](https://www.reddit.com/user/n8saces/)
 
 
 
