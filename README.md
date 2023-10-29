@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ads2ccykjywb1.jpg?width=100&height=100)
-* Meme Author: [YummyTerror8259](https://www.reddit.com/user/YummyTerror8259/)
+![Funny Meme](https://i.redd.it/ou4rdzcav0xb1.png?width=100&height=100)
+* Meme Author: [Mister_E69](https://www.reddit.com/user/Mister_E69/)
 
 
 
