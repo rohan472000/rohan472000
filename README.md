@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qgzivxom2ywb1.jpg?width=100&height=100)
-* Meme Author: [Jamminmb](https://www.reddit.com/user/Jamminmb/)
+![Funny Meme](https://i.redd.it/aka14s41l3xb1.jpg?width=100&height=100)
+* Meme Author: [ILikeGames22](https://www.reddit.com/user/ILikeGames22/)
 
 
 
