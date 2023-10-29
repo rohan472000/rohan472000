@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sia92i3sn1xb1.jpg?width=100&height=100)
-* Meme Author: [LessThanPro_](https://www.reddit.com/user/LessThanPro_/)
+![Funny Meme](https://i.redd.it/jmeu5ept00xb1.jpg?width=100&height=100)
+* Meme Author: [Old-Boot-250](https://www.reddit.com/user/Old-Boot-250/)
 
 
 
