@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/q1OmYCI.png?width=100&height=100)
-* Meme Author: [gerwer](https://www.reddit.com/user/gerwer/)
+![Funny Meme](https://i.redd.it/kapb1csa30xb1.png?width=100&height=100)
+* Meme Author: [Patient_Weakness3866](https://www.reddit.com/user/Patient_Weakness3866/)
 
 
 
