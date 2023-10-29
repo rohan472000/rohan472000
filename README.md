@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/75erct8kr1xb1.jpg?width=100&height=100)
-* Meme Author: [CodyRhody](https://www.reddit.com/user/CodyRhody/)
+![Funny Meme](https://i.redd.it/rr816adnszwb1.jpg?width=100&height=100)
+* Meme Author: [Born_Diamond_2610](https://www.reddit.com/user/Born_Diamond_2610/)
 
 
 
