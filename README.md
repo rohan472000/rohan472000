@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f4c65yr6h1xb1.jpg?width=100&height=100)
-* Meme Author: [Ok-Walk7881](https://www.reddit.com/user/Ok-Walk7881/)
+![Funny Meme](https://i.redd.it/svov8jnv20xb1.jpg?width=100&height=100)
+* Meme Author: [osrsslay](https://www.reddit.com/user/osrsslay/)
 
 
 
