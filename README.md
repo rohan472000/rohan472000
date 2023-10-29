@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0ic3tglsm7xb1.jpg?width=100&height=100)
-* Meme Author: [Jonas_Venture_Sr](https://www.reddit.com/user/Jonas_Venture_Sr/)
+![Funny Meme](https://i.redd.it/3fui59rt22xb1.jpg?width=100&height=100)
+* Meme Author: [AnonimZim_Real](https://www.reddit.com/user/AnonimZim_Real/)
 
 
 
