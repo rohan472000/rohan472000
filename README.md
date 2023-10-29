@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9dm8qgmhb1xb1.png?width=100&height=100)
-* Meme Author: [drluv2099](https://www.reddit.com/user/drluv2099/)
+![Funny Meme](https://i.redd.it/vy7l5gt1tzwb1.jpg?width=100&height=100)
+* Meme Author: [Abraash](https://www.reddit.com/user/Abraash/)
 
 
 
