@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mlymfwytl1xb1.jpg?width=100&height=100)
-* Meme Author: [Cerparis](https://www.reddit.com/user/Cerparis/)
+![Funny Meme](https://i.redd.it/d9m1ytq9txwb1.png?width=100&height=100)
+* Meme Author: [XCaptainKoalaKittyX](https://www.reddit.com/user/XCaptainKoalaKittyX/)
 
 
 
