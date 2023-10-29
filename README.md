@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lpv2vwsy20xb1.jpg?width=100&height=100)
-* Meme Author: [EndlessHorizonsMonk](https://www.reddit.com/user/EndlessHorizonsMonk/)
+![Funny Meme](https://i.redd.it/2ybokp9aa5xb1.jpg?width=100&height=100)
+* Meme Author: [ImtheEggMan_Walrus](https://www.reddit.com/user/ImtheEggMan_Walrus/)
 
 
 
