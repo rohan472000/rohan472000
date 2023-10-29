@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d1lytia430xb1.jpg?width=100&height=100)
-* Meme Author: [EndlessHorizonsMonk](https://www.reddit.com/user/EndlessHorizonsMonk/)
+![Funny Meme](https://i.redd.it/nte1860h50xb1.jpg?width=100&height=100)
+* Meme Author: [dannyday10700](https://www.reddit.com/user/dannyday10700/)
 
 
 
