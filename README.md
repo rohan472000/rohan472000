@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fovfw8a3t5xb1.jpg?width=100&height=100)
-* Meme Author: [Lots42](https://www.reddit.com/user/Lots42/)
+![Funny Meme](https://i.redd.it/jdomlclwc7xb1.jpg?width=100&height=100)
+* Meme Author: [Unlucky_Ice_6558](https://www.reddit.com/user/Unlucky_Ice_6558/)
 
 
 
