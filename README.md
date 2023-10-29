@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0sbs48pv00xb1.jpg?width=100&height=100)
-* Meme Author: [ULTSUS_pect](https://www.reddit.com/user/ULTSUS_pect/)
+![Funny Meme](https://i.redd.it/eeriisc0s1xb1.png?width=100&height=100)
+* Meme Author: [Killurself4me](https://www.reddit.com/user/Killurself4me/)
 
 
 
