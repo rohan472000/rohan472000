@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gaoh8hohr0xb1.png?width=100&height=100)
-* Meme Author: [Blindmailman](https://www.reddit.com/user/Blindmailman/)
+![Funny Meme](https://i.redd.it/pewimjqd62xb1.jpg?width=100&height=100)
+* Meme Author: [uppsak](https://www.reddit.com/user/uppsak/)
 
 
 
