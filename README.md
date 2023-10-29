@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dp3cyoxbu4xb1.jpg?width=100&height=100)
-* Meme Author: [FitiEddy](https://www.reddit.com/user/FitiEddy/)
+![Funny Meme](https://i.redd.it/aqv8m0f190xb1.jpg?width=100&height=100)
+* Meme Author: [EnvironmentSmart4698](https://www.reddit.com/user/EnvironmentSmart4698/)
 
 
 
