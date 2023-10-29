@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lrtcysxot2xb1.jpg?width=100&height=100)
-* Meme Author: [Tight-Sir9813](https://www.reddit.com/user/Tight-Sir9813/)
+![Funny Meme](https://i.redd.it/remojcicm4xb1.jpg?width=100&height=100)
+* Meme Author: [befarked247](https://www.reddit.com/user/befarked247/)
 
 
 
