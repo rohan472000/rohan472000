@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d1lytia430xb1.jpg?width=100&height=100)
-* Meme Author: [EndlessHorizonsMonk](https://www.reddit.com/user/EndlessHorizonsMonk/)
+![Funny Meme](https://i.redd.it/lr27n5tiwpwb1.jpg?width=100&height=100)
+* Meme Author: [Turbulent-Passage124](https://www.reddit.com/user/Turbulent-Passage124/)
 
 
 
