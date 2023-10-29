@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/obky6sc5c4xb1.png?width=100&height=100)
-* Meme Author: [coolidiot2000](https://www.reddit.com/user/coolidiot2000/)
+![Funny Meme](https://i.redd.it/2vpdx97hh4xb1.jpg?width=100&height=100)
+* Meme Author: [nijotu](https://www.reddit.com/user/nijotu/)
 
 
 
