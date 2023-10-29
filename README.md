@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ksbxylp1m1xb1.jpg?width=100&height=100)
-* Meme Author: [Mcfakerson-account](https://www.reddit.com/user/Mcfakerson-account/)
+![Funny Meme](https://i.redd.it/0xe97rvfa0xb1.jpg?width=100&height=100)
+* Meme Author: [Over-Investment-1547](https://www.reddit.com/user/Over-Investment-1547/)
 
 
 
