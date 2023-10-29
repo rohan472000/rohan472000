@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uzscubc4e1xb1.jpg?width=100&height=100)
-* Meme Author: [Sparky_Potatoa](https://www.reddit.com/user/Sparky_Potatoa/)
+![Funny Meme](https://i.redd.it/koljcfec36xb1.jpg?width=100&height=100)
+* Meme Author: [FormerlyDuck](https://www.reddit.com/user/FormerlyDuck/)
 
 
 
