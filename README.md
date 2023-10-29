@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t6xktt0ng1xb1.jpg?width=100&height=100)
-* Meme Author: [pirateprowl](https://www.reddit.com/user/pirateprowl/)
+![Funny Meme](https://i.redd.it/s25jd1zju6xb1.jpg?width=100&height=100)
+* Meme Author: [No-World2](https://www.reddit.com/user/No-World2/)
 
 
 
