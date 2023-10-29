@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d9m1ytq9txwb1.png?width=100&height=100)
-* Meme Author: [XCaptainKoalaKittyX](https://www.reddit.com/user/XCaptainKoalaKittyX/)
+![Funny Meme](https://i.redd.it/0rkuyjkxhzwb1.jpg?width=100&height=100)
+* Meme Author: [parenthetical_phrase](https://www.reddit.com/user/parenthetical_phrase/)
 
 
 
