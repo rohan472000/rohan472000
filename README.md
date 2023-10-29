@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sxf7r6jp5qwb1.jpg?width=100&height=100)
-* Meme Author: [Renatop569](https://www.reddit.com/user/Renatop569/)
+![Funny Meme](https://i.redd.it/voqlhi3kdwwb1.png?width=100&height=100)
+* Meme Author: [Patient_Weakness3866](https://www.reddit.com/user/Patient_Weakness3866/)
 
 
 
