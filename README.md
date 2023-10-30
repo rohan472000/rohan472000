@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zki3ps0tv4xb1.jpg?width=100&height=100)
-* Meme Author: [Bruhmonke42069](https://www.reddit.com/user/Bruhmonke42069/)
+![Funny Meme](https://i.redd.it/s25jd1zju6xb1.jpg?width=100&height=100)
+* Meme Author: [No-World2](https://www.reddit.com/user/No-World2/)
 
 
 
