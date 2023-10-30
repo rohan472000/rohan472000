@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tvs3wope66xb1.jpg?width=100&height=100)
-* Meme Author: [Longjumping-Rub-4764](https://www.reddit.com/user/Longjumping-Rub-4764/)
+![Funny Meme](https://i.redd.it/0a5k61ns3axb1.jpg?width=100&height=100)
+* Meme Author: [1BLEES](https://www.reddit.com/user/1BLEES/)
 
 
 
