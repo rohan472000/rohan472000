@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c405kg0hk9xb1.jpg?width=100&height=100)
-* Meme Author: [Demon_Dante](https://www.reddit.com/user/Demon_Dante/)
+![Funny Meme](https://i.redd.it/kkf18msaccxb1.png?width=100&height=100)
+* Meme Author: [Snapships4life](https://www.reddit.com/user/Snapships4life/)
 
 
 
