@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1i8hu9tgo2xb1.png?width=100&height=100)
-* Meme Author: [DoorAMii](https://www.reddit.com/user/DoorAMii/)
+![Funny Meme](https://i.redd.it/uuwla65s96xb1.png?width=100&height=100)
+* Meme Author: [-zer0_0ne-](https://www.reddit.com/user/-zer0_0ne-/)
 
 
 
