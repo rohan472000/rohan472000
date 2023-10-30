@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gris9tj9qexb1.jpg?width=100&height=100)
-* Meme Author: [No_name_ideas123](https://www.reddit.com/user/No_name_ideas123/)
+![Funny Meme](https://i.redd.it/z8rtyoiwh9xb1.jpg?width=100&height=100)
+* Meme Author: [Kiwibirbbb](https://www.reddit.com/user/Kiwibirbbb/)
 
 
 
