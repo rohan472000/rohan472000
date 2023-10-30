@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qhfcwfnd38xb1.png?width=100&height=100)
-* Meme Author: [LeatherSlight3242](https://www.reddit.com/user/LeatherSlight3242/)
+![Funny Meme](https://i.imgur.com/EXVxb61.jpeg?width=100&height=100)
+* Meme Author: [StoopSign](https://www.reddit.com/user/StoopSign/)
 
 
 
