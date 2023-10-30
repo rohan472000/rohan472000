@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9h3cc4k91axb1.jpg?width=100&height=100)
-* Meme Author: [WanderingDeeper](https://www.reddit.com/user/WanderingDeeper/)
+![Funny Meme](https://i.redd.it/i4wdkk5sz2xb1.png?width=100&height=100)
+* Meme Author: [-JustAce](https://www.reddit.com/user/-JustAce/)
 
 
 
