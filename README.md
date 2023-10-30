@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zdu7sg7ut9xb1.jpg?width=100&height=100)
-* Meme Author: [Blitz_Tanker](https://www.reddit.com/user/Blitz_Tanker/)
+![Funny Meme](https://i.redd.it/y5fvdzesgcxb1.png?width=100&height=100)
+* Meme Author: [AlarmedPromotion2373](https://www.reddit.com/user/AlarmedPromotion2373/)
 
 
 
