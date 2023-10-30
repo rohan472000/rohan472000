@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nddpyel4raxb1.jpg?width=100&height=100)
-* Meme Author: [Uphene](https://www.reddit.com/user/Uphene/)
+![Funny Meme](https://i.redd.it/lcipseg974xb1.jpg?width=100&height=100)
+* Meme Author: [Alvin_Tostig](https://www.reddit.com/user/Alvin_Tostig/)
 
 
 
