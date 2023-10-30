@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ytijmu3riexb1.jpg?width=100&height=100)
-* Meme Author: [WhoEvenUsesUsernames](https://www.reddit.com/user/WhoEvenUsesUsernames/)
+![Funny Meme](https://i.redd.it/a3vmvnmnj8xb1.jpg?width=100&height=100)
+* Meme Author: [EnderJackson](https://www.reddit.com/user/EnderJackson/)
 
 
 
