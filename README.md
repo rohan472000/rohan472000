@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hfeui2dxcywb1.jpg?width=100&height=100)
-* Meme Author: [Left_Concentrate_752](https://www.reddit.com/user/Left_Concentrate_752/)
+![Funny Meme](https://i.redd.it/ey51jmyxi6xb1.jpg?width=100&height=100)
+* Meme Author: [orgulloespanol](https://www.reddit.com/user/orgulloespanol/)
 
 
 
