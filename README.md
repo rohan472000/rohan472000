@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rmk74m80i5xb1.png?width=100&height=100)
-* Meme Author: [ivanrj7j](https://www.reddit.com/user/ivanrj7j/)
+![Funny Meme](https://i.redd.it/5gewf3oqt4xb1.jpg?width=100&height=100)
+* Meme Author: [Ducati_Don](https://www.reddit.com/user/Ducati_Don/)
 
 
 
