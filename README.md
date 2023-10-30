@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a3cnn1168bxb1.jpg?width=100&height=100)
-* Meme Author: [Longjumping-Rub-4764](https://www.reddit.com/user/Longjumping-Rub-4764/)
+![Funny Meme](https://i.redd.it/jphr3fymoywb1.jpg?width=100&height=100)
+* Meme Author: [AaronDarkus](https://www.reddit.com/user/AaronDarkus/)
 
 
 
