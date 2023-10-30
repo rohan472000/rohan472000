@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z1fmvg0f86xb1.jpg?width=100&height=100)
-* Meme Author: [LoudnessofTheLambs](https://www.reddit.com/user/LoudnessofTheLambs/)
+![Funny Meme](https://i.redd.it/wld4joo3m0xb1.jpg?width=100&height=100)
+* Meme Author: [UntoldTemple](https://www.reddit.com/user/UntoldTemple/)
 
 
 
