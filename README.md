@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ks67oi5wi6xb1.jpg?width=100&height=100)
-* Meme Author: [Eek132](https://www.reddit.com/user/Eek132/)
+![Funny Meme](https://i.redd.it/v1jr347a89xb1.png?width=100&height=100)
+* Meme Author: [TryDrugs](https://www.reddit.com/user/TryDrugs/)
 
 
 
