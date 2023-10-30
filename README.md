@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5pts49rrh7xb1.jpg?width=100&height=100)
-* Meme Author: [PhantomSVK14](https://www.reddit.com/user/PhantomSVK14/)
+![Funny Meme](https://i.redd.it/nddpyel4raxb1.jpg?width=100&height=100)
+* Meme Author: [Uphene](https://www.reddit.com/user/Uphene/)
 
 
 
