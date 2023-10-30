@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u87677g5k5xb1.jpg?width=100&height=100)
-* Meme Author: [Delusional_Sage](https://www.reddit.com/user/Delusional_Sage/)
+![Funny Meme](https://i.redd.it/egra2pc1n9xb1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
