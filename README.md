@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/EXVxb61.jpeg?width=100&height=100)
-* Meme Author: [StoopSign](https://www.reddit.com/user/StoopSign/)
+![Funny Meme](https://i.redd.it/i3uwi8em59xb1.jpg?width=100&height=100)
+* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
 
 
 
