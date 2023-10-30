@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iln2ir0liaxb1.jpg?width=100&height=100)
-* Meme Author: [Gothtomboys5](https://www.reddit.com/user/Gothtomboys5/)
+![Funny Meme](https://i.redd.it/zki3ps0tv4xb1.jpg?width=100&height=100)
+* Meme Author: [Bruhmonke42069](https://www.reddit.com/user/Bruhmonke42069/)
 
 
 
