@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4915tb8ip5xb1.jpg?width=100&height=100)
-* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
+![Funny Meme](https://i.redd.it/ddqgw45zg1xb1.jpg?width=100&height=100)
+* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
 
 
 
