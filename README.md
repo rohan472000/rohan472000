@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2cl737iljdxb1.jpg?width=100&height=100)
-* Meme Author: [Bongo_Bango_](https://www.reddit.com/user/Bongo_Bango_/)
+![Funny Meme](https://i.redd.it/j3rmj1syn8xb1.jpg?width=100&height=100)
+* Meme Author: [sepehr_brk](https://www.reddit.com/user/sepehr_brk/)
 
 
 
