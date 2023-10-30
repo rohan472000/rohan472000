@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sojjtkisx9xb1.jpg?width=100&height=100)
-* Meme Author: [KyleColby](https://www.reddit.com/user/KyleColby/)
+![Funny Meme](https://i.redd.it/qhfcwfnd38xb1.png?width=100&height=100)
+* Meme Author: [LeatherSlight3242](https://www.reddit.com/user/LeatherSlight3242/)
 
 
 
