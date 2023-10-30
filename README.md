@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ddqgw45zg1xb1.jpg?width=100&height=100)
-* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
+![Funny Meme](https://i.redd.it/s0yrc5bdv3xb1.jpg?width=100&height=100)
+* Meme Author: [TheDreamLightDude](https://www.reddit.com/user/TheDreamLightDude/)
 
 
 
