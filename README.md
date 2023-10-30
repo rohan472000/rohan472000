@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8gvrttfcr9xb1.jpg?width=100&height=100)
-* Meme Author: [venomsnake8519](https://www.reddit.com/user/venomsnake8519/)
+![Funny Meme](https://i.redd.it/ykpgyey5k8xb1.jpg?width=100&height=100)
+* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
 
 
 
