@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wld4joo3m0xb1.jpg?width=100&height=100)
-* Meme Author: [UntoldTemple](https://www.reddit.com/user/UntoldTemple/)
+![Funny Meme](https://i.redd.it/3vzab2eha6xb1.png?width=100&height=100)
+* Meme Author: [-zer0_0ne-](https://www.reddit.com/user/-zer0_0ne-/)
 
 
 
