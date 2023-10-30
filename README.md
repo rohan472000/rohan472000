@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qmwsqj5a36xb1.jpg?width=100&height=100)
-* Meme Author: [Efficient-Ad-3302](https://www.reddit.com/user/Efficient-Ad-3302/)
+![Funny Meme](https://i.redd.it/wyjhsbfx2axb1.jpg?width=100&height=100)
+* Meme Author: [EnderDragonCrafter01](https://www.reddit.com/user/EnderDragonCrafter01/)
 
 
 
