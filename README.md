@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sfr9p6g0r5xb1.jpg?width=100&height=100)
-* Meme Author: [Photoshops_Penises](https://www.reddit.com/user/Photoshops_Penises/)
+![Funny Meme](https://i.redd.it/wld4joo3m0xb1.jpg?width=100&height=100)
+* Meme Author: [UntoldTemple](https://www.reddit.com/user/UntoldTemple/)
 
 
 
