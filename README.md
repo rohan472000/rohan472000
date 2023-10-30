@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gz7opqp3t9xb1.jpg?width=100&height=100)
-* Meme Author: [Korplem](https://www.reddit.com/user/Korplem/)
+![Funny Meme](https://i.redd.it/kr2hrfmoj7xb1.jpg?width=100&height=100)
+* Meme Author: [Machine_94](https://www.reddit.com/user/Machine_94/)
 
 
 
