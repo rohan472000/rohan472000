@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ey51jmyxi6xb1.jpg?width=100&height=100)
-* Meme Author: [orgulloespanol](https://www.reddit.com/user/orgulloespanol/)
+![Funny Meme](https://i.redd.it/qmwsqj5a36xb1.jpg?width=100&height=100)
+* Meme Author: [Efficient-Ad-3302](https://www.reddit.com/user/Efficient-Ad-3302/)
 
 
 
