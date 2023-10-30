@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xr9vkb8bf1xb1.jpg?width=100&height=100)
-* Meme Author: [AbeliousAugustus](https://www.reddit.com/user/AbeliousAugustus/)
+![Funny Meme](https://i.redd.it/yh9lk0e212xb1.jpg?width=100&height=100)
+* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
 
 
 
