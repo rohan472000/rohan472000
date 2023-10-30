@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i4wdkk5sz2xb1.png?width=100&height=100)
-* Meme Author: [-JustAce](https://www.reddit.com/user/-JustAce/)
+![Funny Meme](https://i.redd.it/apnknhjfe3xb1.png?width=100&height=100)
+* Meme Author: [SaltyPhilosopher5454](https://www.reddit.com/user/SaltyPhilosopher5454/)
 
 
 
