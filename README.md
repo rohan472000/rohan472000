@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uuwla65s96xb1.png?width=100&height=100)
-* Meme Author: [-zer0_0ne-](https://www.reddit.com/user/-zer0_0ne-/)
+![Funny Meme](https://i.redd.it/gofuus5rh8xb1.png?width=100&height=100)
+* Meme Author: [Wubbzy-mon](https://www.reddit.com/user/Wubbzy-mon/)
 
 
 
