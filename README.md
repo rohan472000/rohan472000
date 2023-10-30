@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ey51jmyxi6xb1.jpg?width=100&height=100)
-* Meme Author: [orgulloespanol](https://www.reddit.com/user/orgulloespanol/)
+![Funny Meme](https://i.redd.it/8e180ti0l7xb1.png?width=100&height=100)
+* Meme Author: [Galaxy_Heart_Queen](https://www.reddit.com/user/Galaxy_Heart_Queen/)
 
 
 
