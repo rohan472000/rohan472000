@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ev0cli8sj4xb1.jpg?width=100&height=100)
-* Meme Author: [bodi123456](https://www.reddit.com/user/bodi123456/)
+![Funny Meme](https://i.redd.it/a4yltq5r76xb1.png?width=100&height=100)
+* Meme Author: [ryte-69](https://www.reddit.com/user/ryte-69/)
 
 
 
