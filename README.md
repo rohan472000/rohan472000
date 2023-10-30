@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w7pqdapsx7xb1.jpg?width=100&height=100)
-* Meme Author: [case_circle](https://www.reddit.com/user/case_circle/)
+![Funny Meme](https://i.redd.it/nzdznslis7xb1.jpg?width=100&height=100)
+* Meme Author: [dannyday10700](https://www.reddit.com/user/dannyday10700/)
 
 
 
