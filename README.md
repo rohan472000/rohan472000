@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/is5j1d7jeexb1.jpg?width=100&height=100)
-* Meme Author: [RichMarkleyDotCom](https://www.reddit.com/user/RichMarkleyDotCom/)
+![Funny Meme](https://i.redd.it/kkf18msaccxb1.png?width=100&height=100)
+* Meme Author: [Snapships4life](https://www.reddit.com/user/Snapships4life/)
 
 
 
