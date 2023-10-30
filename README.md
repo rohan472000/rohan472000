@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v81y4f9ms8xb1.jpg?width=100&height=100)
-* Meme Author: [FirePhoenix4](https://www.reddit.com/user/FirePhoenix4/)
+![Funny Meme](https://i.redd.it/u87677g5k5xb1.jpg?width=100&height=100)
+* Meme Author: [Delusional_Sage](https://www.reddit.com/user/Delusional_Sage/)
 
 
 
