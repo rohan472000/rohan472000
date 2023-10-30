@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s4i52ke9o4xb1.jpg?width=100&height=100)
-* Meme Author: [Dirty-Electro](https://www.reddit.com/user/Dirty-Electro/)
+![Funny Meme](https://i.redd.it/l4mf5hwdf8xb1.png?width=100&height=100)
+* Meme Author: [Hexxegone](https://www.reddit.com/user/Hexxegone/)
 
 
 
