@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kkf18msaccxb1.png?width=100&height=100)
-* Meme Author: [Snapships4life](https://www.reddit.com/user/Snapships4life/)
+![Funny Meme](https://i.redd.it/zdu7sg7ut9xb1.jpg?width=100&height=100)
+* Meme Author: [Blitz_Tanker](https://www.reddit.com/user/Blitz_Tanker/)
 
 
 
