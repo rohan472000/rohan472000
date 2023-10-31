@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n5p461yttjxb1.jpg?width=100&height=100)
-* Meme Author: [Kripl_one](https://www.reddit.com/user/Kripl_one/)
+![Funny Meme](https://i.redd.it/ui2dgvl35gxb1.jpg?width=100&height=100)
+* Meme Author: [uppsak](https://www.reddit.com/user/uppsak/)
 
 
 
