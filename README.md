@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xnu6q9xxxgxb1.jpg?width=100&height=100)
-* Meme Author: [kadomanderson](https://www.reddit.com/user/kadomanderson/)
+![Funny Meme](https://i.redd.it/vwya3715g7xb1.jpg?width=100&height=100)
+* Meme Author: [ProneManatee](https://www.reddit.com/user/ProneManatee/)
 
 
 
