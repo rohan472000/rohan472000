@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oybllrqtmjxb1.jpg?width=100&height=100)
-* Meme Author: [Cool_Phantom](https://www.reddit.com/user/Cool_Phantom/)
+![Funny Meme](https://i.redd.it/0kv3dpmtfkxb1.jpg?width=100&height=100)
+* Meme Author: [GugWatson](https://www.reddit.com/user/GugWatson/)
 
 
 
