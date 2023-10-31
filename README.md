@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f4tm5tz58kxb1.png?width=100&height=100)
-* Meme Author: [JustaTacoTree](https://www.reddit.com/user/JustaTacoTree/)
+![Funny Meme](https://i.redd.it/vir8sw16okxb1.jpg?width=100&height=100)
+* Meme Author: [DontTellBossIReddit](https://www.reddit.com/user/DontTellBossIReddit/)
 
 
 
