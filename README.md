@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/66gwxei4rixb1.jpg?width=100&height=100)
-* Meme Author: [Starman454642](https://www.reddit.com/user/Starman454642/)
+![Funny Meme](https://i.redd.it/vbcxktekhhxb1.jpg?width=100&height=100)
+* Meme Author: [otastco](https://www.reddit.com/user/otastco/)
 
 
 
