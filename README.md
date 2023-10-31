@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/suybr7j3shxb1.jpg?width=100&height=100)
-* Meme Author: [beautifulplanet](https://www.reddit.com/user/beautifulplanet/)
+![Funny Meme](https://i.redd.it/uxqbx7oa4hxb1.png?width=100&height=100)
+* Meme Author: [DarksideOutlaw](https://www.reddit.com/user/DarksideOutlaw/)
 
 
 
