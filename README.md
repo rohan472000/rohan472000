@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tv7kik6rijxb1.jpg?width=100&height=100)
-* Meme Author: [Apprehensive-Elk3165](https://www.reddit.com/user/Apprehensive-Elk3165/)
+![Funny Meme](https://i.redd.it/45ajl2l19hxb1.jpg?width=100&height=100)
+* Meme Author: [Jamminmb](https://www.reddit.com/user/Jamminmb/)
 
 
 
