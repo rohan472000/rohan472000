@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bnnfg3hfofxb1.jpg?width=100&height=100)
-* Meme Author: [NarkyDeMan](https://www.reddit.com/user/NarkyDeMan/)
+![Funny Meme](https://i.redd.it/uoticlud2gxb1.jpg?width=100&height=100)
+* Meme Author: [3psilon9](https://www.reddit.com/user/3psilon9/)
 
 
 
