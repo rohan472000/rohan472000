@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mw0kajsjlhxb1.png?width=100&height=100)
-* Meme Author: [em_the_one](https://www.reddit.com/user/em_the_one/)
+![Funny Meme](https://i.redd.it/kbdez18hklxb1.png?width=100&height=100)
+* Meme Author: [JustExisting09](https://www.reddit.com/user/JustExisting09/)
 
 
 
