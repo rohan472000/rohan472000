@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r7t8twsswcxb1.jpg?width=100&height=100)
-* Meme Author: [Colossus-Of-Chodes](https://www.reddit.com/user/Colossus-Of-Chodes/)
+![Funny Meme](https://i.redd.it/iln2ir0liaxb1.jpg?width=100&height=100)
+* Meme Author: [Gothtomboys5](https://www.reddit.com/user/Gothtomboys5/)
 
 
 
