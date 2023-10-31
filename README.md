@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/izoja6z2j9xb1.jpg?width=100&height=100)
-* Meme Author: [Silly-Ladder-8603](https://www.reddit.com/user/Silly-Ladder-8603/)
+![Funny Meme](https://i.redd.it/upl354z3ggxb1.jpg?width=100&height=100)
+* Meme Author: [TheMaybeMan_](https://www.reddit.com/user/TheMaybeMan_/)
 
 
 
