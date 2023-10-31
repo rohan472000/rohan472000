@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/egai424rsixb1.jpg?width=100&height=100)
-* Meme Author: [coleisw4ck](https://www.reddit.com/user/coleisw4ck/)
+![Funny Meme](https://i.redd.it/7zvci9cesixb1.jpg?width=100&height=100)
+* Meme Author: [Idiot91](https://www.reddit.com/user/Idiot91/)
 
 
 
