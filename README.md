@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ar5jfc44dxb1.jpg?width=100&height=100)
-* Meme Author: [jinspin](https://www.reddit.com/user/jinspin/)
+![Funny Meme](https://i.redd.it/x3v7yvnuccxb1.jpg?width=100&height=100)
+* Meme Author: [Responsible-Lab1947](https://www.reddit.com/user/Responsible-Lab1947/)
 
 
 
