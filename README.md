@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kbdez18hklxb1.png?width=100&height=100)
-* Meme Author: [JustExisting09](https://www.reddit.com/user/JustExisting09/)
+![Funny Meme](https://i.redd.it/4lxdm200gkxb1.jpg?width=100&height=100)
+* Meme Author: [Atomix1993](https://www.reddit.com/user/Atomix1993/)
 
 
 
