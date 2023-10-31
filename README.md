@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9k8skryopfxb1.png?width=100&height=100)
-* Meme Author: [Moat_of_the_Sacked](https://www.reddit.com/user/Moat_of_the_Sacked/)
+![Funny Meme](https://i.redd.it/do2cedqb4hxb1.jpg?width=100&height=100)
+* Meme Author: [Legalslimjim](https://www.reddit.com/user/Legalslimjim/)
 
 
 
