@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4lxdm200gkxb1.jpg?width=100&height=100)
-* Meme Author: [Atomix1993](https://www.reddit.com/user/Atomix1993/)
+![Funny Meme](https://i.redd.it/tzf89crzlhxb1.jpg?width=100&height=100)
+* Meme Author: [dassaup](https://www.reddit.com/user/dassaup/)
 
 
 
