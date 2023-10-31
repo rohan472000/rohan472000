@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/23bvpvzszlxb1.jpg?width=100&height=100)
-* Meme Author: [GAMERxPR0](https://www.reddit.com/user/GAMERxPR0/)
+![Funny Meme](https://i.redd.it/if75lkltulxb1.jpg?width=100&height=100)
+* Meme Author: [BigBootyBitches4Lyfe](https://www.reddit.com/user/BigBootyBitches4Lyfe/)
 
 
 
