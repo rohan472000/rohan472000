@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/12olgtpf8ixb1.jpg?width=100&height=100)
-* Meme Author: [Raul_1246](https://www.reddit.com/user/Raul_1246/)
+![Funny Meme](https://i.redd.it/r6mfy2r47dxb1.jpg?width=100&height=100)
+* Meme Author: [Acceptable_Shine_738](https://www.reddit.com/user/Acceptable_Shine_738/)
 
 
 
