@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0d2j1oz5hjxb1.jpg?width=100&height=100)
-* Meme Author: [mxcnslr2021](https://www.reddit.com/user/mxcnslr2021/)
+![Funny Meme](https://i.redd.it/vbcxktekhhxb1.jpg?width=100&height=100)
+* Meme Author: [otastco](https://www.reddit.com/user/otastco/)
 
 
 
