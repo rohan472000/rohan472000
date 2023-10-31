@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jhv4e5k8gdxb1.jpg?width=100&height=100)
-* Meme Author: [Background-Body9877](https://www.reddit.com/user/Background-Body9877/)
+![Funny Meme](https://i.redd.it/hi8r06zzsfxb1.jpg?width=100&height=100)
+* Meme Author: [Embarrassed_Cap4189](https://www.reddit.com/user/Embarrassed_Cap4189/)
 
 
 
