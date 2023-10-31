@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0mqes4xgsfxb1.jpg?width=100&height=100)
-* Meme Author: [Mc-MeepMeep](https://www.reddit.com/user/Mc-MeepMeep/)
+![Funny Meme](https://i.redd.it/fdunoyct2gxb1.jpg?width=100&height=100)
+* Meme Author: [SafeComfortable1009](https://www.reddit.com/user/SafeComfortable1009/)
 
 
 
