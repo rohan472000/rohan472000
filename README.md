@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wazxhw5ci8xb1.jpg?width=100&height=100)
-* Meme Author: [HalosOpulence](https://www.reddit.com/user/HalosOpulence/)
+![Funny Meme](https://i.redd.it/8azcuvgdncxb1.png?width=100&height=100)
+* Meme Author: [KyoN_tHe_DeStRoYeR](https://www.reddit.com/user/KyoN_tHe_DeStRoYeR/)
 
 
 
