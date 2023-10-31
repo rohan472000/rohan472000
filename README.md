@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r8upgmapqcxb1.jpg?width=100&height=100)
-* Meme Author: [Sk-yline1](https://www.reddit.com/user/Sk-yline1/)
+![Funny Meme](https://i.imgur.com/EXVxb61.jpeg?width=100&height=100)
+* Meme Author: [StoopSign](https://www.reddit.com/user/StoopSign/)
 
 
 
