@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e6i6d15a5exb1.jpg?width=100&height=100)
-* Meme Author: [Boeing-B-47stratojet](https://www.reddit.com/user/Boeing-B-47stratojet/)
+![Funny Meme](https://i.redd.it/sujweyjvcexb1.jpg?width=100&height=100)
+* Meme Author: [Electrical_Practice1](https://www.reddit.com/user/Electrical_Practice1/)
 
 
 
