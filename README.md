@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hi8r06zzsfxb1.jpg?width=100&height=100)
-* Meme Author: [Embarrassed_Cap4189](https://www.reddit.com/user/Embarrassed_Cap4189/)
+![Funny Meme](https://i.redd.it/q6z49yfzufxb1.jpg?width=100&height=100)
+* Meme Author: [SpoonyBardXIV-2](https://www.reddit.com/user/SpoonyBardXIV-2/)
 
 
 
