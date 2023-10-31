@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j5amv7tqsexb1.png?width=100&height=100)
-* Meme Author: [RingReasonable](https://www.reddit.com/user/RingReasonable/)
+![Funny Meme](https://i.redd.it/16a0lcossbxb1.jpg?width=100&height=100)
+* Meme Author: [suwedheeshan](https://www.reddit.com/user/suwedheeshan/)
 
 
 
