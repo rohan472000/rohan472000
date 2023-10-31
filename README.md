@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e9l5c735mexb1.jpg?width=100&height=100)
-* Meme Author: [oranke_dino](https://www.reddit.com/user/oranke_dino/)
+![Funny Meme](https://i.redd.it/y3fxdhcmfixb1.jpg?width=100&height=100)
+* Meme Author: [SUPERDUPER-DMT](https://www.reddit.com/user/SUPERDUPER-DMT/)
 
 
 
