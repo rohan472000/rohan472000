@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8sgp6g906kxb1.jpg?width=100&height=100)
-* Meme Author: [SamsNation](https://www.reddit.com/user/SamsNation/)
+![Funny Meme](https://i.redd.it/6hi4z4x6yaxb1.png?width=100&height=100)
+* Meme Author: [Songkolmae](https://www.reddit.com/user/Songkolmae/)
 
 
 
