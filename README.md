@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/05ydwbr41ixb1.png?width=100&height=100)
-* Meme Author: [RacerAfterDusk6044](https://www.reddit.com/user/RacerAfterDusk6044/)
+![Funny Meme](https://i.redd.it/66gwxei4rixb1.jpg?width=100&height=100)
+* Meme Author: [Starman454642](https://www.reddit.com/user/Starman454642/)
 
 
 
