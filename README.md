@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4a3ge735cexb1.jpg?width=100&height=100)
-* Meme Author: [Naz-loves](https://www.reddit.com/user/Naz-loves/)
+![Funny Meme](https://i.redd.it/zb4aq6qr6kxb1.png?width=100&height=100)
+* Meme Author: [kanna172014](https://www.reddit.com/user/kanna172014/)
 
 
 
