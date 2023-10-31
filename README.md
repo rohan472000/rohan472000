@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7zvci9cesixb1.jpg?width=100&height=100)
-* Meme Author: [Idiot91](https://www.reddit.com/user/Idiot91/)
+![Funny Meme](https://i.redd.it/05ydwbr41ixb1.png?width=100&height=100)
+* Meme Author: [RacerAfterDusk6044](https://www.reddit.com/user/RacerAfterDusk6044/)
 
 
 
