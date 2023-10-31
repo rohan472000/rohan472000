@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e8yfffq8jhxb1.jpg?width=100&height=100)
-* Meme Author: [booklover_on_earth](https://www.reddit.com/user/booklover_on_earth/)
+![Funny Meme](https://i.redd.it/ixy5jwyghixb1.jpg?width=100&height=100)
+* Meme Author: [carrolaXD](https://www.reddit.com/user/carrolaXD/)
 
 
 
