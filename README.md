@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/imbcx860qgxb1.jpg?width=100&height=100)
-* Meme Author: [Secure_Sprinkles4483](https://www.reddit.com/user/Secure_Sprinkles4483/)
+![Funny Meme](https://i.redd.it/nc5q203klaxb1.jpg?width=100&height=100)
+* Meme Author: [squid_ward_16](https://www.reddit.com/user/squid_ward_16/)
 
 
 
