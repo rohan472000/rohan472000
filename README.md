@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iln2ir0liaxb1.jpg?width=100&height=100)
-* Meme Author: [Gothtomboys5](https://www.reddit.com/user/Gothtomboys5/)
+![Funny Meme](https://i.redd.it/mz63x4bvnaxb1.png?width=100&height=100)
+* Meme Author: [Ryan_T_208](https://www.reddit.com/user/Ryan_T_208/)
 
 
 
