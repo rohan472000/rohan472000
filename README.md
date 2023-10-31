@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6rd6xb7dgdxb1.jpg?width=100&height=100)
-* Meme Author: [roubidou](https://www.reddit.com/user/roubidou/)
+![Funny Meme](https://i.redd.it/rpbhv00ltexb1.jpg?width=100&height=100)
+* Meme Author: [MonkeSquad](https://www.reddit.com/user/MonkeSquad/)
 
 
 
