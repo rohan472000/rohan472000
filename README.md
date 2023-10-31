@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lfnn5nvtvixb1.jpg?width=100&height=100)
-* Meme Author: [samyruno](https://www.reddit.com/user/samyruno/)
+![Funny Meme](https://i.redd.it/xzezxwbz9fxb1.jpg?width=100&height=100)
+* Meme Author: [booger-boss](https://www.reddit.com/user/booger-boss/)
 
 
 
