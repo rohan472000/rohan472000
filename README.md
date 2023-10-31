@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yu4gsd7rlexb1.jpg?width=100&height=100)
-* Meme Author: [Y-m-k](https://www.reddit.com/user/Y-m-k/)
+![Funny Meme](https://i.redd.it/imbcx860qgxb1.jpg?width=100&height=100)
+* Meme Author: [Secure_Sprinkles4483](https://www.reddit.com/user/Secure_Sprinkles4483/)
 
 
 
