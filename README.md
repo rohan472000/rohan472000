@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sujweyjvcexb1.jpg?width=100&height=100)
-* Meme Author: [Electrical_Practice1](https://www.reddit.com/user/Electrical_Practice1/)
+![Funny Meme](https://i.redd.it/bnnfg3hfofxb1.jpg?width=100&height=100)
+* Meme Author: [NarkyDeMan](https://www.reddit.com/user/NarkyDeMan/)
 
 
 
