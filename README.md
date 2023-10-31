@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6y1hshjglexb1.jpg?width=100&height=100)
-* Meme Author: [knj23](https://www.reddit.com/user/knj23/)
+![Funny Meme](https://i.redd.it/xnu6q9xxxgxb1.jpg?width=100&height=100)
+* Meme Author: [kadomanderson](https://www.reddit.com/user/kadomanderson/)
 
 
 
