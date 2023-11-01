@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vyqywcikymxb1.jpg?width=100&height=100)
-* Meme Author: [phatstock](https://www.reddit.com/user/phatstock/)
+![Funny Meme](https://i.redd.it/6g48yf2e7nxb1.jpg?width=100&height=100)
+* Meme Author: [Left-Twix420](https://www.reddit.com/user/Left-Twix420/)
 
 
 
