@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0rgk1pj95oxb1.jpg?width=100&height=100)
-* Meme Author: [ajjflash](https://www.reddit.com/user/ajjflash/)
+![Funny Meme](https://i.redd.it/80vupf7kpoxb1.jpg?width=100&height=100)
+* Meme Author: [iTapeSand](https://www.reddit.com/user/iTapeSand/)
 
 
 
