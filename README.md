@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fhuxgryl7lxb1.jpg?width=100&height=100)
-* Meme Author: [EndyEnderson](https://www.reddit.com/user/EndyEnderson/)
+![Funny Meme](https://i.redd.it/wrk1rfg1jjxb1.jpg?width=100&height=100)
+* Meme Author: [tucchurchnj](https://www.reddit.com/user/tucchurchnj/)
 
 
 
