@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z5flcbakuoxb1.jpg?width=100&height=100)
-* Meme Author: [Gothtomboys5](https://www.reddit.com/user/Gothtomboys5/)
+![Funny Meme](https://i.redd.it/wxjrzdgvcpxb1.jpg?width=100&height=100)
+* Meme Author: [Worth-Gene](https://www.reddit.com/user/Worth-Gene/)
 
 
 
