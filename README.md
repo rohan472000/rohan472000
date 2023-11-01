@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3ht9rq55bmxb1.jpg?width=100&height=100)
-* Meme Author: [crimewaveusa](https://www.reddit.com/user/crimewaveusa/)
+![Funny Meme](https://i.redd.it/1l9xhcf33kxb1.jpg?width=100&height=100)
+* Meme Author: [KyleColby](https://www.reddit.com/user/KyleColby/)
 
 
 
