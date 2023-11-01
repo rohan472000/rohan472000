@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c4oqk46xgkxb1.jpg?width=100&height=100)
-* Meme Author: [Commander369199](https://www.reddit.com/user/Commander369199/)
+![Funny Meme](https://i.redd.it/j0eccu2airxb1.jpg?width=100&height=100)
+* Meme Author: [oranke_dino](https://www.reddit.com/user/oranke_dino/)
 
 
 
