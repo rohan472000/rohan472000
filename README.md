@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tux2xsuwfoxb1.jpg?width=100&height=100)
-* Meme Author: [SpottyJaggy](https://www.reddit.com/user/SpottyJaggy/)
+![Funny Meme](https://i.redd.it/c4oqk46xgkxb1.jpg?width=100&height=100)
+* Meme Author: [Commander369199](https://www.reddit.com/user/Commander369199/)
 
 
 
