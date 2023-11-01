@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/926nk7imlrxb1.jpg?width=100&height=100)
-* Meme Author: [ThatLasagnaGuy](https://www.reddit.com/user/ThatLasagnaGuy/)
+![Funny Meme](https://i.redd.it/iheiofnpzrxb1.jpg?width=100&height=100)
+* Meme Author: [wcslater](https://www.reddit.com/user/wcslater/)
 
 
 
