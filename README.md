@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f4uqlpvppmxb1.jpg?width=100&height=100)
-* Meme Author: [Lukas_salota](https://www.reddit.com/user/Lukas_salota/)
+![Funny Meme](https://i.redd.it/5629wa8cfkxb1.jpg?width=100&height=100)
+* Meme Author: [Psyfreakpt](https://www.reddit.com/user/Psyfreakpt/)
 
 
 
