@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a8mxbo1scsxb1.jpg?width=100&height=100)
-* Meme Author: [indifferent-stone](https://www.reddit.com/user/indifferent-stone/)
+![Funny Meme](https://i.redd.it/z8ccafyjukxb1.jpg?width=100&height=100)
+* Meme Author: [Dramatic-Reality-124](https://www.reddit.com/user/Dramatic-Reality-124/)
 
 
 
