@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f2heotw0lpxb1.jpg?width=100&height=100)
-* Meme Author: [Timcraft_06](https://www.reddit.com/user/Timcraft_06/)
+![Funny Meme](https://i.redd.it/vrkjstkayrxb1.jpg?width=100&height=100)
+* Meme Author: [Insane_Unicorn](https://www.reddit.com/user/Insane_Unicorn/)
 
 
 
