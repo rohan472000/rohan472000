@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7vflkoihtsxb1.jpg?width=100&height=100)
-* Meme Author: [CrimsonCrayola](https://www.reddit.com/user/CrimsonCrayola/)
+![Funny Meme](https://i.redd.it/3l5d96o0erxb1.jpg?width=100&height=100)
+* Meme Author: [TxchnxnXD](https://www.reddit.com/user/TxchnxnXD/)
 
 
 
