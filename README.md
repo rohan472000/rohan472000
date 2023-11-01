@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ygyx4cqcmlxb1.png?width=100&height=100)
-* Meme Author: [Loose_Journalist9879](https://www.reddit.com/user/Loose_Journalist9879/)
+![Funny Meme](https://i.redd.it/o37nyhmz8mxb1.jpg?width=100&height=100)
+* Meme Author: [Obscure_Occultist](https://www.reddit.com/user/Obscure_Occultist/)
 
 
 
