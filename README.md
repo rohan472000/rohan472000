@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wgyiget4doxb1.png?width=100&height=100)
-* Meme Author: [nogginthepoggin](https://www.reddit.com/user/nogginthepoggin/)
+![Funny Meme](https://i.redd.it/jhg2hef6ulxb1.jpg?width=100&height=100)
+* Meme Author: [Phantom-Wolf13](https://www.reddit.com/user/Phantom-Wolf13/)
 
 
 
