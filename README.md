@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/65zawbbq2rxb1.png?width=100&height=100)
-* Meme Author: [YoBGS-](https://www.reddit.com/user/YoBGS-/)
+![Funny Meme](https://i.redd.it/n7fngel1bmxb1.jpg?width=100&height=100)
+* Meme Author: [Recent_Community_157](https://www.reddit.com/user/Recent_Community_157/)
 
 
 
