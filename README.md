@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7en56jtdomxb1.jpg?width=100&height=100)
-* Meme Author: [Der-coole-mit-wifi](https://www.reddit.com/user/Der-coole-mit-wifi/)
+![Funny Meme](https://i.redd.it/1xr39ns3fpxb1.jpg?width=100&height=100)
+* Meme Author: [Guard933](https://www.reddit.com/user/Guard933/)
 
 
 
