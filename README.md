@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t3k1q4n6unxb1.png?width=100&height=100)
-* Meme Author: [Baxter_Pro](https://www.reddit.com/user/Baxter_Pro/)
+![Funny Meme](https://i.redd.it/80vupf7kpoxb1.jpg?width=100&height=100)
+* Meme Author: [iTapeSand](https://www.reddit.com/user/iTapeSand/)
 
 
 
