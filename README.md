@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/36n7apz5xqxb1.jpg?width=100&height=100)
-* Meme Author: [Conscious_shadow](https://www.reddit.com/user/Conscious_shadow/)
+![Funny Meme](https://i.redd.it/diy97n5sqnxb1.jpg?width=100&height=100)
+* Meme Author: [Jman_Foxclaw](https://www.reddit.com/user/Jman_Foxclaw/)
 
 
 
