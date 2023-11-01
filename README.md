@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ibx7fcenqmxb1.jpg?width=100&height=100)
-* Meme Author: [nocap42068](https://www.reddit.com/user/nocap42068/)
+![Funny Meme](https://i.redd.it/iyyxfuolhlxb1.jpg?width=100&height=100)
+* Meme Author: [Md_50356](https://www.reddit.com/user/Md_50356/)
 
 
 
