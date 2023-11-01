@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8i54w430hmxb1.jpg?width=100&height=100)
-* Meme Author: [Mister_Pianister](https://www.reddit.com/user/Mister_Pianister/)
+![Funny Meme](https://i.redd.it/wgyiget4doxb1.png?width=100&height=100)
+* Meme Author: [nogginthepoggin](https://www.reddit.com/user/nogginthepoggin/)
 
 
 
