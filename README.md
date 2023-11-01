@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fb3ynhm5toxb1.jpg?width=100&height=100)
-* Meme Author: [Patron__070](https://www.reddit.com/user/Patron__070/)
+![Funny Meme](https://i.redd.it/fd9s0jfwtjxb1.png?width=100&height=100)
+* Meme Author: [scrubgaming05](https://www.reddit.com/user/scrubgaming05/)
 
 
 
