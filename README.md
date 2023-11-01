@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bv1r63zxxnxb1.jpg?width=100&height=100)
-* Meme Author: [iWillRe1gn](https://www.reddit.com/user/iWillRe1gn/)
+![Funny Meme](https://i.redd.it/u94l339o1pxb1.jpg?width=100&height=100)
+* Meme Author: [CptRennett](https://www.reddit.com/user/CptRennett/)
 
 
 
