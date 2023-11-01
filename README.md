@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vs49gzm7wmxb1.jpg?width=100&height=100)
-* Meme Author: [Arda_wulf](https://www.reddit.com/user/Arda_wulf/)
+![Funny Meme](https://i.redd.it/tux2xsuwfoxb1.jpg?width=100&height=100)
+* Meme Author: [SpottyJaggy](https://www.reddit.com/user/SpottyJaggy/)
 
 
 
