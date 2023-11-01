@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e1a4xg0kqpxb1.png?width=100&height=100)
-* Meme Author: [IAmAccutane](https://www.reddit.com/user/IAmAccutane/)
+![Funny Meme](https://i.redd.it/c4oqk46xgkxb1.jpg?width=100&height=100)
+* Meme Author: [Commander369199](https://www.reddit.com/user/Commander369199/)
 
 
 
