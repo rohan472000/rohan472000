@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mxdukqyexmxb1.jpg?width=100&height=100)
-* Meme Author: [Timboslice951](https://www.reddit.com/user/Timboslice951/)
+![Funny Meme](https://i.redd.it/ygyx4cqcmlxb1.png?width=100&height=100)
+* Meme Author: [Loose_Journalist9879](https://www.reddit.com/user/Loose_Journalist9879/)
 
 
 
