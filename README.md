@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nd6fmmb42rxb1.jpg?width=100&height=100)
-* Meme Author: [ThatLasagnaGuy](https://www.reddit.com/user/ThatLasagnaGuy/)
+![Funny Meme](https://i.redd.it/dkmxbksvdsxb1.jpg?width=100&height=100)
+* Meme Author: [TheHighKing112](https://www.reddit.com/user/TheHighKing112/)
 
 
 
