@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rl5f6tuyjnxb1.jpg?width=100&height=100)
-* Meme Author: [Mr-Ideasman](https://www.reddit.com/user/Mr-Ideasman/)
+![Funny Meme](https://i.redd.it/vssf2e0tknxb1.jpg?width=100&height=100)
+* Meme Author: [Icon47](https://www.reddit.com/user/Icon47/)
 
 
 
