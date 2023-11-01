@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3a771ey8bnxb1.jpg?width=100&height=100)
-* Meme Author: [brennie-bee](https://www.reddit.com/user/brennie-bee/)
+![Funny Meme](https://i.redd.it/t3k1q4n6unxb1.png?width=100&height=100)
+* Meme Author: [Baxter_Pro](https://www.reddit.com/user/Baxter_Pro/)
 
 
 
