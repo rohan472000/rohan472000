@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z8ccafyjukxb1.jpg?width=100&height=100)
-* Meme Author: [Dramatic-Reality-124](https://www.reddit.com/user/Dramatic-Reality-124/)
+![Funny Meme](https://i.redd.it/p54jp0ickoxb1.jpg?width=100&height=100)
+* Meme Author: [intell1slt](https://www.reddit.com/user/intell1slt/)
 
 
 
