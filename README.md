@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ncrvw3eojrxb1.png?width=100&height=100)
-* Meme Author: [konosapi](https://www.reddit.com/user/konosapi/)
+![Funny Meme](https://i.redd.it/dmulpq712txb1.jpg?width=100&height=100)
+* Meme Author: [asian69feet](https://www.reddit.com/user/asian69feet/)
 
 
 
