@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c810lni09kxb1.jpg?width=100&height=100)
-* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
+![Funny Meme](https://i.redd.it/2x1nyhuvrexb1.png?width=100&height=100)
+* Meme Author: [CrimsonDurian](https://www.reddit.com/user/CrimsonDurian/)
 
 
 
