@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8qlhzesposxb1.jpg?width=100&height=100)
-* Meme Author: [Spirited-Diver8654](https://www.reddit.com/user/Spirited-Diver8654/)
+![Funny Meme](https://i.redd.it/9kx7h7u7drxb1.jpg?width=100&height=100)
+* Meme Author: [Accomplished-Ad9039](https://www.reddit.com/user/Accomplished-Ad9039/)
 
 
 
