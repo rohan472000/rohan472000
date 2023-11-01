@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2x1nyhuvrexb1.png?width=100&height=100)
-* Meme Author: [CrimsonDurian](https://www.reddit.com/user/CrimsonDurian/)
+![Funny Meme](https://i.redd.it/hdxgldwczkxb1.jpg?width=100&height=100)
+* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
 
 
 
