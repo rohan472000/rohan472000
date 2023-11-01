@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vyqywcikymxb1.jpg?width=100&height=100)
-* Meme Author: [phatstock](https://www.reddit.com/user/phatstock/)
+![Funny Meme](https://i.redd.it/sbzy9ol6anxb1.jpg?width=100&height=100)
+* Meme Author: [ARandomPokemonArt](https://www.reddit.com/user/ARandomPokemonArt/)
 
 
 
