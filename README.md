@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/22hjahqssoxb1.jpg?width=100&height=100)
-* Meme Author: [Majestic_Department7](https://www.reddit.com/user/Majestic_Department7/)
+![Funny Meme](https://i.redd.it/ygyx4cqcmlxb1.png?width=100&height=100)
+* Meme Author: [Loose_Journalist9879](https://www.reddit.com/user/Loose_Journalist9879/)
 
 
 
