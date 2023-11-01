@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rmseuwg84sxb1.jpg?width=100&height=100)
-* Meme Author: [tstyes](https://www.reddit.com/user/tstyes/)
+![Funny Meme](https://i.redd.it/1gu4eubkxhxb1.jpg?width=100&height=100)
+* Meme Author: [Legitimate-Sun-3772](https://www.reddit.com/user/Legitimate-Sun-3772/)
 
 
 
