@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vr1y3kt60rxb1.jpg?width=100&height=100)
-* Meme Author: [Freekarma4u69420](https://www.reddit.com/user/Freekarma4u69420/)
+![Funny Meme](https://i.redd.it/e1a4xg0kqpxb1.png?width=100&height=100)
+* Meme Author: [IAmAccutane](https://www.reddit.com/user/IAmAccutane/)
 
 
 
