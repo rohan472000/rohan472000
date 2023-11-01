@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ujhxeupckrxb1.jpg?width=100&height=100)
-* Meme Author: [MisterFyre](https://www.reddit.com/user/MisterFyre/)
+![Funny Meme](https://i.redd.it/5e2lfvgynpxb1.png?width=100&height=100)
+* Meme Author: [GoblinCasserole](https://www.reddit.com/user/GoblinCasserole/)
 
 
 
