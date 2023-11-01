@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pyua2ghjvmxb1.jpg?width=100&height=100)
-* Meme Author: [EducationalTie1946](https://www.reddit.com/user/EducationalTie1946/)
+![Funny Meme](https://i.redd.it/mtrjw2q9xpxb1.jpg?width=100&height=100)
+* Meme Author: [Sh4do3Fox](https://www.reddit.com/user/Sh4do3Fox/)
 
 
 
