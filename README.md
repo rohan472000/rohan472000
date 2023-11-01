@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kezbg8eotqxb1.jpg?width=100&height=100)
-* Meme Author: [sirKINGDOM2086](https://www.reddit.com/user/sirKINGDOM2086/)
+![Funny Meme](https://i.redd.it/e88wgegbvpxb1.jpg?width=100&height=100)
+* Meme Author: [NoBrilliant6924](https://www.reddit.com/user/NoBrilliant6924/)
 
 
 
