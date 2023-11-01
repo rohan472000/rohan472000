@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdblyta01nxb1.jpg?width=100&height=100)
-* Meme Author: [CaptFalconFTW](https://www.reddit.com/user/CaptFalconFTW/)
+![Funny Meme](https://i.redd.it/fb3ynhm5toxb1.jpg?width=100&height=100)
+* Meme Author: [Patron__070](https://www.reddit.com/user/Patron__070/)
 
 
 
