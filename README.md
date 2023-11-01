@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rpnjdeeu0nxb1.jpg?width=100&height=100)
-* Meme Author: [Trick-Concept1909](https://www.reddit.com/user/Trick-Concept1909/)
+![Funny Meme](https://i.redd.it/x2ut4cbjukxb1.png?width=100&height=100)
+* Meme Author: [Lumpy_Forever_98](https://www.reddit.com/user/Lumpy_Forever_98/)
 
 
 
