@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9kx7h7u7drxb1.jpg?width=100&height=100)
-* Meme Author: [Accomplished-Ad9039](https://www.reddit.com/user/Accomplished-Ad9039/)
+![Funny Meme](https://i.redd.it/5xuqdclowsxb1.png?width=100&height=100)
+* Meme Author: [LockhandsOfKeyboard](https://www.reddit.com/user/LockhandsOfKeyboard/)
 
 
 
