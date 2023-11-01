@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iheiofnpzrxb1.jpg?width=100&height=100)
-* Meme Author: [wcslater](https://www.reddit.com/user/wcslater/)
+![Funny Meme](https://i.redd.it/bv1r63zxxnxb1.jpg?width=100&height=100)
+* Meme Author: [iWillRe1gn](https://www.reddit.com/user/iWillRe1gn/)
 
 
 
