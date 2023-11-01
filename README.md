@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/idtajgfmxmxb1.jpg?width=100&height=100)
-* Meme Author: [pohovanatikvica](https://www.reddit.com/user/pohovanatikvica/)
+![Funny Meme](https://i.redd.it/g4b3x9noloxb1.png?width=100&height=100)
+* Meme Author: [meruzezo](https://www.reddit.com/user/meruzezo/)
 
 
 
