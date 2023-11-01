@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1gu4eubkxhxb1.jpg?width=100&height=100)
-* Meme Author: [Legitimate-Sun-3772](https://www.reddit.com/user/Legitimate-Sun-3772/)
+![Funny Meme](https://i.redd.it/cllcclbsxqxb1.png?width=100&height=100)
+* Meme Author: [SweatyChickenBuuuubz](https://www.reddit.com/user/SweatyChickenBuuuubz/)
 
 
 
