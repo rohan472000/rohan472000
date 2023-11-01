@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vssf2e0tknxb1.jpg?width=100&height=100)
-* Meme Author: [Icon47](https://www.reddit.com/user/Icon47/)
+![Funny Meme](https://i.redd.it/lzremsv9nmxb1.jpg?width=100&height=100)
+* Meme Author: [ThatEvilSpaceChicken](https://www.reddit.com/user/ThatEvilSpaceChicken/)
 
 
 
