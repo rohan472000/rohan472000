@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sbzy9ol6anxb1.jpg?width=100&height=100)
-* Meme Author: [ARandomPokemonArt](https://www.reddit.com/user/ARandomPokemonArt/)
+![Funny Meme](https://i.redd.it/rpnjdeeu0nxb1.jpg?width=100&height=100)
+* Meme Author: [Trick-Concept1909](https://www.reddit.com/user/Trick-Concept1909/)
 
 
 
