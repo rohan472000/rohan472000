@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/phdfk19k3oxb1.jpg?width=100&height=100)
-* Meme Author: [TricycleTechnician](https://www.reddit.com/user/TricycleTechnician/)
+![Funny Meme](https://i.redd.it/80vupf7kpoxb1.jpg?width=100&height=100)
+* Meme Author: [iTapeSand](https://www.reddit.com/user/iTapeSand/)
 
 
 
