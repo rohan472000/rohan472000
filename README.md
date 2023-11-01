@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wcf9af4valxb1.png?width=100&height=100)
-* Meme Author: [Knight9910](https://www.reddit.com/user/Knight9910/)
+![Funny Meme](https://i.redd.it/fhuxgryl7lxb1.jpg?width=100&height=100)
+* Meme Author: [EndyEnderson](https://www.reddit.com/user/EndyEnderson/)
 
 
 
