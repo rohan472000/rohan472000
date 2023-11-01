@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6w9ayi6ufrxb1.png?width=100&height=100)
-* Meme Author: [Hot_Crab8092](https://www.reddit.com/user/Hot_Crab8092/)
+![Funny Meme](https://i.redd.it/c4oqk46xgkxb1.jpg?width=100&height=100)
+* Meme Author: [Commander369199](https://www.reddit.com/user/Commander369199/)
 
 
 
