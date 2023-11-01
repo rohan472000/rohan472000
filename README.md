@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3s3ua9c4mkxb1.png?width=100&height=100)
-* Meme Author: [ProperPizza](https://www.reddit.com/user/ProperPizza/)
+![Funny Meme](https://i.redd.it/q7f2pbdkwkxb1.jpg?width=100&height=100)
+* Meme Author: [_The_Van_](https://www.reddit.com/user/_The_Van_/)
 
 
 
