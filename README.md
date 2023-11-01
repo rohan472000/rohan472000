@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ile2f51u4nxb1.jpg?width=100&height=100)
-* Meme Author: [TheDJ88](https://www.reddit.com/user/TheDJ88/)
+![Funny Meme](https://i.redd.it/xoifplx66qxb1.jpg?width=100&height=100)
+* Meme Author: [Lyrical_Man01](https://www.reddit.com/user/Lyrical_Man01/)
 
 
 
