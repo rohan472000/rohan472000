@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o37nyhmz8mxb1.jpg?width=100&height=100)
-* Meme Author: [Obscure_Occultist](https://www.reddit.com/user/Obscure_Occultist/)
+![Funny Meme](https://i.redd.it/c810lni09kxb1.jpg?width=100&height=100)
+* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
 
 
 
