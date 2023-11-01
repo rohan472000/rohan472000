@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kgdxdphjpqxb1.png?width=100&height=100)
-* Meme Author: [Chance-Personality50](https://www.reddit.com/user/Chance-Personality50/)
+![Funny Meme](https://i.redd.it/pyua2ghjvmxb1.jpg?width=100&height=100)
+* Meme Author: [EducationalTie1946](https://www.reddit.com/user/EducationalTie1946/)
 
 
 
