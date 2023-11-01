@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3l5d96o0erxb1.jpg?width=100&height=100)
-* Meme Author: [TxchnxnXD](https://www.reddit.com/user/TxchnxnXD/)
+![Funny Meme](https://i.redd.it/8qlhzesposxb1.jpg?width=100&height=100)
+* Meme Author: [Spirited-Diver8654](https://www.reddit.com/user/Spirited-Diver8654/)
 
 
 
