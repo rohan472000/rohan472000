@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n7fngel1bmxb1.jpg?width=100&height=100)
-* Meme Author: [Recent_Community_157](https://www.reddit.com/user/Recent_Community_157/)
+![Funny Meme](https://i.redd.it/2kgaep8arnxb1.jpg?width=100&height=100)
+* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
 
 
 
