@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2es2xgv75pxb1.jpg?width=100&height=100)
-* Meme Author: [Phantom-Wolf13](https://www.reddit.com/user/Phantom-Wolf13/)
+![Funny Meme](https://i.redd.it/ujhxeupckrxb1.jpg?width=100&height=100)
+* Meme Author: [MisterFyre](https://www.reddit.com/user/MisterFyre/)
 
 
 
