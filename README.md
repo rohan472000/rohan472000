@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3l5d96o0erxb1.jpg?width=100&height=100)
-* Meme Author: [TxchnxnXD](https://www.reddit.com/user/TxchnxnXD/)
+![Funny Meme](https://i.redd.it/lfctl6047rxb1.jpg?width=100&height=100)
+* Meme Author: [Nal1999](https://www.reddit.com/user/Nal1999/)
 
 
 
