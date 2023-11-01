@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nv1gee0iljxb1.jpg?width=100&height=100)
-* Meme Author: [para-C](https://www.reddit.com/user/para-C/)
+![Funny Meme](https://i.redd.it/pgbi9xhiblxb1.jpg?width=100&height=100)
+* Meme Author: [DrewsPops](https://www.reddit.com/user/DrewsPops/)
 
 
 
