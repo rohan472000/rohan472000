@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/diy97n5sqnxb1.jpg?width=100&height=100)
-* Meme Author: [Jman_Foxclaw](https://www.reddit.com/user/Jman_Foxclaw/)
+![Funny Meme](https://i.redd.it/3l5d96o0erxb1.jpg?width=100&height=100)
+* Meme Author: [TxchnxnXD](https://www.reddit.com/user/TxchnxnXD/)
 
 
 
