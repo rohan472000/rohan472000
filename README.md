@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qx1oy3m0ctxb1.jpg?width=100&height=100)
-* Meme Author: [potatoyeeter420](https://www.reddit.com/user/potatoyeeter420/)
+![Funny Meme](https://i.redd.it/dpohuo3k8vxb1.jpg?width=100&height=100)
+* Meme Author: [1997D190P](https://www.reddit.com/user/1997D190P/)
 
 
 
