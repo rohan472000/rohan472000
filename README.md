@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hzkk3e851xxb1.jpg?width=100&height=100)
-* Meme Author: [Gugarabelo](https://www.reddit.com/user/Gugarabelo/)
+![Funny Meme](https://i.redd.it/ftmilhammuxb1.jpg?width=100&height=100)
+* Meme Author: [Nerevarine95](https://www.reddit.com/user/Nerevarine95/)
 
 
 
