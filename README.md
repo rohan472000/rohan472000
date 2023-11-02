@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i0x670qx5xxb1.jpg?width=100&height=100)
-* Meme Author: [ninja_pingiun_isback](https://www.reddit.com/user/ninja_pingiun_isback/)
+![Funny Meme](https://i.redd.it/pe8ryhr03yxb1.jpg?width=100&height=100)
+* Meme Author: [Aromatic-Union6080](https://www.reddit.com/user/Aromatic-Union6080/)
 
 
 
