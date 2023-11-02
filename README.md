@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4u32tycucwxb1.png?width=100&height=100)
-* Meme Author: [MIJORE_227](https://www.reddit.com/user/MIJORE_227/)
+![Funny Meme](https://i.redd.it/4wcd6cygutxb1.jpg?width=100&height=100)
+* Meme Author: [Mirukail](https://www.reddit.com/user/Mirukail/)
 
 
 
