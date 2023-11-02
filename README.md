@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vcbhm1lxxwxb1.jpg?width=100&height=100)
-* Meme Author: [GolettO3](https://www.reddit.com/user/GolettO3/)
+![Funny Meme](https://i.redd.it/9htpq9wd8rxb1.jpg?width=100&height=100)
+* Meme Author: [squee166](https://www.reddit.com/user/squee166/)
 
 
 
