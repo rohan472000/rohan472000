@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qir589vqpxxb1.jpg?width=100&height=100)
-* Meme Author: [MaleficentDistance72](https://www.reddit.com/user/MaleficentDistance72/)
+![Funny Meme](https://i.redd.it/l1shxcnvsuxb1.jpg?width=100&height=100)
+* Meme Author: [squid_ward_16](https://www.reddit.com/user/squid_ward_16/)
 
 
 
