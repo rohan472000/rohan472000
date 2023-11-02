@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ahgadx72suxb1.png?width=100&height=100)
-* Meme Author: [Baanished](https://www.reddit.com/user/Baanished/)
+![Funny Meme](https://i.redd.it/figqd4vrzrxb1.jpg?width=100&height=100)
+* Meme Author: [Layman88](https://www.reddit.com/user/Layman88/)
 
 
 
