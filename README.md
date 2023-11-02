@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5cfe2um27sxb1.jpg?width=100&height=100)
-* Meme Author: [Perfect-Arachnid5176](https://www.reddit.com/user/Perfect-Arachnid5176/)
+![Funny Meme](https://i.redd.it/gbet6u7fvqxb1.jpg?width=100&height=100)
+* Meme Author: [supersk2006](https://www.reddit.com/user/supersk2006/)
 
 
 
