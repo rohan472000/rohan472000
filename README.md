@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h20e47zfpuxb1.jpg?width=100&height=100)
-* Meme Author: [TBIrehab](https://www.reddit.com/user/TBIrehab/)
+![Funny Meme](https://i.redd.it/4u32tycucwxb1.png?width=100&height=100)
+* Meme Author: [MIJORE_227](https://www.reddit.com/user/MIJORE_227/)
 
 
 
