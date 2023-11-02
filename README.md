@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x4knippmntxb1.jpg?width=100&height=100)
-* Meme Author: [hydraulics-](https://www.reddit.com/user/hydraulics-/)
+![Funny Meme](https://i.redd.it/8cqshof4pyxb1.jpg?width=100&height=100)
+* Meme Author: [YummyTerror8259](https://www.reddit.com/user/YummyTerror8259/)
 
 
 
