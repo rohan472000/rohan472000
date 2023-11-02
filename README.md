@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3d6murqn7wxb1.jpg?width=100&height=100)
-* Meme Author: [Prize-Nothing7946](https://www.reddit.com/user/Prize-Nothing7946/)
+![Funny Meme](https://i.redd.it/s9phs8gkivxb1.jpg?width=100&height=100)
+* Meme Author: [Level105Mage](https://www.reddit.com/user/Level105Mage/)
 
 
 
