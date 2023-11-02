@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7ukd65lp5zxb1.jpg?width=100&height=100)
-* Meme Author: [ThatLasagnaGuy](https://www.reddit.com/user/ThatLasagnaGuy/)
+![Funny Meme](https://i.redd.it/i0x670qx5xxb1.jpg?width=100&height=100)
+* Meme Author: [ninja_pingiun_isback](https://www.reddit.com/user/ninja_pingiun_isback/)
 
 
 
