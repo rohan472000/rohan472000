@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g5va5uzyesxb1.jpg?width=100&height=100)
-* Meme Author: [Yonimations](https://www.reddit.com/user/Yonimations/)
+![Funny Meme](https://i.redd.it/36hi1lpbtsxb1.jpg?width=100&height=100)
+* Meme Author: [Prof_Lego](https://www.reddit.com/user/Prof_Lego/)
 
 
 
