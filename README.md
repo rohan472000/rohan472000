@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t51vub1n80yb1.jpg?width=100&height=100)
-* Meme Author: [Neon_Genisis](https://www.reddit.com/user/Neon_Genisis/)
+![Funny Meme](https://i.redd.it/k9k8l7jnyuxb1.png?width=100&height=100)
+* Meme Author: [Dessert_And_Tea](https://www.reddit.com/user/Dessert_And_Tea/)
 
 
 
