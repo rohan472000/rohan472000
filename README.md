@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qa3i27mg1wxb1.jpg?width=100&height=100)
-* Meme Author: [Hesbhindmeisnthe](https://www.reddit.com/user/Hesbhindmeisnthe/)
+![Funny Meme](https://i.redd.it/8cozrsct9wxb1.jpg?width=100&height=100)
+* Meme Author: [ShadowY76](https://www.reddit.com/user/ShadowY76/)
 
 
 
