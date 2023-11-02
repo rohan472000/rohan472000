@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6stc0ec12rxb1.jpg?width=100&height=100)
-* Meme Author: [Admirable-Reality-62](https://www.reddit.com/user/Admirable-Reality-62/)
+![Funny Meme](https://i.redd.it/5cfe2um27sxb1.jpg?width=100&height=100)
+* Meme Author: [Perfect-Arachnid5176](https://www.reddit.com/user/Perfect-Arachnid5176/)
 
 
 
