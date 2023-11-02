@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/auv5cylwdlxb1.jpg?width=100&height=100)
-* Meme Author: [gb1609](https://www.reddit.com/user/gb1609/)
+![Funny Meme](https://i.redd.it/3l5d96o0erxb1.jpg?width=100&height=100)
+* Meme Author: [TxchnxnXD](https://www.reddit.com/user/TxchnxnXD/)
 
 
 
