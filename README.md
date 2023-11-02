@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rnhmhwxctsxb1.jpg?width=100&height=100)
-* Meme Author: [Manetoys83](https://www.reddit.com/user/Manetoys83/)
+![Funny Meme](https://i.redd.it/lrmkg904yuxb1.jpg?width=100&height=100)
+* Meme Author: [wieizme](https://www.reddit.com/user/wieizme/)
 
 
 
