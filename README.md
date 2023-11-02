@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k7xiuer3juxb1.jpg?width=100&height=100)
-* Meme Author: [lilsaddam](https://www.reddit.com/user/lilsaddam/)
+![Funny Meme](https://i.redd.it/ivekrcppvkxb1.jpg?width=100&height=100)
+* Meme Author: [Sovereign373](https://www.reddit.com/user/Sovereign373/)
 
 
 
