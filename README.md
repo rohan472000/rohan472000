@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9fp5obypuvxb1.jpg?width=100&height=100)
-* Meme Author: [GPoozer](https://www.reddit.com/user/GPoozer/)
+![Funny Meme](https://i.redd.it/g6bo8oyfyxxb1.jpg?width=100&height=100)
+* Meme Author: [soulgardening](https://www.reddit.com/user/soulgardening/)
 
 
 
