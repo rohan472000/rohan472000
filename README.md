@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fuy97k3p4sxb1.jpg?width=100&height=100)
-* Meme Author: [The_Black_Jacket](https://www.reddit.com/user/The_Black_Jacket/)
+![Funny Meme](https://i.redd.it/ahgadx72suxb1.png?width=100&height=100)
+* Meme Author: [Baanished](https://www.reddit.com/user/Baanished/)
 
 
 
