@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2uou8ed8pwxb1.jpg?width=100&height=100)
-* Meme Author: [Misty_KI](https://www.reddit.com/user/Misty_KI/)
+![Funny Meme](https://i.redd.it/3d6murqn7wxb1.jpg?width=100&height=100)
+* Meme Author: [Prize-Nothing7946](https://www.reddit.com/user/Prize-Nothing7946/)
 
 
 
