@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pprgzroyatxb1.jpg?width=100&height=100)
-* Meme Author: [wimpykidfan37](https://www.reddit.com/user/wimpykidfan37/)
+![Funny Meme](https://i.redd.it/ogp1t2arzvxb1.jpg?width=100&height=100)
+* Meme Author: [xXIronMan780](https://www.reddit.com/user/xXIronMan780/)
 
 
 
