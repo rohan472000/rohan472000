@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oscvtilnwvxb1.png?width=100&height=100)
-* Meme Author: [ImtheEggMan_Walrus](https://www.reddit.com/user/ImtheEggMan_Walrus/)
+![Funny Meme](https://i.redd.it/x4knippmntxb1.jpg?width=100&height=100)
+* Meme Author: [hydraulics-](https://www.reddit.com/user/hydraulics-/)
 
 
 
