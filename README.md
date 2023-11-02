@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hj8ttbq3nwxb1.jpg?width=100&height=100)
-* Meme Author: [Elad_2007](https://www.reddit.com/user/Elad_2007/)
+![Funny Meme](https://i.redd.it/wdb48wyijzxb1.jpg?width=100&height=100)
+* Meme Author: [Watermellonc_crab](https://www.reddit.com/user/Watermellonc_crab/)
 
 
 
