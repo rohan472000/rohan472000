@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zlmj9nwmisxb1.jpg?width=100&height=100)
-* Meme Author: [Botosup](https://www.reddit.com/user/Botosup/)
+![Funny Meme](https://i.redd.it/os7kfv89zsxb1.jpg?width=100&height=100)
+* Meme Author: [bulging-personality](https://www.reddit.com/user/bulging-personality/)
 
 
 
