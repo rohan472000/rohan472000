@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9eda33czxqxb1.png?width=100&height=100)
-* Meme Author: [Sussy_Butt](https://www.reddit.com/user/Sussy_Butt/)
+![Funny Meme](https://i.redd.it/uvw0i3sijqxb1.png?width=100&height=100)
+* Meme Author: [YOP46](https://www.reddit.com/user/YOP46/)
 
 
 
