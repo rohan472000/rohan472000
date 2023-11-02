@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ogp1t2arzvxb1.jpg?width=100&height=100)
-* Meme Author: [xXIronMan780](https://www.reddit.com/user/xXIronMan780/)
+![Funny Meme](https://i.redd.it/zb4br6xekrxb1.jpg?width=100&height=100)
+* Meme Author: [iAmCokusBalus](https://www.reddit.com/user/iAmCokusBalus/)
 
 
 
