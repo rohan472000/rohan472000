@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dfduefc0esxb1.png?width=100&height=100)
-* Meme Author: [Mafoop](https://www.reddit.com/user/Mafoop/)
+![Funny Meme](https://i.redd.it/zbdfwl3riwxb1.jpg?width=100&height=100)
+* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
 
 
 
