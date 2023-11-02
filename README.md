@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jgysc912ooxb1.png?width=100&height=100)
-* Meme Author: [Dual_A2](https://www.reddit.com/user/Dual_A2/)
+![Funny Meme](https://i.redd.it/fuy97k3p4sxb1.jpg?width=100&height=100)
+* Meme Author: [The_Black_Jacket](https://www.reddit.com/user/The_Black_Jacket/)
 
 
 
