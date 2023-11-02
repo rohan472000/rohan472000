@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w5n6sad5r0yb1.jpg?width=100&height=100)
-* Meme Author: [Crab_Cult_Member](https://www.reddit.com/user/Crab_Cult_Member/)
+![Funny Meme](https://i.redd.it/6zv6jeyui0yb1.jpg?width=100&height=100)
+* Meme Author: [Dandaban](https://www.reddit.com/user/Dandaban/)
 
 
 
