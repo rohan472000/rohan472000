@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mm9hgskmaxxb1.jpg?width=100&height=100)
-* Meme Author: [DanieruBC](https://www.reddit.com/user/DanieruBC/)
+![Funny Meme](https://i.redd.it/4yindnwrusxb1.jpg?width=100&height=100)
+* Meme Author: [Critical_Werewolf](https://www.reddit.com/user/Critical_Werewolf/)
 
 
 
