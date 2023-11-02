@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6w9ayi6ufrxb1.png?width=100&height=100)
-* Meme Author: [Hot_Crab8092](https://www.reddit.com/user/Hot_Crab8092/)
+![Funny Meme](https://i.redd.it/fxd999ht5rxb1.jpg?width=100&height=100)
+* Meme Author: [lobsterBDSM](https://www.reddit.com/user/lobsterBDSM/)
 
 
 
