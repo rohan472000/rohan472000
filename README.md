@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uvo1vg25ftxb1.png?width=100&height=100)
-* Meme Author: [Animeking1108](https://www.reddit.com/user/Animeking1108/)
+![Funny Meme](https://i.redd.it/2uou8ed8pwxb1.jpg?width=100&height=100)
+* Meme Author: [Misty_KI](https://www.reddit.com/user/Misty_KI/)
 
 
 
