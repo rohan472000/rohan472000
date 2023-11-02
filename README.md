@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tkyfkun0tuxb1.jpg?width=100&height=100)
-* Meme Author: [SpecialistPossible44](https://www.reddit.com/user/SpecialistPossible44/)
+![Funny Meme](https://i.redd.it/h20e47zfpuxb1.jpg?width=100&height=100)
+* Meme Author: [TBIrehab](https://www.reddit.com/user/TBIrehab/)
 
 
 
