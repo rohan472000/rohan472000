@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6zv6jeyui0yb1.jpg?width=100&height=100)
-* Meme Author: [Dandaban](https://www.reddit.com/user/Dandaban/)
+![Funny Meme](https://i.redd.it/zi3vn8neevxb1.png?width=100&height=100)
+* Meme Author: [BorboStuff15](https://www.reddit.com/user/BorboStuff15/)
 
 
 
