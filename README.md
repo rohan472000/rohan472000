@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ibefhkl3czxb1.jpg?width=100&height=100)
-* Meme Author: [legalizeNature22](https://www.reddit.com/user/legalizeNature22/)
+![Funny Meme](https://i.redd.it/qkkh3q15xyxb1.jpg?width=100&height=100)
+* Meme Author: [RichMarkleyDotCom](https://www.reddit.com/user/RichMarkleyDotCom/)
 
 
 
