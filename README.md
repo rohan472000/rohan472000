@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g6bo8oyfyxxb1.jpg?width=100&height=100)
-* Meme Author: [soulgardening](https://www.reddit.com/user/soulgardening/)
+![Funny Meme](https://i.redd.it/5h9s65xz4uxb1.jpg?width=100&height=100)
+* Meme Author: [mitcheg3k](https://www.reddit.com/user/mitcheg3k/)
 
 
 
