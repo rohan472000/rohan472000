@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/36hi1lpbtsxb1.jpg?width=100&height=100)
-* Meme Author: [Prof_Lego](https://www.reddit.com/user/Prof_Lego/)
+![Funny Meme](https://i.redd.it/2nje686jhoxb1.jpg?width=100&height=100)
+* Meme Author: [TheWTFGuyOfficial](https://www.reddit.com/user/TheWTFGuyOfficial/)
 
 
 
