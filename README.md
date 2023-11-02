@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s9phs8gkivxb1.jpg?width=100&height=100)
-* Meme Author: [Level105Mage](https://www.reddit.com/user/Level105Mage/)
+![Funny Meme](https://i.redd.it/ip1p8i2aawxb1.jpg?width=100&height=100)
+* Meme Author: [Pepkoto](https://www.reddit.com/user/Pepkoto/)
 
 
 
