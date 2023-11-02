@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cvro1vbz6xxb1.png?width=100&height=100)
-* Meme Author: [A_Cool_Eel](https://www.reddit.com/user/A_Cool_Eel/)
+![Funny Meme](https://i.redd.it/h3o6s5qn9txb1.jpg?width=100&height=100)
+* Meme Author: [kingofNoobies](https://www.reddit.com/user/kingofNoobies/)
 
 
 
