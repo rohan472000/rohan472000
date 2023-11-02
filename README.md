@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lrmkg904yuxb1.jpg?width=100&height=100)
-* Meme Author: [wieizme](https://www.reddit.com/user/wieizme/)
+![Funny Meme](https://i.redd.it/ivekrcppvkxb1.jpg?width=100&height=100)
+* Meme Author: [Sovereign373](https://www.reddit.com/user/Sovereign373/)
 
 
 
