@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fy0j9sfw6txb1.jpg?width=100&height=100)
-* Meme Author: [Charlie-Wonka-Peskad](https://www.reddit.com/user/Charlie-Wonka-Peskad/)
+![Funny Meme](https://i.redd.it/dpohuo3k8vxb1.jpg?width=100&height=100)
+* Meme Author: [1997D190P](https://www.reddit.com/user/1997D190P/)
 
 
 
