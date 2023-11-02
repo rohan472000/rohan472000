@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dkmxbksvdsxb1.jpg?width=100&height=100)
-* Meme Author: [TheHighKing112](https://www.reddit.com/user/TheHighKing112/)
+![Funny Meme](https://i.redd.it/ou6cy8on6pxb1.jpg?width=100&height=100)
+* Meme Author: [Beefy_pasta](https://www.reddit.com/user/Beefy_pasta/)
 
 
 
