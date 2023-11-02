@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/brsn3fnw5qxb1.jpg?width=100&height=100)
-* Meme Author: [JBinAussie](https://www.reddit.com/user/JBinAussie/)
+![Funny Meme](https://i.redd.it/6w9ayi6ufrxb1.png?width=100&height=100)
+* Meme Author: [Hot_Crab8092](https://www.reddit.com/user/Hot_Crab8092/)
 
 
 
