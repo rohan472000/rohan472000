@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mywiajvlo0yb1.jpg?width=100&height=100)
-* Meme Author: [Ademante_Lafleur](https://www.reddit.com/user/Ademante_Lafleur/)
+![Funny Meme](https://i.redd.it/w5mveft0b1yb1.png?width=100&height=100)
+* Meme Author: [Lttlefoot](https://www.reddit.com/user/Lttlefoot/)
 
 
 
