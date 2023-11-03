@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zdgs77g406yb1.jpg?width=100&height=100)
-* Meme Author: [ElFloppaGrande](https://www.reddit.com/user/ElFloppaGrande/)
+![Funny Meme](https://i.redd.it/ate9ksv553yb1.jpg?width=100&height=100)
+* Meme Author: [ghost_kirby](https://www.reddit.com/user/ghost_kirby/)
 
 
 
