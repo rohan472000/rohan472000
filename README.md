@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sc20nh72xxxb1.jpg?width=100&height=100)
-* Meme Author: [squee166](https://www.reddit.com/user/squee166/)
+![Funny Meme](https://i.redd.it/msgg01zzmxxb1.jpg?width=100&height=100)
+* Meme Author: [Moat_of_the_Sacked](https://www.reddit.com/user/Moat_of_the_Sacked/)
 
 
 
