@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lwetk9gyl0yb1.png?width=100&height=100)
-* Meme Author: [piratecheese13](https://www.reddit.com/user/piratecheese13/)
+![Funny Meme](https://i.redd.it/swt0imwmi5yb1.jpg?width=100&height=100)
+* Meme Author: [EnlightenedChipmonk](https://www.reddit.com/user/EnlightenedChipmonk/)
 
 
 
