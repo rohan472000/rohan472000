@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u1bnvukl15yb1.jpg?width=100&height=100)
-* Meme Author: [morijin15](https://www.reddit.com/user/morijin15/)
+![Funny Meme](https://i.redd.it/2eou0phwp0yb1.jpg?width=100&height=100)
+* Meme Author: [reamkore](https://www.reddit.com/user/reamkore/)
 
 
 
