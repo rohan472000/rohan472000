@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ondq6n7g7yxb1.png?width=100&height=100)
-* Meme Author: [meruzezo](https://www.reddit.com/user/meruzezo/)
+![Funny Meme](https://i.redd.it/ozpea8jhv1yb1.jpg?width=100&height=100)
+* Meme Author: [megapaw](https://www.reddit.com/user/megapaw/)
 
 
 
