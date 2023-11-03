@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w5mveft0b1yb1.png?width=100&height=100)
-* Meme Author: [Lttlefoot](https://www.reddit.com/user/Lttlefoot/)
+![Funny Meme](https://i.redd.it/z6k38cogm6yb1.jpg?width=100&height=100)
+* Meme Author: [Spacehero6000](https://www.reddit.com/user/Spacehero6000/)
 
 
 
