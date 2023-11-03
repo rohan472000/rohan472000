@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b3dxxl9bcyxb1.png?width=100&height=100)
-* Meme Author: [Advanced-Athlete-580](https://www.reddit.com/user/Advanced-Athlete-580/)
+![Funny Meme](https://i.redd.it/nrsoyc0hz4yb1.jpg?width=100&height=100)
+* Meme Author: [Deathman35](https://www.reddit.com/user/Deathman35/)
 
 
 
