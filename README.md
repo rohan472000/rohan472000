@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9dmkiwfpp3yb1.png?width=100&height=100)
-* Meme Author: [Smushroomcopywriting](https://www.reddit.com/user/Smushroomcopywriting/)
+![Funny Meme](https://i.redd.it/dnc0jiqtg2yb1.jpg?width=100&height=100)
+* Meme Author: [xt0s](https://www.reddit.com/user/xt0s/)
 
 
 
