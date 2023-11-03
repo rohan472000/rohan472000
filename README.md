@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rfsdpijgn6yb1.png?width=100&height=100)
-* Meme Author: [ryte-69](https://www.reddit.com/user/ryte-69/)
+![Funny Meme](https://i.redd.it/zdgs77g406yb1.jpg?width=100&height=100)
+* Meme Author: [ElFloppaGrande](https://www.reddit.com/user/ElFloppaGrande/)
 
 
 
