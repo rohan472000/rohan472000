@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c3hrgxd8y0yb1.jpg?width=100&height=100)
-* Meme Author: [Redfaller2003](https://www.reddit.com/user/Redfaller2003/)
+![Funny Meme](https://i.redd.it/h4hb7vase6yb1.png?width=100&height=100)
+* Meme Author: [ryte-69](https://www.reddit.com/user/ryte-69/)
 
 
 
