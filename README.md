@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mm9hgskmaxxb1.jpg?width=100&height=100)
-* Meme Author: [DanieruBC](https://www.reddit.com/user/DanieruBC/)
+![Funny Meme](https://i.redd.it/h2zh6e5ww1yb1.jpg?width=100&height=100)
+* Meme Author: [Blakely7881](https://www.reddit.com/user/Blakely7881/)
 
 
 
