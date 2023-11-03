@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hafphqa0x2yb1.jpg?width=100&height=100)
-* Meme Author: [IcyBreloom](https://www.reddit.com/user/IcyBreloom/)
+![Funny Meme](https://i.redd.it/hpu8dcfx74yb1.jpg?width=100&height=100)
+* Meme Author: [The_Stampede_Black](https://www.reddit.com/user/The_Stampede_Black/)
 
 
 
