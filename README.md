@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3f205hwsz2yb1.jpg?width=100&height=100)
-* Meme Author: [MrJod2002](https://www.reddit.com/user/MrJod2002/)
+![Funny Meme](https://i.redd.it/f34o23dpxzxb1.png?width=100&height=100)
+* Meme Author: [Automatic-Ass-Name13](https://www.reddit.com/user/Automatic-Ass-Name13/)
 
 
 
