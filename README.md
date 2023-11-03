@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rld0846mr2yb1.jpg?width=100&height=100)
-* Meme Author: [ItsMyCakedayIRL](https://www.reddit.com/user/ItsMyCakedayIRL/)
+![Funny Meme](https://i.redd.it/cqk76kgknyxb1.jpg?width=100&height=100)
+* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
 
 
 
