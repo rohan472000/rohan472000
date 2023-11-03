@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e33zmjrqq6yb1.jpg?width=100&height=100)
-* Meme Author: [DestructionCreator](https://www.reddit.com/user/DestructionCreator/)
+![Funny Meme](https://i.redd.it/aw58si55fyxb1.jpg?width=100&height=100)
+* Meme Author: [mechmo](https://www.reddit.com/user/mechmo/)
 
 
 
