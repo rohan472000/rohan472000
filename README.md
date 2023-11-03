@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q51kx14b46yb1.jpg?width=100&height=100)
-* Meme Author: [Silly-Ladder-8603](https://www.reddit.com/user/Silly-Ladder-8603/)
+![Funny Meme](https://i.redd.it/k4twmunyh5yb1.jpg?width=100&height=100)
+* Meme Author: [A_Zesty_Carrot](https://www.reddit.com/user/A_Zesty_Carrot/)
 
 
 
