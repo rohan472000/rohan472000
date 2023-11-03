@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gmjw2nusb2yb1.jpg?width=100&height=100)
-* Meme Author: [LewiRock](https://www.reddit.com/user/LewiRock/)
+![Funny Meme](https://i.redd.it/m0z5zf2kn6yb1.png?width=100&height=100)
+* Meme Author: [BigBrainedAU](https://www.reddit.com/user/BigBrainedAU/)
 
 
 
