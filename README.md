@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/80z65zxor5yb1.jpg?width=100&height=100)
-* Meme Author: [PokeSmashUltimate](https://www.reddit.com/user/PokeSmashUltimate/)
+![Funny Meme](https://i.redd.it/db2xj7kmm0yb1.jpg?width=100&height=100)
+* Meme Author: [BigBootyBitches4Lyfe](https://www.reddit.com/user/BigBootyBitches4Lyfe/)
 
 
 
