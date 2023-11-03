@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8okfxbcp85yb1.png?width=100&height=100)
-* Meme Author: [bleakFutureDarkPast](https://www.reddit.com/user/bleakFutureDarkPast/)
+![Funny Meme](https://i.redd.it/ate9ksv553yb1.jpg?width=100&height=100)
+* Meme Author: [ghost_kirby](https://www.reddit.com/user/ghost_kirby/)
 
 
 
