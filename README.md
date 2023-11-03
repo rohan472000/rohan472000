@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wdb48wyijzxb1.jpg?width=100&height=100)
-* Meme Author: [Watermellonc_crab](https://www.reddit.com/user/Watermellonc_crab/)
+![Funny Meme](https://i.redd.it/ev35hssq2xxb1.png?width=100&height=100)
+* Meme Author: [LayeredHalo3851](https://www.reddit.com/user/LayeredHalo3851/)
 
 
 
