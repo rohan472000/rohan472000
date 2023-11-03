@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2ef88kwal2yb1.png?width=100&height=100)
-* Meme Author: [PilotRex21](https://www.reddit.com/user/PilotRex21/)
+![Funny Meme](https://i.redd.it/sc20nh72xxxb1.jpg?width=100&height=100)
+* Meme Author: [squee166](https://www.reddit.com/user/squee166/)
 
 
 
