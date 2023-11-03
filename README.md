@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sv38sj0y36yb1.jpg?width=100&height=100)
-* Meme Author: [CutZealousideal5274](https://www.reddit.com/user/CutZealousideal5274/)
+![Funny Meme](https://i.redd.it/nt2etfbl37yb1.jpg?width=100&height=100)
+* Meme Author: [Level105Mage](https://www.reddit.com/user/Level105Mage/)
 
 
 
