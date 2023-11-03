@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1tr0j6sc10yb1.jpg?width=100&height=100)
-* Meme Author: [BluecoatCashMoney5](https://www.reddit.com/user/BluecoatCashMoney5/)
+![Funny Meme](https://i.redd.it/v1ol7vdet0yb1.jpg?width=100&height=100)
+* Meme Author: [dad_savage](https://www.reddit.com/user/dad_savage/)
 
 
 
