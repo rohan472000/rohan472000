@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wra8ya8wawxb1.jpg?width=100&height=100)
-* Meme Author: [DarksideOutlaw](https://www.reddit.com/user/DarksideOutlaw/)
+![Funny Meme](https://i.redd.it/h7dw3m3l51yb1.png?width=100&height=100)
+* Meme Author: [Few_Study3536](https://www.reddit.com/user/Few_Study3536/)
 
 
 
