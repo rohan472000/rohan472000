@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/81rvje59p1yb1.jpg?width=100&height=100)
-* Meme Author: [Antique-Mobile6369](https://www.reddit.com/user/Antique-Mobile6369/)
+![Funny Meme](https://i.redd.it/v89m46ypr1yb1.jpg?width=100&height=100)
+* Meme Author: [Catcallofcthulhu](https://www.reddit.com/user/Catcallofcthulhu/)
 
 
 
