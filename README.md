@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fv5bpud6o3yb1.jpg?width=100&height=100)
-* Meme Author: [Full_Technology5682](https://www.reddit.com/user/Full_Technology5682/)
+![Funny Meme](https://i.redd.it/32cfsnxu00yb1.jpg?width=100&height=100)
+* Meme Author: [SpaceMoustashe290](https://www.reddit.com/user/SpaceMoustashe290/)
 
 
 
