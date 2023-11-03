@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zi3vn8neevxb1.png?width=100&height=100)
-* Meme Author: [BorboStuff15](https://www.reddit.com/user/BorboStuff15/)
+![Funny Meme](https://i.redd.it/zvi4asbeszxb1.jpg?width=100&height=100)
+* Meme Author: [mezcalligraphy](https://www.reddit.com/user/mezcalligraphy/)
 
 
 
