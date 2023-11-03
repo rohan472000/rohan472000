@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/htye2plnywxb1.png?width=100&height=100)
-* Meme Author: [MrGuineaPig5001](https://www.reddit.com/user/MrGuineaPig5001/)
+![Funny Meme](https://i.redd.it/azsn6c0sl0yb1.jpg?width=100&height=100)
+* Meme Author: [BigSpongebobFanatic](https://www.reddit.com/user/BigSpongebobFanatic/)
 
 
 
