@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v89m46ypr1yb1.jpg?width=100&height=100)
-* Meme Author: [Catcallofcthulhu](https://www.reddit.com/user/Catcallofcthulhu/)
+![Funny Meme](https://i.redd.it/6x3a4miiv0yb1.jpg?width=100&height=100)
+* Meme Author: [Spidxrcore](https://www.reddit.com/user/Spidxrcore/)
 
 
 
