@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nrsoyc0hz4yb1.jpg?width=100&height=100)
-* Meme Author: [Deathman35](https://www.reddit.com/user/Deathman35/)
+![Funny Meme](https://i.redd.it/amal6fartzxb1.png?width=100&height=100)
+* Meme Author: [Nikkuman](https://www.reddit.com/user/Nikkuman/)
 
 
 
