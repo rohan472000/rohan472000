@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2u199mr0o4yb1.jpg?width=100&height=100)
-* Meme Author: [snowfalcon777](https://www.reddit.com/user/snowfalcon777/)
+![Funny Meme](https://i.redd.it/32m0i0lbq1yb1.jpg?width=100&height=100)
+* Meme Author: [Torpedopocalypse](https://www.reddit.com/user/Torpedopocalypse/)
 
 
 
