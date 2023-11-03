@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f34o23dpxzxb1.png?width=100&height=100)
-* Meme Author: [Automatic-Ass-Name13](https://www.reddit.com/user/Automatic-Ass-Name13/)
+![Funny Meme](https://i.redd.it/mm9hgskmaxxb1.jpg?width=100&height=100)
+* Meme Author: [DanieruBC](https://www.reddit.com/user/DanieruBC/)
 
 
 
