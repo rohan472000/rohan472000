@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vm5msy1ci6yb1.png?width=100&height=100)
-* Meme Author: [kdods22402](https://www.reddit.com/user/kdods22402/)
+![Funny Meme](https://i.redd.it/o4l4ky67p7yb1.jpg?width=100&height=100)
+* Meme Author: [Tallbaldnorwegian](https://www.reddit.com/user/Tallbaldnorwegian/)
 
 
 
