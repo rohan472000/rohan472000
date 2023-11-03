@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h4hb7vase6yb1.png?width=100&height=100)
-* Meme Author: [ryte-69](https://www.reddit.com/user/ryte-69/)
+![Funny Meme](https://i.redd.it/6abjp63mx1yb1.png?width=100&height=100)
+* Meme Author: [golden_boy_mitch](https://www.reddit.com/user/golden_boy_mitch/)
 
 
 
