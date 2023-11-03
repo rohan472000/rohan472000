@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k9kuzhlxm2yb1.jpg?width=100&height=100)
-* Meme Author: [Abject_Advantage_274](https://www.reddit.com/user/Abject_Advantage_274/)
+![Funny Meme](https://i.redd.it/k7xiuer3juxb1.jpg?width=100&height=100)
+* Meme Author: [lilsaddam](https://www.reddit.com/user/lilsaddam/)
 
 
 
