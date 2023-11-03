@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zvi4asbeszxb1.jpg?width=100&height=100)
-* Meme Author: [mezcalligraphy](https://www.reddit.com/user/mezcalligraphy/)
+![Funny Meme](https://i.redd.it/8ozci6z8x1yb1.jpg?width=100&height=100)
+* Meme Author: [Javasndphotoclicks](https://www.reddit.com/user/Javasndphotoclicks/)
 
 
 
