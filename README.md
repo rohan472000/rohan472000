@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i8vvfyjgg0yb1.jpg?width=100&height=100)
-* Meme Author: [DawnOfLegion1](https://www.reddit.com/user/DawnOfLegion1/)
+![Funny Meme](https://i.redd.it/zbdfwl3riwxb1.jpg?width=100&height=100)
+* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
 
 
 
