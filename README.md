@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rfpqw7bj54yb1.jpg?width=100&height=100)
-* Meme Author: [Lots42](https://www.reddit.com/user/Lots42/)
+![Funny Meme](https://i.redd.it/c5lvjs20pzxb1.jpg?width=100&height=100)
+* Meme Author: [TheJewishViking1064](https://www.reddit.com/user/TheJewishViking1064/)
 
 
 
