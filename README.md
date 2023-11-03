@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3f205hwsz2yb1.jpg?width=100&height=100)
-* Meme Author: [MrJod2002](https://www.reddit.com/user/MrJod2002/)
+![Funny Meme](https://i.redd.it/v9m9xlgrp0yb1.jpg?width=100&height=100)
+* Meme Author: [guinaifen_hsr](https://www.reddit.com/user/guinaifen_hsr/)
 
 
 
