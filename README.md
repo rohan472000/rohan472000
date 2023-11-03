@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ozpea8jhv1yb1.jpg?width=100&height=100)
-* Meme Author: [megapaw](https://www.reddit.com/user/megapaw/)
+![Funny Meme](https://i.redd.it/81rvje59p1yb1.jpg?width=100&height=100)
+* Meme Author: [Antique-Mobile6369](https://www.reddit.com/user/Antique-Mobile6369/)
 
 
 
