@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cu51jmm8z8yb1.jpg?width=100&height=100)
-* Meme Author: [Nevwel](https://www.reddit.com/user/Nevwel/)
+![Funny Meme](https://i.redd.it/mc7s6sh288yb1.jpg?width=100&height=100)
+* Meme Author: [MemesByDeath](https://www.reddit.com/user/MemesByDeath/)
 
 
 
