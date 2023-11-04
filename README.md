@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ifp8a4fnp7yb1.jpg?width=100&height=100)
-* Meme Author: [VW6G](https://www.reddit.com/user/VW6G/)
+![Funny Meme](https://i.redd.it/0p664jnju7yb1.jpg?width=100&height=100)
+* Meme Author: [cupidchlo](https://www.reddit.com/user/cupidchlo/)
 
 
 
