@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/71ihw2ial7yb1.jpg?width=100&height=100)
-* Meme Author: [combatvegan](https://www.reddit.com/user/combatvegan/)
+![Funny Meme](https://i.redd.it/c69rlujfv5yb1.png?width=100&height=100)
+* Meme Author: [LiveBeyondYourMemes](https://www.reddit.com/user/LiveBeyondYourMemes/)
 
 
 
