@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fmwki6yev8yb1.jpg?width=100&height=100)
-* Meme Author: [Smoothiefries](https://www.reddit.com/user/Smoothiefries/)
+![Funny Meme](https://i.redd.it/58wijxpc73yb1.jpg?width=100&height=100)
+* Meme Author: [Purpurea8](https://www.reddit.com/user/Purpurea8/)
 
 
 
