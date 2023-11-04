@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cp9ggik9ebyb1.jpg?width=100&height=100)
-* Meme Author: [JRod_HFX](https://www.reddit.com/user/JRod_HFX/)
+![Funny Meme](https://i.redd.it/nt2etfbl37yb1.jpg?width=100&height=100)
+* Meme Author: [Level105Mage](https://www.reddit.com/user/Level105Mage/)
 
 
 
