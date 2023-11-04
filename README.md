@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sowfpc7p13yb1.jpg?width=100&height=100)
-* Meme Author: [bean_burrito14](https://www.reddit.com/user/bean_burrito14/)
+![Funny Meme](https://i.redd.it/w2lkxfoq64yb1.jpg?width=100&height=100)
+* Meme Author: [Pikagiuppy](https://www.reddit.com/user/Pikagiuppy/)
 
 
 
