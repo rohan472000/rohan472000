@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k4twmunyh5yb1.jpg?width=100&height=100)
-* Meme Author: [A_Zesty_Carrot](https://www.reddit.com/user/A_Zesty_Carrot/)
+![Funny Meme](https://i.redd.it/gnlyntzst7yb1.jpg?width=100&height=100)
+* Meme Author: [Small_Chicken19](https://www.reddit.com/user/Small_Chicken19/)
 
 
 
