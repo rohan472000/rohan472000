@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6d8lsm2gfbyb1.png?width=100&height=100)
-* Meme Author: [oranke_dino](https://www.reddit.com/user/oranke_dino/)
+![Funny Meme](https://i.redd.it/1df2hwnpu8yb1.jpg?width=100&height=100)
+* Meme Author: [AthenianThief](https://www.reddit.com/user/AthenianThief/)
 
 
 
