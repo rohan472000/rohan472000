@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m687o5lor6yb1.jpg?width=100&height=100)
-* Meme Author: [PostReplyKarmaRepeat](https://www.reddit.com/user/PostReplyKarmaRepeat/)
+![Funny Meme](https://i.redd.it/1hzsdnktf0yb1.jpg?width=100&height=100)
+* Meme Author: [agentbing](https://www.reddit.com/user/agentbing/)
 
 
 
