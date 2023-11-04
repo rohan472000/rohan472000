@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jb9aulb9n9yb1.jpg?width=100&height=100)
-* Meme Author: [Spidxrcore](https://www.reddit.com/user/Spidxrcore/)
+![Funny Meme](https://i.redd.it/s03cfek4o8yb1.jpg?width=100&height=100)
+* Meme Author: [Narrow_Yak_4165](https://www.reddit.com/user/Narrow_Yak_4165/)
 
 
 
