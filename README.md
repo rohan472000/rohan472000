@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ed3ikwmv19yb1.jpg?width=100&height=100)
-* Meme Author: [Opposite-Chard3967](https://www.reddit.com/user/Opposite-Chard3967/)
+![Funny Meme](https://i.redd.it/dkhq9tt943yb1.jpg?width=100&height=100)
+* Meme Author: [Sahiruchan](https://www.reddit.com/user/Sahiruchan/)
 
 
 
