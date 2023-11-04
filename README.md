@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dkhq9tt943yb1.jpg?width=100&height=100)
-* Meme Author: [Sahiruchan](https://www.reddit.com/user/Sahiruchan/)
+![Funny Meme](https://i.redd.it/k9kuzhlxm2yb1.jpg?width=100&height=100)
+* Meme Author: [Abject_Advantage_274](https://www.reddit.com/user/Abject_Advantage_274/)
 
 
 
