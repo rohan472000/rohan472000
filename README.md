@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/by4lmvpm97yb1.png?width=100&height=100)
-* Meme Author: [Student-of-spiderweb](https://www.reddit.com/user/Student-of-spiderweb/)
+![Funny Meme](https://i.redd.it/db8epakci8yb1.png?width=100&height=100)
+* Meme Author: [DoubleTie2696](https://www.reddit.com/user/DoubleTie2696/)
 
 
 
