@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q0f906fk19yb1.jpg?width=100&height=100)
-* Meme Author: [you-are-so-dead](https://www.reddit.com/user/you-are-so-dead/)
+![Funny Meme](https://i.redd.it/qloh89l1j7yb1.jpg?width=100&height=100)
+* Meme Author: [Valhallawalker](https://www.reddit.com/user/Valhallawalker/)
 
 
 
