@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k1g5rsom46yb1.jpg?width=100&height=100)
-* Meme Author: [Swimming-Step1326](https://www.reddit.com/user/Swimming-Step1326/)
+![Funny Meme](https://i.redd.it/frffobv275yb1.png?width=100&height=100)
+* Meme Author: [konosapi](https://www.reddit.com/user/konosapi/)
 
 
 
