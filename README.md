@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k9kuzhlxm2yb1.jpg?width=100&height=100)
-* Meme Author: [Abject_Advantage_274](https://www.reddit.com/user/Abject_Advantage_274/)
+![Funny Meme](https://i.redd.it/zya2k69xn7yb1.jpg?width=100&height=100)
+* Meme Author: [Moat_of_the_Sacked](https://www.reddit.com/user/Moat_of_the_Sacked/)
 
 
 
