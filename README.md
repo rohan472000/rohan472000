@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5s2ov5yjj6yb1.jpg?width=100&height=100)
-* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
+![Funny Meme](https://i.redd.it/gnlyntzst7yb1.jpg?width=100&height=100)
+* Meme Author: [Small_Chicken19](https://www.reddit.com/user/Small_Chicken19/)
 
 
 
