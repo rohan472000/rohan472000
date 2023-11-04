@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s22quwpa6byb1.jpg?width=100&height=100)
-* Meme Author: [sekscat](https://www.reddit.com/user/sekscat/)
+![Funny Meme](https://i.redd.it/p95gqp7uq3yb1.jpg?width=100&height=100)
+* Meme Author: [Emdoray](https://www.reddit.com/user/Emdoray/)
 
 
 
