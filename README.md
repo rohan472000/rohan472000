@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qp27v9u5u8yb1.jpg?width=100&height=100)
-* Meme Author: [DefaultyTurtle2](https://www.reddit.com/user/DefaultyTurtle2/)
+![Funny Meme](https://i.redd.it/s22quwpa6byb1.jpg?width=100&height=100)
+* Meme Author: [sekscat](https://www.reddit.com/user/sekscat/)
 
 
 
