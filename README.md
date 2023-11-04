@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/otjygu34l9yb1.jpg?width=100&height=100)
-* Meme Author: [EnvironmentSmart4698](https://www.reddit.com/user/EnvironmentSmart4698/)
+![Funny Meme](https://i.redd.it/0i6g1gcbgbyb1.jpg?width=100&height=100)
+* Meme Author: [Magic-Omelet](https://www.reddit.com/user/Magic-Omelet/)
 
 
 
