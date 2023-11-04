@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i6d1mukpv4yb1.jpg?width=100&height=100)
-* Meme Author: [IAmVeryMuchStupid](https://www.reddit.com/user/IAmVeryMuchStupid/)
+![Funny Meme](https://i.redd.it/senb79zg75yb1.png?width=100&height=100)
+* Meme Author: [L8_2_PartE](https://www.reddit.com/user/L8_2_PartE/)
 
 
 
