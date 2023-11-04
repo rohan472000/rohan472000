@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zwgc1c8cfdyb1.jpg?width=100&height=100)
-* Meme Author: [noiamnotabanana](https://www.reddit.com/user/noiamnotabanana/)
+![Funny Meme](https://i.redd.it/001le7blh9yb1.jpg?width=100&height=100)
+* Meme Author: [Busy_Bee_Comics](https://www.reddit.com/user/Busy_Bee_Comics/)
 
 
 
