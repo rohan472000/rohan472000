@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l9hkivnzf6yb1.jpg?width=100&height=100)
-* Meme Author: [dassaup](https://www.reddit.com/user/dassaup/)
+![Funny Meme](https://i.redd.it/93iixy3wd8yb1.jpg?width=100&height=100)
+* Meme Author: [monsieurLeMeowMeow](https://www.reddit.com/user/monsieurLeMeowMeow/)
 
 
 
