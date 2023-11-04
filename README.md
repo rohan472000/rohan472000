@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/swt0imwmi5yb1.jpg?width=100&height=100)
-* Meme Author: [EnlightenedChipmonk](https://www.reddit.com/user/EnlightenedChipmonk/)
+![Funny Meme](https://i.redd.it/5fj3kaqx77yb1.jpg?width=100&height=100)
+* Meme Author: [nils4i20](https://www.reddit.com/user/nils4i20/)
 
 
 
