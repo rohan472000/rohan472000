@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/senb79zg75yb1.png?width=100&height=100)
-* Meme Author: [L8_2_PartE](https://www.reddit.com/user/L8_2_PartE/)
+![Funny Meme](https://i.redd.it/ef1qq52998yb1.jpg?width=100&height=100)
+* Meme Author: [Dolphin_man69420](https://www.reddit.com/user/Dolphin_man69420/)
 
 
 
