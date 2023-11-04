@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/db8epakci8yb1.png?width=100&height=100)
-* Meme Author: [DoubleTie2696](https://www.reddit.com/user/DoubleTie2696/)
+![Funny Meme](https://i.redd.it/8o5oc3hq88yb1.jpg?width=100&height=100)
+* Meme Author: [Aquos18](https://www.reddit.com/user/Aquos18/)
 
 
 
