@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1hzsdnktf0yb1.jpg?width=100&height=100)
-* Meme Author: [agentbing](https://www.reddit.com/user/agentbing/)
+![Funny Meme](https://i.redd.it/z6k38cogm6yb1.jpg?width=100&height=100)
+* Meme Author: [Spacehero6000](https://www.reddit.com/user/Spacehero6000/)
 
 
 
