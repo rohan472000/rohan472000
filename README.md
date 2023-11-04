@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s03cfek4o8yb1.jpg?width=100&height=100)
-* Meme Author: [Narrow_Yak_4165](https://www.reddit.com/user/Narrow_Yak_4165/)
+![Funny Meme](https://i.redd.it/m165b0d9q6yb1.png?width=100&height=100)
+* Meme Author: [Basically-Boring](https://www.reddit.com/user/Basically-Boring/)
 
 
 
