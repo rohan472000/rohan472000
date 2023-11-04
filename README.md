@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ef1qq52998yb1.jpg?width=100&height=100)
-* Meme Author: [Dolphin_man69420](https://www.reddit.com/user/Dolphin_man69420/)
+![Funny Meme](https://i.redd.it/qp27v9u5u8yb1.jpg?width=100&height=100)
+* Meme Author: [DefaultyTurtle2](https://www.reddit.com/user/DefaultyTurtle2/)
 
 
 
