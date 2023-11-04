@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0oxz6wad40yb1.jpg?width=100&height=100)
-* Meme Author: [aldorayn](https://www.reddit.com/user/aldorayn/)
+![Funny Meme](https://i.redd.it/t98lmpfjy6yb1.jpg?width=100&height=100)
+* Meme Author: [Cerparis](https://www.reddit.com/user/Cerparis/)
 
 
 
