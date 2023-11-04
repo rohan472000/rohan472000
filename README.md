@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q04y1ce9o7yb1.jpg?width=100&height=100)
-* Meme Author: [americanlemon1](https://www.reddit.com/user/americanlemon1/)
+![Funny Meme](https://i.redd.it/gjvo9wpji7yb1.png?width=100&height=100)
+* Meme Author: [PurpleBoltRevived](https://www.reddit.com/user/PurpleBoltRevived/)
 
 
 
