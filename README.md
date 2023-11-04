@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wu7y4qn5d9yb1.jpg?width=100&height=100)
-* Meme Author: [Connect-Ad6251](https://www.reddit.com/user/Connect-Ad6251/)
+![Funny Meme](https://i.redd.it/yqxaxt06t7yb1.jpg?width=100&height=100)
+* Meme Author: [ihavebirb](https://www.reddit.com/user/ihavebirb/)
 
 
 
