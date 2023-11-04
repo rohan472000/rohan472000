@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mc7s6sh288yb1.jpg?width=100&height=100)
-* Meme Author: [MemesByDeath](https://www.reddit.com/user/MemesByDeath/)
+![Funny Meme](https://i.redd.it/5lksl9otkbyb1.jpg?width=100&height=100)
+* Meme Author: [DarksideOutlaw](https://www.reddit.com/user/DarksideOutlaw/)
 
 
 
