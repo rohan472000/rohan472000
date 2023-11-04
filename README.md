@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t98lmpfjy6yb1.jpg?width=100&height=100)
-* Meme Author: [Cerparis](https://www.reddit.com/user/Cerparis/)
+![Funny Meme](https://i.redd.it/8i16usgjx6yb1.png?width=100&height=100)
+* Meme Author: [Outrageous-Still-499](https://www.reddit.com/user/Outrageous-Still-499/)
 
 
 
