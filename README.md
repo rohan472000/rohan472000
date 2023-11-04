@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/loo86sncudyb1.jpg?width=100&height=100)
-* Meme Author: [hotmailist](https://www.reddit.com/user/hotmailist/)
+![Funny Meme](https://i.redd.it/hjfj27uincyb1.png?width=100&height=100)
+* Meme Author: [DogeDoRight](https://www.reddit.com/user/DogeDoRight/)
 
 
 
