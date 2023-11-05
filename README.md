@@ -1,4 +1,4 @@
-![Funny Meme](https://i.redd.it/332wieqbcgyb1.png?width=100&height=100)
+![Funny Meme](https://i.redd.it/0jzsrv3ccjyb1.png?width=100&height=100)
 * Meme Author: [GalaxyOpal56](https://www.reddit.com/user/GalaxyOpal56/)
 
 
