@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x0z36iltlfyb1.jpg?width=100&height=100)
-* Meme Author: [bodibodibodi](https://www.reddit.com/user/bodibodibodi/)
+![Funny Meme](https://i.redd.it/x8qz4iegpgyb1.jpg?width=100&height=100)
+* Meme Author: [Spidxrcore](https://www.reddit.com/user/Spidxrcore/)
 
 
 
