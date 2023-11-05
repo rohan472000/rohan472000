@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ejlfllu0wkyb1.jpg?width=100&height=100)
-* Meme Author: [tahsin__twt](https://www.reddit.com/user/tahsin__twt/)
+![Funny Meme](https://i.redd.it/x0z36iltlfyb1.jpg?width=100&height=100)
+* Meme Author: [bodibodibodi](https://www.reddit.com/user/bodibodibodi/)
 
 
 
