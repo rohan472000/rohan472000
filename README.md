@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vj30nzqzugyb1.jpg?width=100&height=100)
-* Meme Author: [Low-Major-5486](https://www.reddit.com/user/Low-Major-5486/)
+![Funny Meme](https://i.redd.it/a94f27kawcyb1.jpg?width=100&height=100)
+* Meme Author: [OmegaBoi420](https://www.reddit.com/user/OmegaBoi420/)
 
 
 
