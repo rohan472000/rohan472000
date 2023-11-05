@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/abccoxq61dyb1.jpg?width=100&height=100)
-* Meme Author: [Orie-o](https://www.reddit.com/user/Orie-o/)
+![Funny Meme](https://i.redd.it/19ahfe5qx9yb1.png?width=100&height=100)
+* Meme Author: [louistherocks](https://www.reddit.com/user/louistherocks/)
 
 
 
