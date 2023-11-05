@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w5c2fatwscyb1.jpg?width=100&height=100)
-* Meme Author: [Anzlc](https://www.reddit.com/user/Anzlc/)
+![Funny Meme](https://i.redd.it/5m76s5qrufyb1.jpg?width=100&height=100)
+* Meme Author: [KingofBalaks](https://www.reddit.com/user/KingofBalaks/)
 
 
 
