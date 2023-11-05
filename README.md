@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2rex0qb4mbyb1.png?width=100&height=100)
-* Meme Author: [OrcaMan-RandomVid](https://www.reddit.com/user/OrcaMan-RandomVid/)
+![Funny Meme](https://i.redd.it/w0bcbgj3lcyb1.jpg?width=100&height=100)
+* Meme Author: [ChimmyChonga05](https://www.reddit.com/user/ChimmyChonga05/)
 
 
 
