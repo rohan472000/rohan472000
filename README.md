@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/19ahfe5qx9yb1.png?width=100&height=100)
-* Meme Author: [louistherocks](https://www.reddit.com/user/louistherocks/)
+![Funny Meme](https://i.redd.it/g01ynt9yveyb1.jpg?width=100&height=100)
+* Meme Author: [blunts_and_waffles](https://www.reddit.com/user/blunts_and_waffles/)
 
 
 
