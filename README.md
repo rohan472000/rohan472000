@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a94f27kawcyb1.jpg?width=100&height=100)
-* Meme Author: [OmegaBoi420](https://www.reddit.com/user/OmegaBoi420/)
+![Funny Meme](https://i.redd.it/ltr02j7aicyb1.jpg?width=100&height=100)
+* Meme Author: [Greenfire05](https://www.reddit.com/user/Greenfire05/)
 
 
 
