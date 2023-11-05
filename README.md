@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0qjdrmk1gdyb1.png?width=100&height=100)
-* Meme Author: [DanieleMemoli](https://www.reddit.com/user/DanieleMemoli/)
+![Funny Meme](https://i.redd.it/vtg6bi97hfyb1.jpg?width=100&height=100)
+* Meme Author: [Wavestination](https://www.reddit.com/user/Wavestination/)
 
 
 
