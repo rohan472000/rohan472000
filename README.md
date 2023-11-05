@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/erwclc918cyb1.png?width=100&height=100)
-* Meme Author: [SirLexmarkThePrinted](https://www.reddit.com/user/SirLexmarkThePrinted/)
+![Funny Meme](https://i.redd.it/16ga17qlhcyb1.jpg?width=100&height=100)
+* Meme Author: [Madiz007](https://www.reddit.com/user/Madiz007/)
 
 
 
