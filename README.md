@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9o8z46vilcyb1.jpg?width=100&height=100)
-* Meme Author: [MaseratiFalcon](https://www.reddit.com/user/MaseratiFalcon/)
+![Funny Meme](https://i.redd.it/c2mqbvii3dyb1.jpg?width=100&height=100)
+* Meme Author: [Ambrozzio5](https://www.reddit.com/user/Ambrozzio5/)
 
 
 
