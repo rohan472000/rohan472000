@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jckrjryaeiyb1.jpg?width=100&height=100)
-* Meme Author: [Molotov_YouTube](https://www.reddit.com/user/Molotov_YouTube/)
+![Funny Meme](https://i.redd.it/ekjf2loh5hyb1.jpg?width=100&height=100)
+* Meme Author: [Mr-Ideasman](https://www.reddit.com/user/Mr-Ideasman/)
 
 
 
