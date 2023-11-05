@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r2oc1figqayb1.jpg?width=100&height=100)
-* Meme Author: [Tallbaldnorwegian](https://www.reddit.com/user/Tallbaldnorwegian/)
+![Funny Meme](https://i.redd.it/u3ll9ifsuhyb1.png?width=100&height=100)
+* Meme Author: [ChiaraStellata](https://www.reddit.com/user/ChiaraStellata/)
 
 
 
