@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/CGycRdo.jpeg?width=100&height=100)
-* Meme Author: [FlyYouFoolyCooly](https://www.reddit.com/user/FlyYouFoolyCooly/)
+![Funny Meme](https://i.redd.it/jzdtxtn6cgyb1.jpg?width=100&height=100)
+* Meme Author: [Acceptable_Shine_738](https://www.reddit.com/user/Acceptable_Shine_738/)
 
 
 
