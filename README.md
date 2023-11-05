@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/73ha7s6unhyb1.jpg?width=100&height=100)
-* Meme Author: [Mariosenjoyer](https://www.reddit.com/user/Mariosenjoyer/)
+![Funny Meme](https://i.redd.it/j06as7g93hyb1.jpg?width=100&height=100)
+* Meme Author: [gamble4846](https://www.reddit.com/user/gamble4846/)
 
 
 
