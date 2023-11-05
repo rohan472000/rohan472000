@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fsh06otrdcyb1.png?width=100&height=100)
-* Meme Author: [GranJefe507](https://www.reddit.com/user/GranJefe507/)
+![Funny Meme](https://i.redd.it/f1cpc5qewfyb1.jpg?width=100&height=100)
+* Meme Author: [hollopurple](https://www.reddit.com/user/hollopurple/)
 
 
 
