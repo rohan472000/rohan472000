@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fur8emznheyb1.jpg?width=100&height=100)
-* Meme Author: [Teensters_Stories](https://www.reddit.com/user/Teensters_Stories/)
+![Funny Meme](https://i.redd.it/7l9pu26xqcyb1.jpg?width=100&height=100)
+* Meme Author: [Torpedopocalypse](https://www.reddit.com/user/Torpedopocalypse/)
 
 
 
