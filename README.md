@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r3puhv8lncyb1.jpg?width=100&height=100)
-* Meme Author: [wakaluli](https://www.reddit.com/user/wakaluli/)
+![Funny Meme](https://i.redd.it/1b6la0mkc8yb1.jpg?width=100&height=100)
+* Meme Author: [Alexdoh](https://www.reddit.com/user/Alexdoh/)
 
 
 
