@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dpunl0yz7fyb1.jpg?width=100&height=100)
-* Meme Author: [Aknickknackpattywack](https://www.reddit.com/user/Aknickknackpattywack/)
+![Funny Meme](https://i.redd.it/h4jim9mlqcyb1.png?width=100&height=100)
+* Meme Author: [Realistic_Crew1095](https://www.reddit.com/user/Realistic_Crew1095/)
 
 
 
