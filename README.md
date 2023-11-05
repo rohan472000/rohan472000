@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gwcewkf4zgyb1.jpg?width=100&height=100)
-* Meme Author: [Psycho_Snake02](https://www.reddit.com/user/Psycho_Snake02/)
+![Funny Meme](https://i.redd.it/95tcbhn34fyb1.jpg?width=100&height=100)
+* Meme Author: [superlocolillool](https://www.reddit.com/user/superlocolillool/)
 
 
 
