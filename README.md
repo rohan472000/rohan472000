@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8f6m8bigveyb1.png?width=100&height=100)
-* Meme Author: [Fandubber13](https://www.reddit.com/user/Fandubber13/)
+![Funny Meme](https://i.redd.it/9vl7i87r4eyb1.jpg?width=100&height=100)
+* Meme Author: [Key-Expert-7297](https://www.reddit.com/user/Key-Expert-7297/)
 
 
 
