@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gmo6ikc15fyb1.jpg?width=100&height=100)
-* Meme Author: [ReasonableEffort8988](https://www.reddit.com/user/ReasonableEffort8988/)
+![Funny Meme](https://i.redd.it/y4gjf0brneyb1.png?width=100&height=100)
+* Meme Author: [jayggg](https://www.reddit.com/user/jayggg/)
 
 
 
