@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ph9fwofncjyb1.png?width=100&height=100)
-* Meme Author: [DutchPlayzz_](https://www.reddit.com/user/DutchPlayzz_/)
+![Funny Meme](https://i.imgur.com/CGycRdo.jpeg?width=100&height=100)
+* Meme Author: [FlyYouFoolyCooly](https://www.reddit.com/user/FlyYouFoolyCooly/)
 
 
 
