@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r5yevrx1b9yb1.jpg?width=100&height=100)
-* Meme Author: [Twinkie_FaKtory](https://www.reddit.com/user/Twinkie_FaKtory/)
+![Funny Meme](https://i.redd.it/azr74rpurayb1.jpg?width=100&height=100)
+* Meme Author: [True-Window-6403](https://www.reddit.com/user/True-Window-6403/)
 
 
 
