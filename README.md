@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xwmem02078yb1.jpg?width=100&height=100)
-* Meme Author: [Boomdaddy49](https://www.reddit.com/user/Boomdaddy49/)
+![Funny Meme](https://i.redd.it/332wieqbcgyb1.png?width=100&height=100)
+* Meme Author: [GalaxyOpal56](https://www.reddit.com/user/GalaxyOpal56/)
 
 
 
