@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/733dd4fx3fyb1.jpg?width=100&height=100)
-* Meme Author: [superlocolillool](https://www.reddit.com/user/superlocolillool/)
+![Funny Meme](https://i.redd.it/mugphdjmt8yb1.jpg?width=100&height=100)
+* Meme Author: [maestrozeldafan](https://www.reddit.com/user/maestrozeldafan/)
 
 
 
