@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vzi9w3jlahyb1.jpg?width=100&height=100)
-* Meme Author: [captainstrike141](https://www.reddit.com/user/captainstrike141/)
+![Funny Meme](https://i.redd.it/lfnd7tlg6eyb1.jpg?width=100&height=100)
+* Meme Author: [krimz](https://www.reddit.com/user/krimz/)
 
 
 
