@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ax8v0198tfyb1.jpg?width=100&height=100)
-* Meme Author: [Firestorm0718](https://www.reddit.com/user/Firestorm0718/)
+![Funny Meme](https://i.redd.it/2fs70rlawfyb1.png?width=100&height=100)
+* Meme Author: [Infinite_Abrocoma495](https://www.reddit.com/user/Infinite_Abrocoma495/)
 
 
 
