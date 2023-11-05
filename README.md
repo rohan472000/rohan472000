@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0odoepfmlgyb1.jpg?width=100&height=100)
-* Meme Author: [SireKojack](https://www.reddit.com/user/SireKojack/)
+![Funny Meme](https://i.redd.it/y4jir8fwffyb1.jpg?width=100&height=100)
+* Meme Author: [Desperate_Ad2784](https://www.reddit.com/user/Desperate_Ad2784/)
 
 
 
