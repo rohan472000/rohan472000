@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eqk0yeqmxjyb1.jpg?width=100&height=100)
-* Meme Author: [PrettyObvious534](https://www.reddit.com/user/PrettyObvious534/)
+![Funny Meme](https://i.redd.it/xlqru9jizjyb1.jpg?width=100&height=100)
+* Meme Author: [windowpaner69](https://www.reddit.com/user/windowpaner69/)
 
 
 
