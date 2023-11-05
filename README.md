@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/km5wsjheqhyb1.jpg?width=100&height=100)
-* Meme Author: [Saurlifi](https://www.reddit.com/user/Saurlifi/)
+![Funny Meme](https://i.redd.it/er2s67mf0iyb1.jpg?width=100&height=100)
+* Meme Author: [GreenFeather19991](https://www.reddit.com/user/GreenFeather19991/)
 
 
 
