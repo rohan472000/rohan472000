@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/87km52i2clyb1.jpg?width=100&height=100)
-* Meme Author: [prlugo4162](https://www.reddit.com/user/prlugo4162/)
+![Funny Meme](https://i.redd.it/2q16l0a8heyb1.jpg?width=100&height=100)
+* Meme Author: [Mite-o-Dan](https://www.reddit.com/user/Mite-o-Dan/)
 
 
 
