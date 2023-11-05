@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u3ll9ifsuhyb1.png?width=100&height=100)
-* Meme Author: [ChiaraStellata](https://www.reddit.com/user/ChiaraStellata/)
+![Funny Meme](https://i.redd.it/9o8z46vilcyb1.jpg?width=100&height=100)
+* Meme Author: [MaseratiFalcon](https://www.reddit.com/user/MaseratiFalcon/)
 
 
 
