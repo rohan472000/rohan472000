@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2fs70rlawfyb1.png?width=100&height=100)
-* Meme Author: [Infinite_Abrocoma495](https://www.reddit.com/user/Infinite_Abrocoma495/)
+![Funny Meme](https://i.redd.it/khfym3f4sbyb1.jpg?width=100&height=100)
+* Meme Author: [EvaInTheUSA](https://www.reddit.com/user/EvaInTheUSA/)
 
 
 
