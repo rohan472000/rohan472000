@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7tor839vqeyb1.png?width=100&height=100)
-* Meme Author: [Teslon_](https://www.reddit.com/user/Teslon_/)
+![Funny Meme](https://i.redd.it/87km52i2clyb1.jpg?width=100&height=100)
+* Meme Author: [prlugo4162](https://www.reddit.com/user/prlugo4162/)
 
 
 
