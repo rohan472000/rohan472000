@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vmtr2o1aqayb1.jpg?width=100&height=100)
-* Meme Author: [arnecrafter](https://www.reddit.com/user/arnecrafter/)
+![Funny Meme](https://i.redd.it/7mkkfjhz3gyb1.jpg?width=100&height=100)
+* Meme Author: [big-daddy-virgin](https://www.reddit.com/user/big-daddy-virgin/)
 
 
 
