@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yp96uhmgtcyb1.png?width=100&height=100)
-* Meme Author: [Realistic_Crew1095](https://www.reddit.com/user/Realistic_Crew1095/)
+![Funny Meme](https://i.redd.it/r3puhv8lncyb1.jpg?width=100&height=100)
+* Meme Author: [wakaluli](https://www.reddit.com/user/wakaluli/)
 
 
 
