@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ebutvsjlgkyb1.jpg?width=100&height=100)
-* Meme Author: [salad_knife](https://www.reddit.com/user/salad_knife/)
+![Funny Meme](https://i.redd.it/jckrjryaeiyb1.jpg?width=100&height=100)
+* Meme Author: [Molotov_YouTube](https://www.reddit.com/user/Molotov_YouTube/)
 
 
 
