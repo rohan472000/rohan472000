@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7tor839vqeyb1.png?width=100&height=100)
-* Meme Author: [Teslon_](https://www.reddit.com/user/Teslon_/)
+![Funny Meme](https://i.redd.it/ejlfllu0wkyb1.jpg?width=100&height=100)
+* Meme Author: [tahsin__twt](https://www.reddit.com/user/tahsin__twt/)
 
 
 
