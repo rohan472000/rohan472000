@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/332wieqbcgyb1.png?width=100&height=100)
-* Meme Author: [GalaxyOpal56](https://www.reddit.com/user/GalaxyOpal56/)
+![Funny Meme](https://i.redd.it/ltr02j7aicyb1.jpg?width=100&height=100)
+* Meme Author: [Greenfire05](https://www.reddit.com/user/Greenfire05/)
 
 
 
