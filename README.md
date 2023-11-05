@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c968k6vsjlyb1.png?width=100&height=100)
-* Meme Author: [Conscious-Status-174](https://www.reddit.com/user/Conscious-Status-174/)
+![Funny Meme](https://i.redd.it/7tor839vqeyb1.png?width=100&height=100)
+* Meme Author: [Teslon_](https://www.reddit.com/user/Teslon_/)
 
 
 
