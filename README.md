@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qqjwguxi5ayb1.png?width=100&height=100)
-* Meme Author: [HoleDiggerDan](https://www.reddit.com/user/HoleDiggerDan/)
+![Funny Meme](https://i.redd.it/1lm91rovvfyb1.jpg?width=100&height=100)
+* Meme Author: [Joseph_Seed_](https://www.reddit.com/user/Joseph_Seed_/)
 
 
 
