@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qfwhj7ynrayb1.jpg?width=100&height=100)
-* Meme Author: [samus_ass](https://www.reddit.com/user/samus_ass/)
+![Funny Meme](https://i.redd.it/cu51jmm8z8yb1.jpg?width=100&height=100)
+* Meme Author: [Nevwel](https://www.reddit.com/user/Nevwel/)
 
 
 
