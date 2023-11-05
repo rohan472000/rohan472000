@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/32wrktbeziyb1.jpg?width=100&height=100)
-* Meme Author: [Top-Chemistry5969](https://www.reddit.com/user/Top-Chemistry5969/)
+![Funny Meme](https://i.redd.it/ebutvsjlgkyb1.jpg?width=100&height=100)
+* Meme Author: [salad_knife](https://www.reddit.com/user/salad_knife/)
 
 
 
