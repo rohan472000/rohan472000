@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z1phf92bkeyb1.jpg?width=100&height=100)
-* Meme Author: [PieceOfWetCardboard](https://www.reddit.com/user/PieceOfWetCardboard/)
+![Funny Meme](https://i.redd.it/8f6m8bigveyb1.png?width=100&height=100)
+* Meme Author: [Fandubber13](https://www.reddit.com/user/Fandubber13/)
 
 
 
