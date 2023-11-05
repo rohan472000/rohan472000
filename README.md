@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mum1qcfrtcyb1.jpg?width=100&height=100)
-* Meme Author: [w3sT0Nnnnnnnn](https://www.reddit.com/user/w3sT0Nnnnnnnn/)
+![Funny Meme](https://i.redd.it/yabix5vpreyb1.jpg?width=100&height=100)
+* Meme Author: [Goobersniper](https://www.reddit.com/user/Goobersniper/)
 
 
 
