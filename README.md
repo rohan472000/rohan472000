@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o187331c4fyb1.jpg?width=100&height=100)
-* Meme Author: [shaman369](https://www.reddit.com/user/shaman369/)
+![Funny Meme](https://i.redd.it/abccoxq61dyb1.jpg?width=100&height=100)
+* Meme Author: [Orie-o](https://www.reddit.com/user/Orie-o/)
 
 
 
