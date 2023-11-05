@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dnxyro3s5eyb1.png?width=100&height=100)
-* Meme Author: [thefrostman1214](https://www.reddit.com/user/thefrostman1214/)
+![Funny Meme](https://i.redd.it/ef7ez9shihyb1.jpg?width=100&height=100)
+* Meme Author: [ROCKMachine8055](https://www.reddit.com/user/ROCKMachine8055/)
 
 
 
