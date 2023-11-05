@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jzdtxtn6cgyb1.jpg?width=100&height=100)
-* Meme Author: [Acceptable_Shine_738](https://www.reddit.com/user/Acceptable_Shine_738/)
+![Funny Meme](https://i.redd.it/9vl7i87r4eyb1.jpg?width=100&height=100)
+* Meme Author: [Key-Expert-7297](https://www.reddit.com/user/Key-Expert-7297/)
 
 
 
