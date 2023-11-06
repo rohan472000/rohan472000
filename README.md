@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/29k5ifrbhfyb1.jpg?width=100&height=100)
-* Meme Author: [Shadow-Floof](https://www.reddit.com/user/Shadow-Floof/)
+![Funny Meme](https://i.redd.it/0w5wazb85eyb1.jpg?width=100&height=100)
+* Meme Author: [Geoconyxdiablus](https://www.reddit.com/user/Geoconyxdiablus/)
 
 
 
