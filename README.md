@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kggi6wwy9iyb1.png?width=100&height=100)
-* Meme Author: [No_Alternative_2762](https://www.reddit.com/user/No_Alternative_2762/)
+![Funny Meme](https://i.redd.it/8dojplzwxmyb1.jpg?width=100&height=100)
+* Meme Author: [GonnaGoFat](https://www.reddit.com/user/GonnaGoFat/)
 
 
 
