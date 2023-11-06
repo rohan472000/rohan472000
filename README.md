@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0x4jk3dxzpyb1.jpg?width=100&height=100)
-* Meme Author: [Emats123](https://www.reddit.com/user/Emats123/)
+![Funny Meme](https://i.redd.it/c1stjgmtliyb1.png?width=100&height=100)
+* Meme Author: [MR_DERP_YT](https://www.reddit.com/user/MR_DERP_YT/)
 
 
 
