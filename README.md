@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bm13cybmdkyb1.jpg?width=100&height=100)
-* Meme Author: [zzSLASHDOWNzz](https://www.reddit.com/user/zzSLASHDOWNzz/)
+![Funny Meme](https://i.redd.it/ey08lp1usmyb1.jpg?width=100&height=100)
+* Meme Author: [phoenix4526](https://www.reddit.com/user/phoenix4526/)
 
 
 
