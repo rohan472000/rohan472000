@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n2kury3tqkyb1.jpg?width=100&height=100)
-* Meme Author: [Legospacememe](https://www.reddit.com/user/Legospacememe/)
+![Funny Meme](https://i.redd.it/j06as7g93hyb1.jpg?width=100&height=100)
+* Meme Author: [gamble4846](https://www.reddit.com/user/gamble4846/)
 
 
 
