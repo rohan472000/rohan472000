@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n2kury3tqkyb1.jpg?width=100&height=100)
-* Meme Author: [Legospacememe](https://www.reddit.com/user/Legospacememe/)
+![Funny Meme](https://i.redd.it/gedy93feonyb1.png?width=100&height=100)
+* Meme Author: [Remix_Master21](https://www.reddit.com/user/Remix_Master21/)
 
 
 
