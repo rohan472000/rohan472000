@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yx79qmkc2oyb1.jpg?width=100&height=100)
-* Meme Author: [amethystopian](https://www.reddit.com/user/amethystopian/)
+![Funny Meme](https://i.redd.it/cvm4m7x7rjyb1.png?width=100&height=100)
+* Meme Author: [MegaMGstudios](https://www.reddit.com/user/MegaMGstudios/)
 
 
 
