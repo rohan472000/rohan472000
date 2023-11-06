@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9vtjvj09vlyb1.jpg?width=100&height=100)
-* Meme Author: [The_Passive_Fist](https://www.reddit.com/user/The_Passive_Fist/)
+![Funny Meme](https://i.redd.it/bm13cybmdkyb1.jpg?width=100&height=100)
+* Meme Author: [zzSLASHDOWNzz](https://www.reddit.com/user/zzSLASHDOWNzz/)
 
 
 
