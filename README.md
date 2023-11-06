@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pv6tyro25qyb1.jpg?width=100&height=100)
-* Meme Author: [KitsuneKimchi](https://www.reddit.com/user/KitsuneKimchi/)
+![Funny Meme](https://i.redd.it/e9dou3i7aqyb1.png?width=100&height=100)
+* Meme Author: [omegaman101](https://www.reddit.com/user/omegaman101/)
 
 
 
