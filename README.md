@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0c37xxsookyb1.jpg?width=100&height=100)
-* Meme Author: [realcat67](https://www.reddit.com/user/realcat67/)
+![Funny Meme](https://i.redd.it/fejo5yoccmyb1.jpg?width=100&height=100)
+* Meme Author: [Mybraingoaaaaaa](https://www.reddit.com/user/Mybraingoaaaaaa/)
 
 
 
