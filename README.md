@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2wv79uye7fyb1.png?width=100&height=100)
-* Meme Author: [_The_Van_](https://www.reddit.com/user/_The_Van_/)
+![Funny Meme](https://i.redd.it/j5esjjusykyb1.jpg?width=100&height=100)
+* Meme Author: [Key_Lab_8374](https://www.reddit.com/user/Key_Lab_8374/)
 
 
 
