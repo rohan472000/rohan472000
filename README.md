@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cvm4m7x7rjyb1.png?width=100&height=100)
-* Meme Author: [MegaMGstudios](https://www.reddit.com/user/MegaMGstudios/)
+![Funny Meme](https://i.redd.it/32wrktbeziyb1.jpg?width=100&height=100)
+* Meme Author: [Top-Chemistry5969](https://www.reddit.com/user/Top-Chemistry5969/)
 
 
 
