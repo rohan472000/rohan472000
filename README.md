@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/khfym3f4sbyb1.jpg?width=100&height=100)
-* Meme Author: [EvaInTheUSA](https://www.reddit.com/user/EvaInTheUSA/)
+![Funny Meme](https://i.redd.it/9mud9v1z7myb1.png?width=100&height=100)
+* Meme Author: [I_Like_Toast_7](https://www.reddit.com/user/I_Like_Toast_7/)
 
 
 
