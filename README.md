@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xlqru9jizjyb1.jpg?width=100&height=100)
-* Meme Author: [windowpaner69](https://www.reddit.com/user/windowpaner69/)
+![Funny Meme](https://i.redd.it/is5bcg4rsiyb1.jpg?width=100&height=100)
+* Meme Author: [fandabbydosy](https://www.reddit.com/user/fandabbydosy/)
 
 
 
