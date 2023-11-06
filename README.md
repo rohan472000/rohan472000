@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kgw1hh1n1kyb1.png?width=100&height=100)
-* Meme Author: [Potatoes_122](https://www.reddit.com/user/Potatoes_122/)
+![Funny Meme](https://i.redd.it/hbrc5ly2bsyb1.jpg?width=100&height=100)
+* Meme Author: [My_cat_is_sus](https://www.reddit.com/user/My_cat_is_sus/)
 
 
 
