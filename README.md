@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hvxdceh3bjyb1.jpg?width=100&height=100)
-* Meme Author: [Boomdaddy49](https://www.reddit.com/user/Boomdaddy49/)
+![Funny Meme](https://i.redd.it/w4arsl0ntmyb1.jpg?width=100&height=100)
+* Meme Author: [alpaca-the-llama](https://www.reddit.com/user/alpaca-the-llama/)
 
 
 
