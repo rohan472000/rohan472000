@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/evjbi1p9qmyb1.jpg?width=100&height=100)
-* Meme Author: [AdmiralSplinter](https://www.reddit.com/user/AdmiralSplinter/)
+![Funny Meme](https://i.redd.it/282c34ny3fyb1.jpg?width=100&height=100)
+* Meme Author: [pee_shudder](https://www.reddit.com/user/pee_shudder/)
 
 
 
