@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bnfk1uixujyb1.jpg?width=100&height=100)
-* Meme Author: [yes-that-elliott](https://www.reddit.com/user/yes-that-elliott/)
+![Funny Meme](https://i.redd.it/f2byegr03iyb1.png?width=100&height=100)
+* Meme Author: [VitaFiresoul](https://www.reddit.com/user/VitaFiresoul/)
 
 
 
