@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d3l3mcp1snyb1.png?width=100&height=100)
-* Meme Author: [Thundergod250](https://www.reddit.com/user/Thundergod250/)
+![Funny Meme](https://i.redd.it/utrx5e823kyb1.jpg?width=100&height=100)
+* Meme Author: [BoMesSa](https://www.reddit.com/user/BoMesSa/)
 
 
 
