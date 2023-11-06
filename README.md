@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mfr0hztm9oyb1.jpg?width=100&height=100)
-* Meme Author: [MrPartyPancake](https://www.reddit.com/user/MrPartyPancake/)
+![Funny Meme](https://i.redd.it/7pye1e3xylyb1.jpg?width=100&height=100)
+* Meme Author: [_The_Van_](https://www.reddit.com/user/_The_Van_/)
 
 
 
