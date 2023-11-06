@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ay2gcw871oyb1.jpg?width=100&height=100)
-* Meme Author: [gb1609](https://www.reddit.com/user/gb1609/)
+![Funny Meme](https://i.redd.it/ka2m2qi7bmyb1.jpg?width=100&height=100)
+* Meme Author: [Cave_in_32](https://www.reddit.com/user/Cave_in_32/)
 
 
 
