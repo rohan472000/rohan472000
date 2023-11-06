@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/282c34ny3fyb1.jpg?width=100&height=100)
-* Meme Author: [pee_shudder](https://www.reddit.com/user/pee_shudder/)
+![Funny Meme](https://i.redd.it/uaqk7i1k3hyb1.jpg?width=100&height=100)
+* Meme Author: [EnvironmentSmart4698](https://www.reddit.com/user/EnvironmentSmart4698/)
 
 
 
