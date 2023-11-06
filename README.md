@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/36n2by91hkyb1.png?width=100&height=100)
-* Meme Author: [Realistic_Ex](https://www.reddit.com/user/Realistic_Ex/)
+![Funny Meme](https://i.redd.it/9h9ni5vyjlyb1.jpg?width=100&height=100)
+* Meme Author: [brazilliandanny](https://www.reddit.com/user/brazilliandanny/)
 
 
 
