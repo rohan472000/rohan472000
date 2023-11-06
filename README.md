@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/babar3865iyb1.jpg?width=100&height=100)
-* Meme Author: [ToufikSartana](https://www.reddit.com/user/ToufikSartana/)
+![Funny Meme](https://i.redd.it/5u3ppiisbgyb1.jpg?width=100&height=100)
+* Meme Author: [gemandrailfan94](https://www.reddit.com/user/gemandrailfan94/)
 
 
 
