@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z7t4hxzphlyb1.jpg?width=100&height=100)
-* Meme Author: [RickAstleysPetShrek](https://www.reddit.com/user/RickAstleysPetShrek/)
+![Funny Meme](https://i.redd.it/5l2rhve8cpyb1.jpg?width=100&height=100)
+* Meme Author: [mrskinnylimpdick69](https://www.reddit.com/user/mrskinnylimpdick69/)
 
 
 
