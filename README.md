@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hhpf137i3kyb1.jpg?width=100&height=100)
-* Meme Author: [Hexent_Armana](https://www.reddit.com/user/Hexent_Armana/)
+![Funny Meme](https://i.redd.it/9vtjvj09vlyb1.jpg?width=100&height=100)
+* Meme Author: [The_Passive_Fist](https://www.reddit.com/user/The_Passive_Fist/)
 
 
 
