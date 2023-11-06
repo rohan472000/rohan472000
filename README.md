@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t1h41p54dryb1.jpg?width=100&height=100)
-* Meme Author: [AlaskaLips97](https://www.reddit.com/user/AlaskaLips97/)
+![Funny Meme](https://i.redd.it/0tytkzudhkyb1.jpg?width=100&height=100)
+* Meme Author: [realcat67](https://www.reddit.com/user/realcat67/)
 
 
 
