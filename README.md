@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j5esjjusykyb1.jpg?width=100&height=100)
-* Meme Author: [Key_Lab_8374](https://www.reddit.com/user/Key_Lab_8374/)
+![Funny Meme](https://i.redd.it/36n2by91hkyb1.png?width=100&height=100)
+* Meme Author: [Realistic_Ex](https://www.reddit.com/user/Realistic_Ex/)
 
 
 
