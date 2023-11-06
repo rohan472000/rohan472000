@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c1stjgmtliyb1.png?width=100&height=100)
-* Meme Author: [MR_DERP_YT](https://www.reddit.com/user/MR_DERP_YT/)
+![Funny Meme](https://i.redd.it/bxr1fnv6eoyb1.jpg?width=100&height=100)
+* Meme Author: [dkbailey](https://www.reddit.com/user/dkbailey/)
 
 
 
