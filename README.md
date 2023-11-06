@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eqk0yeqmxjyb1.jpg?width=100&height=100)
-* Meme Author: [PrettyObvious534](https://www.reddit.com/user/PrettyObvious534/)
+![Funny Meme](https://i.redd.it/ay2gcw871oyb1.jpg?width=100&height=100)
+* Meme Author: [gb1609](https://www.reddit.com/user/gb1609/)
 
 
 
