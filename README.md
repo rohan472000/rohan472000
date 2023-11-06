@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ey08lp1usmyb1.jpg?width=100&height=100)
-* Meme Author: [phoenix4526](https://www.reddit.com/user/phoenix4526/)
+![Funny Meme](https://i.redd.it/bnfk1uixujyb1.jpg?width=100&height=100)
+* Meme Author: [yes-that-elliott](https://www.reddit.com/user/yes-that-elliott/)
 
 
 
