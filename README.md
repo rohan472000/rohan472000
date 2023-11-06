@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qpfpoqix0kyb1.png?width=100&height=100)
-* Meme Author: [Tortoise_Foots](https://www.reddit.com/user/Tortoise_Foots/)
+![Funny Meme](https://i.redd.it/hhpf137i3kyb1.jpg?width=100&height=100)
+* Meme Author: [Hexent_Armana](https://www.reddit.com/user/Hexent_Armana/)
 
 
 
