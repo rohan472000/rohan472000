@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lszjg1n17fyb1.jpg?width=100&height=100)
-* Meme Author: [ChaisawInsect](https://www.reddit.com/user/ChaisawInsect/)
+![Funny Meme](https://i.redd.it/n2kury3tqkyb1.jpg?width=100&height=100)
+* Meme Author: [Legospacememe](https://www.reddit.com/user/Legospacememe/)
 
 
 
