@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mkb74o60elyb1.jpg?width=100&height=100)
-* Meme Author: [Giraffe_lol](https://www.reddit.com/user/Giraffe_lol/)
+![Funny Meme](https://i.redd.it/95tcbhn34fyb1.jpg?width=100&height=100)
+* Meme Author: [superlocolillool](https://www.reddit.com/user/superlocolillool/)
 
 
 
