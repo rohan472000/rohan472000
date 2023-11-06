@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e9dou3i7aqyb1.png?width=100&height=100)
-* Meme Author: [omegaman101](https://www.reddit.com/user/omegaman101/)
+![Funny Meme](https://i.redd.it/kgw1hh1n1kyb1.png?width=100&height=100)
+* Meme Author: [Potatoes_122](https://www.reddit.com/user/Potatoes_122/)
 
 
 
