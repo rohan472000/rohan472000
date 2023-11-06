@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a5p2jaz2rnyb1.jpg?width=100&height=100)
-* Meme Author: [cjpcodyplant](https://www.reddit.com/user/cjpcodyplant/)
+![Funny Meme](https://i.redd.it/is5bcg4rsiyb1.jpg?width=100&height=100)
+* Meme Author: [fandabbydosy](https://www.reddit.com/user/fandabbydosy/)
 
 
 
