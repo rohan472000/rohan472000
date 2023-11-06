@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8dojplzwxmyb1.jpg?width=100&height=100)
-* Meme Author: [GonnaGoFat](https://www.reddit.com/user/GonnaGoFat/)
+![Funny Meme](https://i.redd.it/hhpf137i3kyb1.jpg?width=100&height=100)
+* Meme Author: [Hexent_Armana](https://www.reddit.com/user/Hexent_Armana/)
 
 
 
