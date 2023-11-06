@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wz5ni5h06kyb1.jpg?width=100&height=100)
-* Meme Author: [JonArvedon](https://www.reddit.com/user/JonArvedon/)
+![Funny Meme](https://i.redd.it/bysekcbxysyb1.jpg?width=100&height=100)
+* Meme Author: [Away-Net-7241](https://www.reddit.com/user/Away-Net-7241/)
 
 
 
