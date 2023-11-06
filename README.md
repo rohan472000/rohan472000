@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/87km52i2clyb1.jpg?width=100&height=100)
-* Meme Author: [prlugo4162](https://www.reddit.com/user/prlugo4162/)
+![Funny Meme](https://i.redd.it/5ddvtk082myb1.jpg?width=100&height=100)
+* Meme Author: [TV5Fun](https://www.reddit.com/user/TV5Fun/)
 
 
 
