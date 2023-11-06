@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hbrc5ly2bsyb1.jpg?width=100&height=100)
-* Meme Author: [My_cat_is_sus](https://www.reddit.com/user/My_cat_is_sus/)
+![Funny Meme](https://i.redd.it/t1h41p54dryb1.jpg?width=100&height=100)
+* Meme Author: [AlaskaLips97](https://www.reddit.com/user/AlaskaLips97/)
 
 
 
