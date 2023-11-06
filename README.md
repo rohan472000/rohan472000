@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/95tcbhn34fyb1.jpg?width=100&height=100)
-* Meme Author: [superlocolillool](https://www.reddit.com/user/superlocolillool/)
+![Funny Meme](https://i.redd.it/7eb4k8hjklyb1.jpg?width=100&height=100)
+* Meme Author: [liquor-ice-mixer](https://www.reddit.com/user/liquor-ice-mixer/)
 
 
 
