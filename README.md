@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j93i4gs1zoyb1.jpg?width=100&height=100)
-* Meme Author: [Bukki13](https://www.reddit.com/user/Bukki13/)
+![Funny Meme](https://i.redd.it/ph9fwofncjyb1.png?width=100&height=100)
+* Meme Author: [DutchPlayzz_](https://www.reddit.com/user/DutchPlayzz_/)
 
 
 
