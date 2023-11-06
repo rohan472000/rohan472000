@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uvmxok5upgyb1.jpg?width=100&height=100)
-* Meme Author: [DUELfighter2000](https://www.reddit.com/user/DUELfighter2000/)
+![Funny Meme](https://i.redd.it/pjejgqxwnmyb1.jpg?width=100&height=100)
+* Meme Author: [WebbsPowerade](https://www.reddit.com/user/WebbsPowerade/)
 
 
 
