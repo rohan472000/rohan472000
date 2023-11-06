@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pf2tnelcsiyb1.jpg?width=100&height=100)
-* Meme Author: [binky779](https://www.reddit.com/user/binky779/)
+![Funny Meme](https://i.redd.it/uaqk7i1k3hyb1.jpg?width=100&height=100)
+* Meme Author: [EnvironmentSmart4698](https://www.reddit.com/user/EnvironmentSmart4698/)
 
 
 
