@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/44q14oq87hyb1.png?width=100&height=100)
-* Meme Author: [rameneater23](https://www.reddit.com/user/rameneater23/)
+![Funny Meme](https://i.redd.it/eb6oh9gtmnyb1.jpg?width=100&height=100)
+* Meme Author: [MaleficentDistance72](https://www.reddit.com/user/MaleficentDistance72/)
 
 
 
