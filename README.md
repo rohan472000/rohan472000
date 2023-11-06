@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sxrw2otl5lyb1.png?width=100&height=100)
-* Meme Author: [Triumph_leader523](https://www.reddit.com/user/Triumph_leader523/)
+![Funny Meme](https://i.redd.it/0tytkzudhkyb1.jpg?width=100&height=100)
+* Meme Author: [realcat67](https://www.reddit.com/user/realcat67/)
 
 
 
