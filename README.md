@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9h9ni5vyjlyb1.jpg?width=100&height=100)
-* Meme Author: [brazilliandanny](https://www.reddit.com/user/brazilliandanny/)
+![Funny Meme](https://i.redd.it/qpfpoqix0kyb1.png?width=100&height=100)
+* Meme Author: [Tortoise_Foots](https://www.reddit.com/user/Tortoise_Foots/)
 
 
 
