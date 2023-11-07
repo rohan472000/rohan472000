@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oxh6lbtjiyyb1.jpg?width=100&height=100)
-* Meme Author: [Available_Reason7795](https://www.reddit.com/user/Available_Reason7795/)
+![Funny Meme](https://i.redd.it/9prgedyxzqyb1.jpg?width=100&height=100)
+* Meme Author: [Gone_Mads](https://www.reddit.com/user/Gone_Mads/)
 
 
 
