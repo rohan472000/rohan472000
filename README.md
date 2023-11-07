@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/68hrl82xsxyb1.png?width=100&height=100)
-* Meme Author: [IceAggravating4163](https://www.reddit.com/user/IceAggravating4163/)
+![Funny Meme](https://i.redd.it/5kv9j3sh20zb1.jpg?width=100&height=100)
+* Meme Author: [LumpusKrampus](https://www.reddit.com/user/LumpusKrampus/)
 
 
 
