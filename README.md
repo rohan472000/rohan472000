@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/851zl5.jpg?width=100&height=100)
-* Meme Author: [davidragon](https://www.reddit.com/user/davidragon/)
+![Funny Meme](https://i.redd.it/p6y1r2obxuyb1.jpg?width=100&height=100)
+* Meme Author: [DeezelWeazel](https://www.reddit.com/user/DeezelWeazel/)
 
 
 
