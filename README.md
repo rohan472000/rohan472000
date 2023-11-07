@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ylq766d6uzyb1.jpg?width=100&height=100)
-* Meme Author: [Emotional-Sea9384](https://www.reddit.com/user/Emotional-Sea9384/)
+![Funny Meme](https://i.redd.it/6bd0hn9ortyb1.png?width=100&height=100)
+* Meme Author: [Tooveey](https://www.reddit.com/user/Tooveey/)
 
 
 
