@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h94x0xy7epyb1.jpg?width=100&height=100)
-* Meme Author: [8bitKev](https://www.reddit.com/user/8bitKev/)
+![Funny Meme](https://i.redd.it/t1h41p54dryb1.jpg?width=100&height=100)
+* Meme Author: [AlaskaLips97](https://www.reddit.com/user/AlaskaLips97/)
 
 
 
