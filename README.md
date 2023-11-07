@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yvj2ad2j8syb1.png?width=100&height=100)
-* Meme Author: [NastiestMC](https://www.reddit.com/user/NastiestMC/)
+![Funny Meme](https://i.redd.it/9tqoqobbgvyb1.jpg?width=100&height=100)
+* Meme Author: [gemandrailfan94](https://www.reddit.com/user/gemandrailfan94/)
 
 
 
