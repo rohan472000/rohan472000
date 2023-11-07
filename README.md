@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/toilm6eliryb1.jpg?width=100&height=100)
-* Meme Author: [Dylbo2008](https://www.reddit.com/user/Dylbo2008/)
+![Funny Meme](https://i.redd.it/t1h41p54dryb1.jpg?width=100&height=100)
+* Meme Author: [AlaskaLips97](https://www.reddit.com/user/AlaskaLips97/)
 
 
 
