@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qzu578ruttyb1.jpg?width=100&height=100)
-* Meme Author: [IllPresentation3037](https://www.reddit.com/user/IllPresentation3037/)
+![Funny Meme](https://i.redd.it/dfps5404iqyb1.jpg?width=100&height=100)
+* Meme Author: [mechmo](https://www.reddit.com/user/mechmo/)
 
 
 
