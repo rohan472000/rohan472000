@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dnvtc35h2yyb1.jpg?width=100&height=100)
-* Meme Author: [Speedy89t](https://www.reddit.com/user/Speedy89t/)
+![Funny Meme](https://i.redd.it/h94x0xy7epyb1.jpg?width=100&height=100)
+* Meme Author: [8bitKev](https://www.reddit.com/user/8bitKev/)
 
 
 
