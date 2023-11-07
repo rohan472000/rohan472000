@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cw37ubsz4syb1.jpg?width=100&height=100)
-* Meme Author: [Cerparis](https://www.reddit.com/user/Cerparis/)
+![Funny Meme](https://i.redd.it/80we143w1vyb1.jpg?width=100&height=100)
+* Meme Author: [ave_satani666](https://www.reddit.com/user/ave_satani666/)
 
 
 
