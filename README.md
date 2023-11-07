@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z9ytu1ey0zyb1.png?width=100&height=100)
-* Meme Author: [Sizexq](https://www.reddit.com/user/Sizexq/)
+![Funny Meme](https://i.redd.it/vk3911uduyyb1.jpg?width=100&height=100)
+* Meme Author: [icedcoffee4eva](https://www.reddit.com/user/icedcoffee4eva/)
 
 
 
