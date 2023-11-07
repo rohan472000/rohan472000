@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kelvasutwyyb1.png?width=100&height=100)
-* Meme Author: [Pirokron](https://www.reddit.com/user/Pirokron/)
+![Funny Meme](https://i.redd.it/z9ytu1ey0zyb1.png?width=100&height=100)
+* Meme Author: [Sizexq](https://www.reddit.com/user/Sizexq/)
 
 
 
