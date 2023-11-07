@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h7cjbt1dmzyb1.jpg?width=100&height=100)
-* Meme Author: [Inevitable_Ad3230](https://www.reddit.com/user/Inevitable_Ad3230/)
+![Funny Meme](https://i.redd.it/0awylea7azyb1.png?width=100&height=100)
+* Meme Author: [GigaChadZelensky](https://www.reddit.com/user/GigaChadZelensky/)
 
 
 
