@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5ddvtk082myb1.jpg?width=100&height=100)
-* Meme Author: [TV5Fun](https://www.reddit.com/user/TV5Fun/)
+![Funny Meme](https://i.redd.it/k8kwwd8kusyb1.png?width=100&height=100)
+* Meme Author: [empty_inside_emtpty](https://www.reddit.com/user/empty_inside_emtpty/)
 
 
 
