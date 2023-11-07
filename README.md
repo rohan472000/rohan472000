@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z02r7xxglmyb1.jpg?width=100&height=100)
-* Meme Author: [Therealfern1](https://www.reddit.com/user/Therealfern1/)
+![Funny Meme](https://i.redd.it/ax9gk1tf7tyb1.jpg?width=100&height=100)
+* Meme Author: [shrinasaurus](https://www.reddit.com/user/shrinasaurus/)
 
 
 
