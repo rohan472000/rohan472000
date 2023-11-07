@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v9j5bvvtqsyb1.jpg?width=100&height=100)
-* Meme Author: [lordPyotr9733](https://www.reddit.com/user/lordPyotr9733/)
+![Funny Meme](https://i.redd.it/duxisjiqhsyb1.jpg?width=100&height=100)
+* Meme Author: [PoopPoes](https://www.reddit.com/user/PoopPoes/)
 
 
 
