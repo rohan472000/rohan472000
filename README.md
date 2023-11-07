@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8q4j5tovivyb1.jpg?width=100&height=100)
-* Meme Author: [thejazzyest](https://www.reddit.com/user/thejazzyest/)
+![Funny Meme](https://i.redd.it/oeltyggqbwyb1.jpg?width=100&height=100)
+* Meme Author: [RelevantCommenter](https://www.reddit.com/user/RelevantCommenter/)
 
 
 
