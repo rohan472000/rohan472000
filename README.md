@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9tqoqobbgvyb1.jpg?width=100&height=100)
-* Meme Author: [gemandrailfan94](https://www.reddit.com/user/gemandrailfan94/)
+![Funny Meme](https://i.redd.it/toilm6eliryb1.jpg?width=100&height=100)
+* Meme Author: [Dylbo2008](https://www.reddit.com/user/Dylbo2008/)
 
 
 
