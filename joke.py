@@ -28,11 +28,13 @@ def update_readme_with_meme(meme: dict) -> bool:
                 # Remove the previous author line
                 if i + 1 < len(contents) and contents[i + 1].startswith("* Meme Author:"):
                     del contents[i + 1]
-
+                if i + 1 < contents and contents[i + 1].startswith("* Share Meme:"):
+                    del contents[i + 1]
                 meme_url = meme["url"]
                 meme_author = meme["author"]
                 markdown = f"![Funny Meme]({meme_url}?width=100&height=100)\n"
                 markdown += f"* Meme Author: [{meme_author}](https://www.reddit.com/user/{meme_author}/)\n"
+                markdown += f"* Meme Author: [URL]({meme_url})\n"
                 contents[i] = markdown
                 break
 
