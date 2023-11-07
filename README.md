@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2rc45v40ysyb1.jpg?width=100&height=100)
-* Meme Author: [MaximumKarp2](https://www.reddit.com/user/MaximumKarp2/)
+![Funny Meme](https://i.redd.it/ay2gcw871oyb1.jpg?width=100&height=100)
+* Meme Author: [gb1609](https://www.reddit.com/user/gb1609/)
 
 
 
