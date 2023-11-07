@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r8fjtxzz3xyb1.jpg?width=100&height=100)
-* Meme Author: [TheNinjaSausage](https://www.reddit.com/user/TheNinjaSausage/)
+![Funny Meme](https://i.redd.it/93e2mip74syb1.png?width=100&height=100)
+* Meme Author: [Trihaiku1080](https://www.reddit.com/user/Trihaiku1080/)
 
 
 
