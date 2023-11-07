@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uir7shrllwyb1.jpg?width=100&height=100)
-* Meme Author: [DannyLogOut](https://www.reddit.com/user/DannyLogOut/)
+![Funny Meme](https://i.redd.it/ru05j9gajryb1.jpg?width=100&height=100)
+* Meme Author: [darkpollopesca](https://www.reddit.com/user/darkpollopesca/)
 
 
 
