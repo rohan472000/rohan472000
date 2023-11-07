@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/duxisjiqhsyb1.jpg?width=100&height=100)
-* Meme Author: [PoopPoes](https://www.reddit.com/user/PoopPoes/)
+![Funny Meme](https://i.redd.it/njxlt9fa7tyb1.jpg?width=100&height=100)
+* Meme Author: [Available_Reason7795](https://www.reddit.com/user/Available_Reason7795/)
 
 
 
