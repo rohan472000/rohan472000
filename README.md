@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p6y1r2obxuyb1.jpg?width=100&height=100)
-* Meme Author: [DeezelWeazel](https://www.reddit.com/user/DeezelWeazel/)
+![Funny Meme](https://i.redd.it/duxisjiqhsyb1.jpg?width=100&height=100)
+* Meme Author: [PoopPoes](https://www.reddit.com/user/PoopPoes/)
 
 
 
