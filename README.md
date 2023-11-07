@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9gvmv18uluyb1.png?width=100&height=100)
-* Meme Author: [theuntitledproget](https://www.reddit.com/user/theuntitledproget/)
+![Funny Meme](https://i.redd.it/v0gfjthrcyyb1.jpg?width=100&height=100)
+* Meme Author: [UnwantedJason](https://www.reddit.com/user/UnwantedJason/)
 
 
 
