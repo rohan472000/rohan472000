@@ -1,4 +1,4 @@
-![Funny Meme](https://i.redd.it/hqowi2ykkuyb1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/iz4tbniuduyb1.jpg?width=100&height=100)
 * Meme Author: [_nicholsndimes_](https://www.reddit.com/user/_nicholsndimes_/)
 
 
