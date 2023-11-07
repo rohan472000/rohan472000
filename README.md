@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gx8jtct3rsyb1.jpg?width=100&height=100)
-* Meme Author: [whatrhymeswith27](https://www.reddit.com/user/whatrhymeswith27/)
+![Funny Meme](https://i.redd.it/2k6rbmqasqyb1.jpg?width=100&height=100)
+* Meme Author: [AKREP0003](https://www.reddit.com/user/AKREP0003/)
 
 
 
