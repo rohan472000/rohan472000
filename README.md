@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v2pdtw94pryb1.png?width=100&height=100)
-* Meme Author: [Shin_Ran450](https://www.reddit.com/user/Shin_Ran450/)
+![Funny Meme](https://i.redd.it/2rc45v40ysyb1.jpg?width=100&height=100)
+* Meme Author: [MaximumKarp2](https://www.reddit.com/user/MaximumKarp2/)
 
 
 
