@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7o3r13lcqryb1.jpg?width=100&height=100)
-* Meme Author: [LMFA0](https://www.reddit.com/user/LMFA0/)
+![Funny Meme](https://i.redd.it/db5o0vnjqqyb1.png?width=100&height=100)
+* Meme Author: [Lol-Otter](https://www.reddit.com/user/Lol-Otter/)
 
 
 
