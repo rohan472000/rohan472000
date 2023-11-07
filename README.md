@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mfr0hztm9oyb1.jpg?width=100&height=100)
-* Meme Author: [MrPartyPancake](https://www.reddit.com/user/MrPartyPancake/)
+![Funny Meme](https://i.redd.it/gx8jtct3rsyb1.jpg?width=100&height=100)
+* Meme Author: [whatrhymeswith27](https://www.reddit.com/user/whatrhymeswith27/)
 
 
 
