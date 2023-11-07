@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k8kwwd8kusyb1.png?width=100&height=100)
-* Meme Author: [empty_inside_emtpty](https://www.reddit.com/user/empty_inside_emtpty/)
+![Funny Meme](https://i.redd.it/cw37ubsz4syb1.jpg?width=100&height=100)
+* Meme Author: [Cerparis](https://www.reddit.com/user/Cerparis/)
 
 
 
