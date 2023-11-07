@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4fpedyli1tyb1.png?width=100&height=100)
-* Meme Author: [NICK07130](https://www.reddit.com/user/NICK07130/)
+![Funny Meme](https://i.redd.it/oeltyggqbwyb1.jpg?width=100&height=100)
+* Meme Author: [RelevantCommenter](https://www.reddit.com/user/RelevantCommenter/)
 
 
 
