@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/85paqwtgaryb1.jpg?width=100&height=100)
-* Meme Author: [MarblesTheCat18](https://www.reddit.com/user/MarblesTheCat18/)
+![Funny Meme](https://i.redd.it/vybdk89xlxyb1.png?width=100&height=100)
+* Meme Author: [PixelFondler](https://www.reddit.com/user/PixelFondler/)
 
 
 
