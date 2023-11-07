@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/soi4zox6vuyb1.png?width=100&height=100)
-* Meme Author: [TalithePally](https://www.reddit.com/user/TalithePally/)
+![Funny Meme](https://i.redd.it/lz5f677woryb1.jpg?width=100&height=100)
+* Meme Author: [LycanVan](https://www.reddit.com/user/LycanVan/)
 
 
 
