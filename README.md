@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eyi3c1u6nwyb1.png?width=100&height=100)
-* Meme Author: [criiib](https://www.reddit.com/user/criiib/)
+![Funny Meme](https://i.redd.it/r040vldkusyb1.jpg?width=100&height=100)
+* Meme Author: [xxgothicxx95](https://www.reddit.com/user/xxgothicxx95/)
 
 
 
