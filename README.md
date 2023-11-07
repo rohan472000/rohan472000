@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5uj5yb104tyb1.jpg?width=100&height=100)
-* Meme Author: [Lady-Nora](https://www.reddit.com/user/Lady-Nora/)
+![Funny Meme](https://i.redd.it/2bf4efd13xyb1.jpg?width=100&height=100)
+* Meme Author: [LoneCyberwolf](https://www.reddit.com/user/LoneCyberwolf/)
 
 
 
