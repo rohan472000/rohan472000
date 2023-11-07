@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oeltyggqbwyb1.jpg?width=100&height=100)
-* Meme Author: [RelevantCommenter](https://www.reddit.com/user/RelevantCommenter/)
+![Funny Meme](https://i.redd.it/rdpd7r8aqwyb1.jpg?width=100&height=100)
+* Meme Author: [zantcho](https://www.reddit.com/user/zantcho/)
 
 
 
