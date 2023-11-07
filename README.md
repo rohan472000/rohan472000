@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kx79igtk6syb1.png?width=100&height=100)
-* Meme Author: [Spiritual_Jury4829](https://www.reddit.com/user/Spiritual_Jury4829/)
+![Funny Meme](https://i.redd.it/85paqwtgaryb1.jpg?width=100&height=100)
+* Meme Author: [MarblesTheCat18](https://www.reddit.com/user/MarblesTheCat18/)
 
 
 
