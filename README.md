@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0x7nach6i6zb1.jpg?width=100&height=100)
-* Meme Author: [dynami999](https://www.reddit.com/user/dynami999/)
+![Funny Meme](https://i.redd.it/4gacvhdhy0zb1.jpg?width=100&height=100)
+* Meme Author: [Accomplished_Ask_326](https://www.reddit.com/user/Accomplished_Ask_326/)
 
 
 
