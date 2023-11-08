@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0p0v3xtj12zb1.jpg?width=100&height=100)
-* Meme Author: [Novel_Afternoon](https://www.reddit.com/user/Novel_Afternoon/)
+![Funny Meme](https://i.redd.it/jc7ruwo6txyb1.jpg?width=100&height=100)
+* Meme Author: [BaseballSeveral1107](https://www.reddit.com/user/BaseballSeveral1107/)
 
 
 
