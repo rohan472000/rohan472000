@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ws3rukmmc4zb1.jpg?width=100&height=100)
-* Meme Author: [ilovecheese514](https://www.reddit.com/user/ilovecheese514/)
+![Funny Meme](https://i.redd.it/rbgxbr5aw5zb1.jpg?width=100&height=100)
+* Meme Author: [zielonykid1234](https://www.reddit.com/user/zielonykid1234/)
 
 
 
