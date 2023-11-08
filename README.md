@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/80qj9w3g3zyb1.png?width=100&height=100)
-* Meme Author: [Sod_Lord](https://www.reddit.com/user/Sod_Lord/)
+![Funny Meme](https://i.redd.it/r4f3fs6ldwyb1.jpg?width=100&height=100)
+* Meme Author: [vikrampatro](https://www.reddit.com/user/vikrampatro/)
 
 
 
