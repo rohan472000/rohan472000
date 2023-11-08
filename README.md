@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d53ni446b0zb1.jpg?width=100&height=100)
-* Meme Author: [Material-Display8107](https://www.reddit.com/user/Material-Display8107/)
+![Funny Meme](https://i.redd.it/l8wu1hbgwzyb1.jpg?width=100&height=100)
+* Meme Author: [ChilPollins1982](https://www.reddit.com/user/ChilPollins1982/)
 
 
 
