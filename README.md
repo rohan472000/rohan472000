@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4rvmueu450zb1.png?width=100&height=100)
-* Meme Author: [ta1no](https://www.reddit.com/user/ta1no/)
+![Funny Meme](https://i.redd.it/68hrl82xsxyb1.png?width=100&height=100)
+* Meme Author: [IceAggravating4163](https://www.reddit.com/user/IceAggravating4163/)
 
 
 
