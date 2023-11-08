@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ocg0z09urvyb1.png?width=100&height=100)
-* Meme Author: [RoboBacon2](https://www.reddit.com/user/RoboBacon2/)
+![Funny Meme](https://i.redd.it/dnvtc35h2yyb1.jpg?width=100&height=100)
+* Meme Author: [Speedy89t](https://www.reddit.com/user/Speedy89t/)
 
 
 
