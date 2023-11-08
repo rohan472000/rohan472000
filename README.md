@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ubajv0kst3zb1.jpg?width=100&height=100)
-* Meme Author: [6ftCastle](https://www.reddit.com/user/6ftCastle/)
+![Funny Meme](https://i.redd.it/cz6featndzyb1.png?width=100&height=100)
+* Meme Author: [InvaderofViolence](https://www.reddit.com/user/InvaderofViolence/)
 
 
 
