@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/luzwcthj25zb1.jpg?width=100&height=100)
-* Meme Author: [honza13](https://www.reddit.com/user/honza13/)
+![Funny Meme](https://i.redd.it/taoi0yubyvyb1.jpg?width=100&height=100)
+* Meme Author: [NRZN_77](https://www.reddit.com/user/NRZN_77/)
 
 
 
