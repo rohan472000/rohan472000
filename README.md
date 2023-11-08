@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/umi2cppt6zyb1.jpg?width=100&height=100)
-* Meme Author: [TAFKA-Globlan](https://www.reddit.com/user/TAFKA-Globlan/)
+![Funny Meme](https://i.redd.it/9at6d350l5zb1.jpg?width=100&height=100)
+* Meme Author: [Chili919](https://www.reddit.com/user/Chili919/)
 
 
 
