@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wqygigcxt4zb1.jpg?width=100&height=100)
-* Meme Author: [Otherwise_Basis_6328](https://www.reddit.com/user/Otherwise_Basis_6328/)
+![Funny Meme](https://i.redd.it/4mhpb0t5jvyb1.jpg?width=100&height=100)
+* Meme Author: [dankmeme_god420](https://www.reddit.com/user/dankmeme_god420/)
 
 
 
