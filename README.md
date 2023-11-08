@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pnjqau0sp6zb1.jpg?width=100&height=100)
-* Meme Author: [scorpioskillz](https://www.reddit.com/user/scorpioskillz/)
+![Funny Meme](https://i.redd.it/em4dg0ugp6zb1.png?width=100&height=100)
+* Meme Author: [TheRealLittlestRonin](https://www.reddit.com/user/TheRealLittlestRonin/)
 
 
 
