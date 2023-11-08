@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nxbmbx7l1xyb1.png?width=100&height=100)
-* Meme Author: [ondra_vxx](https://www.reddit.com/user/ondra_vxx/)
+![Funny Meme](https://i.redd.it/7zwsxorvfyyb1.jpg?width=100&height=100)
+* Meme Author: [i_beg_4_subs](https://www.reddit.com/user/i_beg_4_subs/)
 
 
 
