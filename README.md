@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nx97j26zt0zb1.jpg?width=100&height=100)
-* Meme Author: [Shadow-Floof](https://www.reddit.com/user/Shadow-Floof/)
+![Funny Meme](https://i.redd.it/dvmojxda31zb1.jpg?width=100&height=100)
+* Meme Author: [Mushroom_lady_mwaha](https://www.reddit.com/user/Mushroom_lady_mwaha/)
 
 
 
