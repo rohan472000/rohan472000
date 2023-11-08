@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5kv9j3sh20zb1.jpg?width=100&height=100)
-* Meme Author: [LumpusKrampus](https://www.reddit.com/user/LumpusKrampus/)
+![Funny Meme](https://i.redd.it/gy3qa0c9xtyb1.jpg?width=100&height=100)
+* Meme Author: [mallolike](https://www.reddit.com/user/mallolike/)
 
 
 
