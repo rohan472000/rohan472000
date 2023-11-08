@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ihajciyx5zb1.jpg?width=100&height=100)
-* Meme Author: [night_wolf1991](https://www.reddit.com/user/night_wolf1991/)
+![Funny Meme](https://i.redd.it/oxh6lbtjiyyb1.jpg?width=100&height=100)
+* Meme Author: [Available_Reason7795](https://www.reddit.com/user/Available_Reason7795/)
 
 
 
