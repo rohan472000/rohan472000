@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sqcbnxewy5zb1.jpg?width=100&height=100)
-* Meme Author: [ninja6911](https://www.reddit.com/user/ninja6911/)
+![Funny Meme](https://i.redd.it/qb7cg39xv3zb1.png?width=100&height=100)
+* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
 
 
 
