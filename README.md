@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k5wzu80zeyyb1.jpg?width=100&height=100)
-* Meme Author: [Sirgoodman008](https://www.reddit.com/user/Sirgoodman008/)
+![Funny Meme](https://i.redd.it/4rvmueu450zb1.png?width=100&height=100)
+* Meme Author: [ta1no](https://www.reddit.com/user/ta1no/)
 
 
 
