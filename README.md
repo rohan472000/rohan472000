@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wmdihxcpl3zb1.jpg?width=100&height=100)
-* Meme Author: [VishwjeetChavan](https://www.reddit.com/user/VishwjeetChavan/)
+![Funny Meme](https://i.redd.it/r15r8za5czyb1.jpg?width=100&height=100)
+* Meme Author: [amcg41294](https://www.reddit.com/user/amcg41294/)
 
 
 
