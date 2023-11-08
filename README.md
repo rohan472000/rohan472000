@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/26l8v2hgq4zb1.png?width=100&height=100)
-* Meme Author: [Infinite-Nobody-8505](https://www.reddit.com/user/Infinite-Nobody-8505/)
+![Funny Meme](https://i.redd.it/ab2nksqaw4zb1.jpg?width=100&height=100)
+* Meme Author: [Flaviphone](https://www.reddit.com/user/Flaviphone/)
 
 
 
