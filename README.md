@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r53dxn60m5zb1.jpg?width=100&height=100)
-* Meme Author: [Greekzeus1](https://www.reddit.com/user/Greekzeus1/)
+![Funny Meme](https://i.redd.it/kh4zwsh1l1zb1.jpg?width=100&height=100)
+* Meme Author: [thecowgoesree](https://www.reddit.com/user/thecowgoesree/)
 
 
 
