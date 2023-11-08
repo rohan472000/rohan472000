@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4mhpb0t5jvyb1.jpg?width=100&height=100)
-* Meme Author: [dankmeme_god420](https://www.reddit.com/user/dankmeme_god420/)
+![Funny Meme](https://i.redd.it/a7pljgnew3zb1.jpg?width=100&height=100)
+* Meme Author: [spaceplacetaste](https://www.reddit.com/user/spaceplacetaste/)
 
 
 
