@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qgw0lwari4zb1.jpg?width=100&height=100)
-* Meme Author: [Atlas_of_history](https://www.reddit.com/user/Atlas_of_history/)
+![Funny Meme](https://i.redd.it/e397kq56m1zb1.jpg?width=100&height=100)
+* Meme Author: [ibnugamingyt12](https://www.reddit.com/user/ibnugamingyt12/)
 
 
 
