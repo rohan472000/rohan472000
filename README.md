@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h7cjbt1dmzyb1.jpg?width=100&height=100)
-* Meme Author: [Inevitable_Ad3230](https://www.reddit.com/user/Inevitable_Ad3230/)
+![Funny Meme](https://i.redd.it/50wl00jkk4zb1.jpg?width=100&height=100)
+* Meme Author: [Admirable-Reality-62](https://www.reddit.com/user/Admirable-Reality-62/)
 
 
 
