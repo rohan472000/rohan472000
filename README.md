@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9msz305jr0zb1.jpg?width=100&height=100)
-* Meme Author: [Arkasha_AmerRus](https://www.reddit.com/user/Arkasha_AmerRus/)
+![Funny Meme](https://i.redd.it/0p0v3xtj12zb1.jpg?width=100&height=100)
+* Meme Author: [Novel_Afternoon](https://www.reddit.com/user/Novel_Afternoon/)
 
 
 
