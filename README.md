@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y2nedpbp4tyb1.jpg?width=100&height=100)
-* Meme Author: [Wavestination](https://www.reddit.com/user/Wavestination/)
+![Funny Meme](https://i.redd.it/taoi0yubyvyb1.jpg?width=100&height=100)
+* Meme Author: [NRZN_77](https://www.reddit.com/user/NRZN_77/)
 
 
 
