@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdpd7r8aqwyb1.jpg?width=100&height=100)
-* Meme Author: [zantcho](https://www.reddit.com/user/zantcho/)
+![Funny Meme](https://i.redd.it/k5wzu80zeyyb1.jpg?width=100&height=100)
+* Meme Author: [Sirgoodman008](https://www.reddit.com/user/Sirgoodman008/)
 
 
 
