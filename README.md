@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ptftl7s2xyb1.jpg?width=100&height=100)
-* Meme Author: [PhantomCruze](https://www.reddit.com/user/PhantomCruze/)
+![Funny Meme](https://i.redd.it/aybqwfnkyzyb1.jpg?width=100&height=100)
+* Meme Author: [KyleColby](https://www.reddit.com/user/KyleColby/)
 
 
 
