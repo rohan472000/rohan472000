@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6wak9ll3p2zb1.png?width=100&height=100)
-* Meme Author: [hobosam21-B](https://www.reddit.com/user/hobosam21-B/)
+![Funny Meme](https://i.redd.it/8064du7uw4zb1.jpg?width=100&height=100)
+* Meme Author: [Bakedbean44](https://www.reddit.com/user/Bakedbean44/)
 
 
 
