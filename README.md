@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lkufnpgi53zb1.png?width=100&height=100)
-* Meme Author: [PC_Pickle](https://www.reddit.com/user/PC_Pickle/)
+![Funny Meme](https://i.redd.it/qgw0lwari4zb1.jpg?width=100&height=100)
+* Meme Author: [Atlas_of_history](https://www.reddit.com/user/Atlas_of_history/)
 
 
 
