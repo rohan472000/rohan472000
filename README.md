@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uir7shrllwyb1.jpg?width=100&height=100)
-* Meme Author: [DannyLogOut](https://www.reddit.com/user/DannyLogOut/)
+![Funny Meme](https://i.redd.it/04bqtzp9lxyb1.jpg?width=100&height=100)
+* Meme Author: [Gtapex](https://www.reddit.com/user/Gtapex/)
 
 
 
