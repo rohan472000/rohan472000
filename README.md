@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cz6featndzyb1.png?width=100&height=100)
-* Meme Author: [InvaderofViolence](https://www.reddit.com/user/InvaderofViolence/)
+![Funny Meme](https://i.redd.it/4tezenn1u3zb1.jpg?width=100&height=100)
+* Meme Author: [Alexdoh](https://www.reddit.com/user/Alexdoh/)
 
 
 
