@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f2qw7vgdkxyb1.jpg?width=100&height=100)
-* Meme Author: [DaveTheRocketGuy](https://www.reddit.com/user/DaveTheRocketGuy/)
+![Funny Meme](https://i.redd.it/ox1smjqdh1zb1.jpg?width=100&height=100)
+* Meme Author: [Odinthedoge](https://www.reddit.com/user/Odinthedoge/)
 
 
 
