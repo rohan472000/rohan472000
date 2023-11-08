@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l8wu1hbgwzyb1.jpg?width=100&height=100)
-* Meme Author: [ChilPollins1982](https://www.reddit.com/user/ChilPollins1982/)
+![Funny Meme](https://i.redd.it/taoi0yubyvyb1.jpg?width=100&height=100)
+* Meme Author: [NRZN_77](https://www.reddit.com/user/NRZN_77/)
 
 
 
