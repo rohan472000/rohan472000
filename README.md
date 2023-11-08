@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3zlyzpl5b3zb1.jpg?width=100&height=100)
-* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
+![Funny Meme](https://i.redd.it/wkkuz6zpo1zb1.jpg?width=100&height=100)
+* Meme Author: [AnonymousRedJay24](https://www.reddit.com/user/AnonymousRedJay24/)
 
 
 
