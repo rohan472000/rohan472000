@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/keymq4c330zb1.jpg?width=100&height=100)
-* Meme Author: [TheRudDud](https://www.reddit.com/user/TheRudDud/)
+![Funny Meme](https://i.redd.it/luzwcthj25zb1.jpg?width=100&height=100)
+* Meme Author: [honza13](https://www.reddit.com/user/honza13/)
 
 
 
