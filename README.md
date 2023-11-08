@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a7pljgnew3zb1.jpg?width=100&height=100)
-* Meme Author: [spaceplacetaste](https://www.reddit.com/user/spaceplacetaste/)
+![Funny Meme](https://i.redd.it/81y9c3cf90zb1.jpg?width=100&height=100)
+* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
 
 
 
