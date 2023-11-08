@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2509pl2r4yyb1.jpg?width=100&height=100)
-* Meme Author: [Still-Anxiety-8261](https://www.reddit.com/user/Still-Anxiety-8261/)
+![Funny Meme](https://i.redd.it/xy5poca8l0zb1.png?width=100&height=100)
+* Meme Author: [IamtheFungusman](https://www.reddit.com/user/IamtheFungusman/)
 
 
 
