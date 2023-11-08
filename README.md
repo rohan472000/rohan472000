@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xy5poca8l0zb1.png?width=100&height=100)
-* Meme Author: [IamtheFungusman](https://www.reddit.com/user/IamtheFungusman/)
+![Funny Meme](https://i.redd.it/4m7ij5b4q2zb1.jpg?width=100&height=100)
+* Meme Author: [Cute-Picci](https://www.reddit.com/user/Cute-Picci/)
 
 
 
