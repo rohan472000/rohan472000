@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/04bqtzp9lxyb1.jpg?width=100&height=100)
-* Meme Author: [Gtapex](https://www.reddit.com/user/Gtapex/)
+![Funny Meme](https://i.redd.it/ipmhyd1p13zb1.png?width=100&height=100)
+* Meme Author: [SSS987114-A81](https://www.reddit.com/user/SSS987114-A81/)
 
 
 
