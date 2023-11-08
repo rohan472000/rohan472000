@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vk3911uduyyb1.jpg?width=100&height=100)
-* Meme Author: [icedcoffee4eva](https://www.reddit.com/user/icedcoffee4eva/)
+![Funny Meme](https://i.redd.it/nx97j26zt0zb1.jpg?width=100&height=100)
+* Meme Author: [Shadow-Floof](https://www.reddit.com/user/Shadow-Floof/)
 
 
 
