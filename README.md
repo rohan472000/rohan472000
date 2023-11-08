@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7zwsxorvfyyb1.jpg?width=100&height=100)
-* Meme Author: [i_beg_4_subs](https://www.reddit.com/user/i_beg_4_subs/)
+![Funny Meme](https://i.redd.it/8m1nj73ih3zb1.jpg?width=100&height=100)
+* Meme Author: [Old-Entertainment-91](https://www.reddit.com/user/Old-Entertainment-91/)
 
 
 
