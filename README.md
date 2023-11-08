@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cys5hb5jjwyb1.jpg?width=100&height=100)
-* Meme Author: [Careless_Reception74](https://www.reddit.com/user/Careless_Reception74/)
+![Funny Meme](https://i.redd.it/y2nedpbp4tyb1.jpg?width=100&height=100)
+* Meme Author: [Wavestination](https://www.reddit.com/user/Wavestination/)
 
 
 
