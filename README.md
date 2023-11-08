@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2bf4efd13xyb1.jpg?width=100&height=100)
-* Meme Author: [LoneCyberwolf](https://www.reddit.com/user/LoneCyberwolf/)
+![Funny Meme](https://i.redd.it/w74g35a7s0zb1.jpg?width=100&height=100)
+* Meme Author: [hollopurple](https://www.reddit.com/user/hollopurple/)
 
 
 
