@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4m7ij5b4q2zb1.jpg?width=100&height=100)
-* Meme Author: [Cute-Picci](https://www.reddit.com/user/Cute-Picci/)
+![Funny Meme](https://i.redd.it/04bqtzp9lxyb1.jpg?width=100&height=100)
+* Meme Author: [Gtapex](https://www.reddit.com/user/Gtapex/)
 
 
 
