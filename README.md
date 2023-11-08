@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4d38r4tte2zb1.jpg?width=100&height=100)
-* Meme Author: [AirpodsForThePoor](https://www.reddit.com/user/AirpodsForThePoor/)
+![Funny Meme](https://i.redd.it/i4c8no8kuxyb1.jpg?width=100&height=100)
+* Meme Author: [liquor-ice-mixer](https://www.reddit.com/user/liquor-ice-mixer/)
 
 
 
