@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iqnyfl5c8zyb1.jpg?width=100&height=100)
-* Meme Author: [ProNoobCombo](https://www.reddit.com/user/ProNoobCombo/)
+![Funny Meme](https://i.redd.it/rdpd7r8aqwyb1.jpg?width=100&height=100)
+* Meme Author: [zantcho](https://www.reddit.com/user/zantcho/)
 
 
 
