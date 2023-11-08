@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jc7ruwo6txyb1.jpg?width=100&height=100)
-* Meme Author: [BaseballSeveral1107](https://www.reddit.com/user/BaseballSeveral1107/)
+![Funny Meme](https://i.redd.it/nanw5a2wo0zb1.png?width=100&height=100)
+* Meme Author: [Killurself4me](https://www.reddit.com/user/Killurself4me/)
 
 
 
