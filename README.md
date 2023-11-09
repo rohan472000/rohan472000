@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/imc0bzer79zb1.jpg?width=100&height=100)
-* Meme Author: [LazarusEffect666](https://www.reddit.com/user/LazarusEffect666/)
+![Funny Meme](https://i.redd.it/tq7r8f0ev0zb1.jpg?width=100&height=100)
+* Meme Author: [SociallyAwkward423](https://www.reddit.com/user/SociallyAwkward423/)
 
 
 
