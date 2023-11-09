@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qjkm2np643zb1.jpg?width=100&height=100)
-* Meme Author: [im_peacock](https://www.reddit.com/user/im_peacock/)
+![Funny Meme](https://i.redd.it/8rjwrk54u5zb1.jpg?width=100&height=100)
+* Meme Author: [AloneIsWhatIHave](https://www.reddit.com/user/AloneIsWhatIHave/)
 
 
 
