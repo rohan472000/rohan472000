@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9okszeoltzyb1.jpg?width=100&height=100)
-* Meme Author: [Octotic](https://www.reddit.com/user/Octotic/)
+![Funny Meme](https://i.redd.it/ohrnbpb4c5zb1.jpg?width=100&height=100)
+* Meme Author: [SB6P897](https://www.reddit.com/user/SB6P897/)
 
 
 
