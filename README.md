@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y48vl4mbm2zb1.jpg?width=100&height=100)
-* Meme Author: [ApolloIII](https://www.reddit.com/user/ApolloIII/)
+![Funny Meme](https://i.redd.it/mkk83qv4g3zb1.jpg?width=100&height=100)
+* Meme Author: [DontAskQuAskAnswers](https://www.reddit.com/user/DontAskQuAskAnswers/)
 
 
 
