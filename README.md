@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tznq6fe0gczb1.jpg?width=100&height=100)
-* Meme Author: [ImNoSir](https://www.reddit.com/user/ImNoSir/)
+![Funny Meme](https://i.redd.it/g3y0x0chk5zb1.jpg?width=100&height=100)
+* Meme Author: [Ego_Sum_Lux_Mundi](https://www.reddit.com/user/Ego_Sum_Lux_Mundi/)
 
 
 
