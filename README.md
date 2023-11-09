@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lcj080naw4zb1.jpg?width=100&height=100)
-* Meme Author: [newbornsquid](https://www.reddit.com/user/newbornsquid/)
+![Funny Meme](https://i.redd.it/kh4zwsh1l1zb1.jpg?width=100&height=100)
+* Meme Author: [thecowgoesree](https://www.reddit.com/user/thecowgoesree/)
 
 
 
