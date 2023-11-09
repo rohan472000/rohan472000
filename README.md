@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2a3asf19ebzb1.png?width=100&height=100)
-* Meme Author: [Puzzled-Mode-4367](https://www.reddit.com/user/Puzzled-Mode-4367/)
+![Funny Meme](https://i.redd.it/0x7nach6i6zb1.jpg?width=100&height=100)
+* Meme Author: [dynami999](https://www.reddit.com/user/dynami999/)
 
 
 
