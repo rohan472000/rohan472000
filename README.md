@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a7fbcigsuwyb1.jpg?width=100&height=100)
-* Meme Author: [Acceptable_Cow_2950](https://www.reddit.com/user/Acceptable_Cow_2950/)
+![Funny Meme](https://i.redd.it/uend5pepk8zb1.jpg?width=100&height=100)
+* Meme Author: [hullopalooza](https://www.reddit.com/user/hullopalooza/)
 
 
 
