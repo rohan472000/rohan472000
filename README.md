@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jmoa366th9zb1.jpg?width=100&height=100)
-* Meme Author: [[deleted]](https://www.reddit.com/user/[deleted]/)
+![Funny Meme](https://i.redd.it/iec1dvx6e5zb1.png?width=100&height=100)
+* Meme Author: [ThePopDaddy](https://www.reddit.com/user/ThePopDaddy/)
 
 
 
