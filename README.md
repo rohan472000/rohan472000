@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rgiushsrn5zb1.jpg?width=100&height=100)
-* Meme Author: [Blackbeard-14](https://www.reddit.com/user/Blackbeard-14/)
+![Funny Meme](https://i.redd.it/g6yx1dob51zb1.jpg?width=100&height=100)
+* Meme Author: [benuito](https://www.reddit.com/user/benuito/)
 
 
 
