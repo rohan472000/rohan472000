@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7edftlg9g8zb1.jpg?width=100&height=100)
-* Meme Author: [realityisgorgeous](https://www.reddit.com/user/realityisgorgeous/)
+![Funny Meme](https://i.redd.it/rgiushsrn5zb1.jpg?width=100&height=100)
+* Meme Author: [Blackbeard-14](https://www.reddit.com/user/Blackbeard-14/)
 
 
 
