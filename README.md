@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/79gh5zr2h6zb1.jpg?width=100&height=100)
-* Meme Author: [dannyday10700](https://www.reddit.com/user/dannyday10700/)
+![Funny Meme](https://i.redd.it/9wi2lgs5e7zb1.jpg?width=100&height=100)
+* Meme Author: [TyYoshi69](https://www.reddit.com/user/TyYoshi69/)
 
 
 
