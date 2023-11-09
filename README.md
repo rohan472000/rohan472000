@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5a4659qqw6zb1.jpg?width=100&height=100)
-* Meme Author: [oofrank](https://www.reddit.com/user/oofrank/)
+![Funny Meme](https://i.redd.it/rvmja22xa7zb1.png?width=100&height=100)
+* Meme Author: [_dzh_admin_](https://www.reddit.com/user/_dzh_admin_/)
 
 
 
