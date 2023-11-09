@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zs3ztg1hqczb1.jpg?width=100&height=100)
-* Meme Author: [MUMB0_F0R_MAY0R](https://www.reddit.com/user/MUMB0_F0R_MAY0R/)
+![Funny Meme](https://i.redd.it/c8ebaslmtdzb1.jpg?width=100&height=100)
+* Meme Author: [potato_hunter21](https://www.reddit.com/user/potato_hunter21/)
 
 
 
