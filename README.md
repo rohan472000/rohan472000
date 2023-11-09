@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ivya7onglczb1.jpg?width=100&height=100)
-* Meme Author: [NoExchange5847](https://www.reddit.com/user/NoExchange5847/)
+![Funny Meme](https://i.redd.it/xxl1fkf4s9zb1.jpg?width=100&height=100)
+* Meme Author: [Due_Negotiation_3505](https://www.reddit.com/user/Due_Negotiation_3505/)
 
 
 
