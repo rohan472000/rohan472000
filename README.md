@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s7ln25eit5zb1.png?width=100&height=100)
-* Meme Author: [TakoFry](https://www.reddit.com/user/TakoFry/)
+![Funny Meme](https://i.redd.it/trp11do4r6zb1.png?width=100&height=100)
+* Meme Author: [carnage-boy](https://www.reddit.com/user/carnage-boy/)
 
 
 
