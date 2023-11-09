@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jlblk62pk5zb1.jpg?width=100&height=100)
-* Meme Author: [hacking__08](https://www.reddit.com/user/hacking__08/)
+![Funny Meme](https://i.redd.it/mj4r20hpj8zb1.png?width=100&height=100)
+* Meme Author: [Crafter235](https://www.reddit.com/user/Crafter235/)
 
 
 
