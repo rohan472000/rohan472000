@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k8j22i02f7zb1.jpg?width=100&height=100)
-* Meme Author: [Im_Mr_Blue](https://www.reddit.com/user/Im_Mr_Blue/)
+![Funny Meme](https://i.redd.it/60sc0cikc5zb1.png?width=100&height=100)
+* Meme Author: [ProfoundNitwit](https://www.reddit.com/user/ProfoundNitwit/)
 
 
 
