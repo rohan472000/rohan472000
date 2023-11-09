@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wk5bijiqfdzb1.jpg?width=100&height=100)
-* Meme Author: [lanze666](https://www.reddit.com/user/lanze666/)
+![Funny Meme](https://i.redd.it/9jj6v19wjczb1.png?width=100&height=100)
+* Meme Author: [FR3Y4_S3L1N4](https://www.reddit.com/user/FR3Y4_S3L1N4/)
 
 
 
