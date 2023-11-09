@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gp9dli4899zb1.jpg?width=100&height=100)
-* Meme Author: [Truth_Hurts_People2](https://www.reddit.com/user/Truth_Hurts_People2/)
+![Funny Meme](https://i.redd.it/lcj080naw4zb1.jpg?width=100&height=100)
+* Meme Author: [newbornsquid](https://www.reddit.com/user/newbornsquid/)
 
 
 
