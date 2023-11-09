@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2d7krjyc11zb1.jpg?width=100&height=100)
-* Meme Author: [uppsak](https://www.reddit.com/user/uppsak/)
+![Funny Meme](https://i.redd.it/trp11do4r6zb1.png?width=100&height=100)
+* Meme Author: [carnage-boy](https://www.reddit.com/user/carnage-boy/)
 
 
 
