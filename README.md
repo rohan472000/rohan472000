@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zu0j5n0gl7zb1.jpg?width=100&height=100)
-* Meme Author: [SterlingB261](https://www.reddit.com/user/SterlingB261/)
+![Funny Meme](https://i.redd.it/7ze2mac5c6zb1.jpg?width=100&height=100)
+* Meme Author: [slothking2602](https://www.reddit.com/user/slothking2602/)
 
 
 
