@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kt5hdlbo72zb1.jpg?width=100&height=100)
-* Meme Author: [damascenarosa](https://www.reddit.com/user/damascenarosa/)
+![Funny Meme](https://i.redd.it/qjkm2np643zb1.jpg?width=100&height=100)
+* Meme Author: [im_peacock](https://www.reddit.com/user/im_peacock/)
 
 
 
