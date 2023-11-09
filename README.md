@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9wi2lgs5e7zb1.jpg?width=100&height=100)
-* Meme Author: [TyYoshi69](https://www.reddit.com/user/TyYoshi69/)
+![Funny Meme](https://i.redd.it/7y9jz9yl44zb1.jpg?width=100&height=100)
+* Meme Author: [KeepertheGreed](https://www.reddit.com/user/KeepertheGreed/)
 
 
 
