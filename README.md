@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5cc8khlmb6zb1.png?width=100&height=100)
-* Meme Author: [Bigg_Dick_Energy](https://www.reddit.com/user/Bigg_Dick_Energy/)
+![Funny Meme](https://i.redd.it/et094ekd45zb1.png?width=100&height=100)
+* Meme Author: [somerandomperson1238](https://www.reddit.com/user/somerandomperson1238/)
 
 
 
