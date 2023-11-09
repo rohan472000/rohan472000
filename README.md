@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4m02mbvmaczb1.jpg?width=100&height=100)
-* Meme Author: [VegetableAdmirable49](https://www.reddit.com/user/VegetableAdmirable49/)
+![Funny Meme](https://i.redd.it/gfy7ezztf8zb1.jpg?width=100&height=100)
+* Meme Author: [chaosgiantmemes](https://www.reddit.com/user/chaosgiantmemes/)
 
 
 
