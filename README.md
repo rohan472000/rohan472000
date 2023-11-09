@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mkk83qv4g3zb1.jpg?width=100&height=100)
-* Meme Author: [DontAskQuAskAnswers](https://www.reddit.com/user/DontAskQuAskAnswers/)
+![Funny Meme](https://i.redd.it/5cc8khlmb6zb1.png?width=100&height=100)
+* Meme Author: [Bigg_Dick_Energy](https://www.reddit.com/user/Bigg_Dick_Energy/)
 
 
 
