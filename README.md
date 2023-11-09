@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d13vaydos2zb1.jpg?width=100&height=100)
-* Meme Author: [KOVEIRA](https://www.reddit.com/user/KOVEIRA/)
+![Funny Meme](https://i.redd.it/am9qklra46zb1.jpg?width=100&height=100)
+* Meme Author: [urNANSfl1pFLOP](https://www.reddit.com/user/urNANSfl1pFLOP/)
 
 
 
