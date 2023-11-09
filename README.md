@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xf688l3jz7zb1.jpg?width=100&height=100)
-* Meme Author: [TheMaybeMan_](https://www.reddit.com/user/TheMaybeMan_/)
+![Funny Meme](https://i.redd.it/epoot92qz8zb1.jpg?width=100&height=100)
+* Meme Author: [A_Weather-Man](https://www.reddit.com/user/A_Weather-Man/)
 
 
 
