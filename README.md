@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mkk83qv4g3zb1.jpg?width=100&height=100)
-* Meme Author: [DontAskQuAskAnswers](https://www.reddit.com/user/DontAskQuAskAnswers/)
+![Funny Meme](https://i.redd.it/0lvzbtzwi2zb1.jpg?width=100&height=100)
+* Meme Author: [Dorcustitanus](https://www.reddit.com/user/Dorcustitanus/)
 
 
 
