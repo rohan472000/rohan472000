@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8rjwrk54u5zb1.jpg?width=100&height=100)
-* Meme Author: [AloneIsWhatIHave](https://www.reddit.com/user/AloneIsWhatIHave/)
+![Funny Meme](https://i.redd.it/l6oxk1mz78zb1.jpg?width=100&height=100)
+* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
 
 
 
