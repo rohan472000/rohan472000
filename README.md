@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tvv7mahqp2zb1.jpg?width=100&height=100)
-* Meme Author: [KnightWhoStruggles](https://www.reddit.com/user/KnightWhoStruggles/)
+![Funny Meme](https://i.redd.it/2kebcw65q5zb1.jpg?width=100&height=100)
+* Meme Author: [nomasjagermeister](https://www.reddit.com/user/nomasjagermeister/)
 
 
 
