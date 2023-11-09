@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r4gsapwer6zb1.png?width=100&height=100)
-* Meme Author: [thunderliscious](https://www.reddit.com/user/thunderliscious/)
+![Funny Meme](https://i.redd.it/t6i3jekvc7zb1.jpg?width=100&height=100)
+* Meme Author: [taiger4791](https://www.reddit.com/user/taiger4791/)
 
 
 
