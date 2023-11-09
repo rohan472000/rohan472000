@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tq7r8f0ev0zb1.jpg?width=100&height=100)
-* Meme Author: [SociallyAwkward423](https://www.reddit.com/user/SociallyAwkward423/)
+![Funny Meme](https://i.redd.it/f2hbmrbl58zb1.jpg?width=100&height=100)
+* Meme Author: [Dankbradley](https://www.reddit.com/user/Dankbradley/)
 
 
 
