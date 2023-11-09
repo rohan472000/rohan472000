@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yfcv3ymdxczb1.jpg?width=100&height=100)
-* Meme Author: [crazyshellheadfan](https://www.reddit.com/user/crazyshellheadfan/)
+![Funny Meme](https://i.redd.it/o4cihrys89zb1.jpg?width=100&height=100)
+* Meme Author: [KOVEIRA](https://www.reddit.com/user/KOVEIRA/)
 
 
 
