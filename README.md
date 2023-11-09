@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rvmja22xa7zb1.png?width=100&height=100)
-* Meme Author: [_dzh_admin_](https://www.reddit.com/user/_dzh_admin_/)
+![Funny Meme](https://i.redd.it/xy5poca8l0zb1.png?width=100&height=100)
+* Meme Author: [IamtheFungusman](https://www.reddit.com/user/IamtheFungusman/)
 
 
 
