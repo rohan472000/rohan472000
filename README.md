@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w12su81xn4zb1.jpg?width=100&height=100)
-* Meme Author: [that_one_netizen](https://www.reddit.com/user/that_one_netizen/)
+![Funny Meme](https://i.redd.it/5a4659qqw6zb1.jpg?width=100&height=100)
+* Meme Author: [oofrank](https://www.reddit.com/user/oofrank/)
 
 
 
