@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3cfst82rh7zb1.jpg?width=100&height=100)
-* Meme Author: [klippo55](https://www.reddit.com/user/klippo55/)
+![Funny Meme](https://i.redd.it/d13vaydos2zb1.jpg?width=100&height=100)
+* Meme Author: [KOVEIRA](https://www.reddit.com/user/KOVEIRA/)
 
 
 
