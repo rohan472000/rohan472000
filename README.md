@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mlwfca05x8zb1.png?width=100&height=100)
-* Meme Author: [Key_Internet7809](https://www.reddit.com/user/Key_Internet7809/)
+![Funny Meme](https://i.redd.it/ypro4ui0pazb1.png?width=100&height=100)
+* Meme Author: [Limp_Abbreviations66](https://www.reddit.com/user/Limp_Abbreviations66/)
 
 
 
