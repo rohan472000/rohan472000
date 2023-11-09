@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/11isbj3vv9zb1.png?width=100&height=100)
-* Meme Author: [indianmemerlegend](https://www.reddit.com/user/indianmemerlegend/)
+![Funny Meme](https://i.redd.it/mlwfca05x8zb1.png?width=100&height=100)
+* Meme Author: [Key_Internet7809](https://www.reddit.com/user/Key_Internet7809/)
 
 
 
