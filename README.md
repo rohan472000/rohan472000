@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uend5pepk8zb1.jpg?width=100&height=100)
-* Meme Author: [hullopalooza](https://www.reddit.com/user/hullopalooza/)
+![Funny Meme](https://i.redd.it/jmoa366th9zb1.jpg?width=100&height=100)
+* Meme Author: [[deleted]](https://www.reddit.com/user/[deleted]/)
 
 
 
