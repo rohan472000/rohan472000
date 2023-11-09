@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ypro4ui0pazb1.png?width=100&height=100)
-* Meme Author: [Limp_Abbreviations66](https://www.reddit.com/user/Limp_Abbreviations66/)
+![Funny Meme](https://i.redd.it/hjtoo1ep88zb1.jpg?width=100&height=100)
+* Meme Author: [JaxAKAAntonioFomby](https://www.reddit.com/user/JaxAKAAntonioFomby/)
 
 
 
