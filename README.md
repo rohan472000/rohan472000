@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/60sc0cikc5zb1.png?width=100&height=100)
-* Meme Author: [ProfoundNitwit](https://www.reddit.com/user/ProfoundNitwit/)
+![Funny Meme](https://i.redd.it/pxak8flqc6zb1.jpg?width=100&height=100)
+* Meme Author: [F-You-Simp](https://www.reddit.com/user/F-You-Simp/)
 
 
 
