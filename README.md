@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ubajv0kst3zb1.jpg?width=100&height=100)
-* Meme Author: [6ftCastle](https://www.reddit.com/user/6ftCastle/)
+![Funny Meme](https://i.redd.it/em4dg0ugp6zb1.png?width=100&height=100)
+* Meme Author: [TheRealLittlestRonin](https://www.reddit.com/user/TheRealLittlestRonin/)
 
 
 
