@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iec1dvx6e5zb1.png?width=100&height=100)
-* Meme Author: [ThePopDaddy](https://www.reddit.com/user/ThePopDaddy/)
+![Funny Meme](https://i.redd.it/1ihajciyx5zb1.jpg?width=100&height=100)
+* Meme Author: [night_wolf1991](https://www.reddit.com/user/night_wolf1991/)
 
 
 
