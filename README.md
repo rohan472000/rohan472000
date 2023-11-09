@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yud6enagzyyb1.jpg?width=100&height=100)
-* Meme Author: [OddRedittor5443](https://www.reddit.com/user/OddRedittor5443/)
+![Funny Meme](https://i.redd.it/9at6d350l5zb1.jpg?width=100&height=100)
+* Meme Author: [Chili919](https://www.reddit.com/user/Chili919/)
 
 
 
