@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f1andhft5gzb1.jpg?width=100&height=100)
-* Meme Author: [Peter_Baum](https://www.reddit.com/user/Peter_Baum/)
+![Funny Meme](https://i.redd.it/g68ou1sd7kzb1.jpg?width=100&height=100)
+* Meme Author: [Available_Reason7795](https://www.reddit.com/user/Available_Reason7795/)
 
 
 
