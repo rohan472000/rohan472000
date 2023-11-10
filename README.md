@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fhwstb1aoczb1.png?width=100&height=100)
-* Meme Author: [Fr3nchT0astCrunch](https://www.reddit.com/user/Fr3nchT0astCrunch/)
+![Funny Meme](https://i.redd.it/k290h6xqpbzb1.jpg?width=100&height=100)
+* Meme Author: [killmarkdead](https://www.reddit.com/user/killmarkdead/)
 
 
 
