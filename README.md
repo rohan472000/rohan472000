@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nwst3k695gzb1.jpg?width=100&height=100)
-* Meme Author: [Cholas88](https://www.reddit.com/user/Cholas88/)
+![Funny Meme](https://i.redd.it/oou3gony48zb1.jpg?width=100&height=100)
+* Meme Author: [_chicken_alfredo_](https://www.reddit.com/user/_chicken_alfredo_/)
 
 
 
