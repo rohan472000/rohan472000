@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rkoar8e9yfzb1.png?width=100&height=100)
-* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
+![Funny Meme](https://i.redd.it/bspgtrbz8czb1.png?width=100&height=100)
+* Meme Author: [Infinite-Revenue97](https://www.reddit.com/user/Infinite-Revenue97/)
 
 
 
