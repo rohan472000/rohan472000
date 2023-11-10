@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g6yx1dob51zb1.jpg?width=100&height=100)
-* Meme Author: [benuito](https://www.reddit.com/user/benuito/)
+![Funny Meme](https://i.redd.it/4xkwgpeum8zb1.jpg?width=100&height=100)
+* Meme Author: [Duzblimpin](https://www.reddit.com/user/Duzblimpin/)
 
 
 
