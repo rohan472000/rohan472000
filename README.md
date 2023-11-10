@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ylb9xzsl4dzb1.jpg?width=100&height=100)
-* Meme Author: [RealCrazyChicken](https://www.reddit.com/user/RealCrazyChicken/)
+![Funny Meme](https://i.redd.it/kus6qkye9jzb1.jpg?width=100&height=100)
+* Meme Author: [SilverNEOTheYouTuber](https://www.reddit.com/user/SilverNEOTheYouTuber/)
 
 
 
