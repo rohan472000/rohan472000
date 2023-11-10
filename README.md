@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8jln8twqt9zb1.jpg?width=100&height=100)
-* Meme Author: [Kekashismask](https://www.reddit.com/user/Kekashismask/)
+![Funny Meme](https://i.redd.it/w487mjuh7hzb1.jpg?width=100&height=100)
+* Meme Author: [karoleks](https://www.reddit.com/user/karoleks/)
 
 
 
