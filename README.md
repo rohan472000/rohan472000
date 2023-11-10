@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c7h1u2bjbgzb1.png?width=100&height=100)
-* Meme Author: [Maxitote](https://www.reddit.com/user/Maxitote/)
+![Funny Meme](https://i.redd.it/qs5x8f2dsjzb1.jpg?width=100&height=100)
+* Meme Author: [SriGurubhyoNamaha](https://www.reddit.com/user/SriGurubhyoNamaha/)
 
 
 
