@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdyv16mxvezb1.jpg?width=100&height=100)
-* Meme Author: [adames3701](https://www.reddit.com/user/adames3701/)
+![Funny Meme](https://i.redd.it/ynyyjz2fhizb1.png?width=100&height=100)
+* Meme Author: [notwormtongue](https://www.reddit.com/user/notwormtongue/)
 
 
 
