@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nbwrvtdui8zb1.png?width=100&height=100)
-* Meme Author: [Additional_Topic_126](https://www.reddit.com/user/Additional_Topic_126/)
+![Funny Meme](https://i.redd.it/rxlihl26gezb1.png?width=100&height=100)
+* Meme Author: [lordsilly](https://www.reddit.com/user/lordsilly/)
 
 
 
