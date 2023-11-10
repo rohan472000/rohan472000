@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qs5x8f2dsjzb1.jpg?width=100&height=100)
-* Meme Author: [SriGurubhyoNamaha](https://www.reddit.com/user/SriGurubhyoNamaha/)
+![Funny Meme](https://i.redd.it/m97hoz68djzb1.jpg?width=100&height=100)
+* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
 
 
 
