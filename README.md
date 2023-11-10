@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3q90u9f0lezb1.png?width=100&height=100)
-* Meme Author: [blue-yoshi](https://www.reddit.com/user/blue-yoshi/)
+![Funny Meme](https://i.redd.it/2bzr0nu3rezb1.jpg?width=100&height=100)
+* Meme Author: [Happykittymeowmeow](https://www.reddit.com/user/Happykittymeowmeow/)
 
 
 
