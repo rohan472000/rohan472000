@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lc0ua1as7ezb1.png?width=100&height=100)
-* Meme Author: [myburningblade](https://www.reddit.com/user/myburningblade/)
+![Funny Meme](https://i.redd.it/2wevvltevdzb1.png?width=100&height=100)
+* Meme Author: [thefrostman1214](https://www.reddit.com/user/thefrostman1214/)
 
 
 
