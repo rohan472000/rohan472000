@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u1r4okvdgbzb1.jpg?width=100&height=100)
-* Meme Author: [UltiGamer34](https://www.reddit.com/user/UltiGamer34/)
+![Funny Meme](https://i.redd.it/flely3whbkzb1.jpg?width=100&height=100)
+* Meme Author: [ThatLasagnaGuy](https://www.reddit.com/user/ThatLasagnaGuy/)
 
 
 
