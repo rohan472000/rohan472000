@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tupiv3kd1kzb1.jpg?width=100&height=100)
-* Meme Author: [venomsnake8519](https://www.reddit.com/user/venomsnake8519/)
+![Funny Meme](https://i.redd.it/enbsr2rnahzb1.jpg?width=100&height=100)
+* Meme Author: [No_Maintenance_8231](https://www.reddit.com/user/No_Maintenance_8231/)
 
 
 
