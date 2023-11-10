@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2rr2t2q0ehzb1.png?width=100&height=100)
-* Meme Author: [performerforhire](https://www.reddit.com/user/performerforhire/)
+![Funny Meme](https://i.redd.it/83nrulpt1lzb1.jpg?width=100&height=100)
+* Meme Author: [KL4645](https://www.reddit.com/user/KL4645/)
 
 
 
