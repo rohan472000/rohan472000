@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ylb9xzsl4dzb1.jpg?width=100&height=100)
-* Meme Author: [RealCrazyChicken](https://www.reddit.com/user/RealCrazyChicken/)
+![Funny Meme](https://i.redd.it/3q90u9f0lezb1.png?width=100&height=100)
+* Meme Author: [blue-yoshi](https://www.reddit.com/user/blue-yoshi/)
 
 
 
