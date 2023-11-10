@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e1d4tmah8dzb1.png?width=100&height=100)
-* Meme Author: [The-LSD-Sheet-Guy](https://www.reddit.com/user/The-LSD-Sheet-Guy/)
+![Funny Meme](https://i.redd.it/lq93o6ci3izb1.jpg?width=100&height=100)
+* Meme Author: [NameTooSmol](https://www.reddit.com/user/NameTooSmol/)
 
 
 
