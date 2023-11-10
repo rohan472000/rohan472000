@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/52ryznawxezb1.jpg?width=100&height=100)
-* Meme Author: [max_feeser1337](https://www.reddit.com/user/max_feeser1337/)
+![Funny Meme](https://i.redd.it/gfy7ezztf8zb1.jpg?width=100&height=100)
+* Meme Author: [chaosgiantmemes](https://www.reddit.com/user/chaosgiantmemes/)
 
 
 
