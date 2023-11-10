@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/79pudteplfzb1.jpg?width=100&height=100)
-* Meme Author: [Chemical-Good-7570](https://www.reddit.com/user/Chemical-Good-7570/)
+![Funny Meme](https://i.redd.it/z0jl0jn0bazb1.png?width=100&height=100)
+* Meme Author: [Andrei22125](https://www.reddit.com/user/Andrei22125/)
 
 
 
