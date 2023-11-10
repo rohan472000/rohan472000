@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ywzt8pey3fzb1.png?width=100&height=100)
-* Meme Author: [Sunnymugz](https://www.reddit.com/user/Sunnymugz/)
+![Funny Meme](https://i.redd.it/825nrjsgqbzb1.png?width=100&height=100)
+* Meme Author: [GarlicOk2904](https://www.reddit.com/user/GarlicOk2904/)
 
 
 
