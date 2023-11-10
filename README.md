@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bspgtrbz8czb1.png?width=100&height=100)
-* Meme Author: [Infinite-Revenue97](https://www.reddit.com/user/Infinite-Revenue97/)
+![Funny Meme](https://i.redd.it/fhwstb1aoczb1.png?width=100&height=100)
+* Meme Author: [Fr3nchT0astCrunch](https://www.reddit.com/user/Fr3nchT0astCrunch/)
 
 
 
