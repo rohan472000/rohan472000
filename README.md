@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4660m57l9izb1.jpg?width=100&height=100)
-* Meme Author: [Theodore_Buckland_](https://www.reddit.com/user/Theodore_Buckland_/)
+![Funny Meme](https://i.redd.it/25i8kct9xjzb1.png?width=100&height=100)
+* Meme Author: [redditordeaditor6789](https://www.reddit.com/user/redditordeaditor6789/)
 
 
 
