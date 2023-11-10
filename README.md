@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oou3gony48zb1.jpg?width=100&height=100)
-* Meme Author: [_chicken_alfredo_](https://www.reddit.com/user/_chicken_alfredo_/)
+![Funny Meme](https://i.redd.it/rkoar8e9yfzb1.png?width=100&height=100)
+* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
 
 
 
