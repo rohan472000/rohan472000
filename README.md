@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q3ws4xzz78zb1.jpg?width=100&height=100)
-* Meme Author: [AtomicPickles92](https://www.reddit.com/user/AtomicPickles92/)
+![Funny Meme](https://i.redd.it/wu8b512dr9zb1.png?width=100&height=100)
+* Meme Author: [just_holdme](https://www.reddit.com/user/just_holdme/)
 
 
 
