@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w487mjuh7hzb1.jpg?width=100&height=100)
-* Meme Author: [karoleks](https://www.reddit.com/user/karoleks/)
+![Funny Meme](https://i.redd.it/oi9r5ocmgdzb1.jpg?width=100&height=100)
+* Meme Author: [TotoMacFrame](https://www.reddit.com/user/TotoMacFrame/)
 
 
 
