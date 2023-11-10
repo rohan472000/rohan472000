@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdyv16mxvezb1.jpg?width=100&height=100)
-* Meme Author: [adames3701](https://www.reddit.com/user/adames3701/)
+![Funny Meme](https://i.redd.it/i0t4ierezezb1.jpg?width=100&height=100)
+* Meme Author: [salkin_reslif_97](https://www.reddit.com/user/salkin_reslif_97/)
 
 
 
