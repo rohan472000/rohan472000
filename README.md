@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rwmtk04wpbzb1.jpg?width=100&height=100)
-* Meme Author: [ThatLonelyRock](https://www.reddit.com/user/ThatLonelyRock/)
+![Funny Meme](https://i.redd.it/ywhugyv1o9zb1.jpg?width=100&height=100)
+* Meme Author: [jimmyapril19](https://www.reddit.com/user/jimmyapril19/)
 
 
 
