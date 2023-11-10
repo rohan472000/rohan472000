@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z0jl0jn0bazb1.png?width=100&height=100)
-* Meme Author: [Andrei22125](https://www.reddit.com/user/Andrei22125/)
+![Funny Meme](https://i.redd.it/lahyyfd1hfzb1.jpg?width=100&height=100)
+* Meme Author: [NoExchange5847](https://www.reddit.com/user/NoExchange5847/)
 
 
 
