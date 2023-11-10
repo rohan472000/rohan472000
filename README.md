@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/YvxQGKv.jpg?width=100&height=100)
-* Meme Author: [QuicklyThisWay](https://www.reddit.com/user/QuicklyThisWay/)
+![Funny Meme](https://i.redd.it/mtjl8qjme7zb1.jpg?width=100&height=100)
+* Meme Author: [TigerKing29](https://www.reddit.com/user/TigerKing29/)
 
 
 
