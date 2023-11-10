@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5bjj3kiv4izb1.jpg?width=100&height=100)
-* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
+![Funny Meme](https://i.redd.it/akgd5lumjjzb1.jpg?width=100&height=100)
+* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
 
 
 
