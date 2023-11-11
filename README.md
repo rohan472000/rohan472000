@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c8nevv4m4qzb1.jpg?width=100&height=100)
-* Meme Author: [Masterplayer9870](https://www.reddit.com/user/Masterplayer9870/)
+![Funny Meme](https://i.redd.it/ws92l26p6mzb1.png?width=100&height=100)
+* Meme Author: [Present-Economy9315](https://www.reddit.com/user/Present-Economy9315/)
 
 
 
