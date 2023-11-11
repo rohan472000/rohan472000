@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/306rf3uiwgzb1.jpg?width=100&height=100)
-* Meme Author: [Lord-Of-Ghouls](https://www.reddit.com/user/Lord-Of-Ghouls/)
+![Funny Meme](https://i.redd.it/cs1l1bdielzb1.jpg?width=100&height=100)
+* Meme Author: [TheMaybeMan_](https://www.reddit.com/user/TheMaybeMan_/)
 
 
 
