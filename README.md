@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdyv16mxvezb1.jpg?width=100&height=100)
-* Meme Author: [adames3701](https://www.reddit.com/user/adames3701/)
+![Funny Meme](https://i.redd.it/ir97zv91flzb1.jpg?width=100&height=100)
+* Meme Author: [Aromatic-Union6080](https://www.reddit.com/user/Aromatic-Union6080/)
 
 
 
