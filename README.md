@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/umexjqpg8pzb1.jpg?width=100&height=100)
-* Meme Author: [NoExchange5847](https://www.reddit.com/user/NoExchange5847/)
+![Funny Meme](https://i.redd.it/bum64uir4lzb1.jpg?width=100&height=100)
+* Meme Author: [ClairvoyantSky](https://www.reddit.com/user/ClairvoyantSky/)
 
 
 
