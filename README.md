@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g123s5nt0kzb1.jpg?width=100&height=100)
-* Meme Author: [MilkTheButter](https://www.reddit.com/user/MilkTheButter/)
+![Funny Meme](https://i.redd.it/p07j9di87izb1.jpg?width=100&height=100)
+* Meme Author: [BadKarma-18](https://www.reddit.com/user/BadKarma-18/)
 
 
 
