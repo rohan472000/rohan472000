@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s1cmde0x6kzb1.jpg?width=100&height=100)
-* Meme Author: [DwightKSchnute](https://www.reddit.com/user/DwightKSchnute/)
+![Funny Meme](https://i.redd.it/ivux1ktzmlzb1.jpg?width=100&height=100)
+* Meme Author: [Winston_Duarte](https://www.reddit.com/user/Winston_Duarte/)
 
 
 
