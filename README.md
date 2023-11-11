@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6s4xhetgjrzb1.jpg?width=100&height=100)
-* Meme Author: [PapaJaundice](https://www.reddit.com/user/PapaJaundice/)
+![Funny Meme](https://i.redd.it/2c8egqeg9kzb1.jpg?width=100&height=100)
+* Meme Author: [TheRealOcsiban](https://www.reddit.com/user/TheRealOcsiban/)
 
 
 
