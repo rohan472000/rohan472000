@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f1andhft5gzb1.jpg?width=100&height=100)
-* Meme Author: [Peter_Baum](https://www.reddit.com/user/Peter_Baum/)
+![Funny Meme](https://i.redd.it/av3mlwftljzb1.jpg?width=100&height=100)
+* Meme Author: [drizztandgwen](https://www.reddit.com/user/drizztandgwen/)
 
 
 
