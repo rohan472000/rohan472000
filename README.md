@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/03lh156lxlzb1.png?width=100&height=100)
-* Meme Author: [19DucksInAWolfSuit](https://www.reddit.com/user/19DucksInAWolfSuit/)
+![Funny Meme](https://i.redd.it/1bjqk24lbmzb1.jpg?width=100&height=100)
+* Meme Author: [LeSeegurke](https://www.reddit.com/user/LeSeegurke/)
 
 
 
