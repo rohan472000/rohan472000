@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ivux1ktzmlzb1.jpg?width=100&height=100)
-* Meme Author: [Winston_Duarte](https://www.reddit.com/user/Winston_Duarte/)
+![Funny Meme](https://i.redd.it/tbqwlq9ofnzb1.jpg?width=100&height=100)
+* Meme Author: [1997D190P](https://www.reddit.com/user/1997D190P/)
 
 
 
