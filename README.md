@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r293vlqtypzb1.jpg?width=100&height=100)
-* Meme Author: [TinnyWOLF307](https://www.reddit.com/user/TinnyWOLF307/)
+![Funny Meme](https://i.redd.it/mnjh0htsqozb1.jpg?width=100&height=100)
+* Meme Author: [FavoriteInstrument](https://www.reddit.com/user/FavoriteInstrument/)
 
 
 
