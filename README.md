@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0ihelrea8qzb1.png?width=100&height=100)
-* Meme Author: [Margaret906](https://www.reddit.com/user/Margaret906/)
+![Funny Meme](https://i.redd.it/yc9og5x4gjzb1.jpg?width=100&height=100)
+* Meme Author: [AmericanVirgin](https://www.reddit.com/user/AmericanVirgin/)
 
 
 
