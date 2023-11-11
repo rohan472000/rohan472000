@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/da08e0wa6mzb1.jpg?width=100&height=100)
-* Meme Author: [ToufikSartana](https://www.reddit.com/user/ToufikSartana/)
+![Funny Meme](https://i.redd.it/9nmoby43kizb1.png?width=100&height=100)
+* Meme Author: [PurpleBoltRevived](https://www.reddit.com/user/PurpleBoltRevived/)
 
 
 
