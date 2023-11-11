@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cawhz4b5fqzb1.jpg?width=100&height=100)
-* Meme Author: [off-a-cough](https://www.reddit.com/user/off-a-cough/)
+![Funny Meme](https://i.redd.it/rdyv16mxvezb1.jpg?width=100&height=100)
+* Meme Author: [adames3701](https://www.reddit.com/user/adames3701/)
 
 
 
