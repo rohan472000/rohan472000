@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c44qa6y99lzb1.png?width=100&height=100)
-* Meme Author: [Mrf9312](https://www.reddit.com/user/Mrf9312/)
+![Funny Meme](https://i.redd.it/d4b3ogomnfzb1.jpg?width=100&height=100)
+* Meme Author: [workflirt](https://www.reddit.com/user/workflirt/)
 
 
 
