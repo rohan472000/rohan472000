@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z24qzmeo3kzb1.jpg?width=100&height=100)
-* Meme Author: [Arcade-98](https://www.reddit.com/user/Arcade-98/)
+![Funny Meme](https://i.redd.it/ziksry5ahgzb1.png?width=100&height=100)
+* Meme Author: [Crafter235](https://www.reddit.com/user/Crafter235/)
 
 
 
