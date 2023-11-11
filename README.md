@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ta9fdv6jpmzb1.jpg?width=100&height=100)
-* Meme Author: [SensingWorms](https://www.reddit.com/user/SensingWorms/)
+![Funny Meme](https://i.redd.it/gzaghv5pjrzb1.jpg?width=100&height=100)
+* Meme Author: [LemonConnoiseur](https://www.reddit.com/user/LemonConnoiseur/)
 
 
 
