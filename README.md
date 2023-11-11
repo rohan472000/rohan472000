@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nlk779tszlzb1.jpg?width=100&height=100)
-* Meme Author: [drakens6](https://www.reddit.com/user/drakens6/)
+![Funny Meme](https://i.redd.it/9v1o2t5tglzb1.jpg?width=100&height=100)
+* Meme Author: [hell_yes_or_BS](https://www.reddit.com/user/hell_yes_or_BS/)
 
 
 
