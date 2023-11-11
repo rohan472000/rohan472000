@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uakbck6mglzb1.jpg?width=100&height=100)
-* Meme Author: [WildZero138](https://www.reddit.com/user/WildZero138/)
+![Funny Meme](https://i.redd.it/zgp2tgfg2jzb1.jpg?width=100&height=100)
+* Meme Author: [20Akif](https://www.reddit.com/user/20Akif/)
 
 
 
