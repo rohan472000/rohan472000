@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9q0h8rcnhczb1.png?width=100&height=100)
-* Meme Author: [Cheryl_cant_think](https://www.reddit.com/user/Cheryl_cant_think/)
+![Funny Meme](https://i.redd.it/ta8idd9j3pzb1.png?width=100&height=100)
+* Meme Author: [konosapi](https://www.reddit.com/user/konosapi/)
 
 
 
