@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5o1x5pec9izb1.png?width=100&height=100)
-* Meme Author: [AgentNOVGC](https://www.reddit.com/user/AgentNOVGC/)
+![Funny Meme](https://i.redd.it/gcnnf2jgcqzb1.png?width=100&height=100)
+* Meme Author: [thearroyotoad](https://www.reddit.com/user/thearroyotoad/)
 
 
 
