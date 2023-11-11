@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7pqe5s93cmzb1.jpg?width=100&height=100)
-* Meme Author: [MattyRobsDW](https://www.reddit.com/user/MattyRobsDW/)
+![Funny Meme](https://i.redd.it/4uo3pi5zakzb1.png?width=100&height=100)
+* Meme Author: [Judah_Earl](https://www.reddit.com/user/Judah_Earl/)
 
 
 
