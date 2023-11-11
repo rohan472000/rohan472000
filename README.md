@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zgp2tgfg2jzb1.jpg?width=100&height=100)
-* Meme Author: [20Akif](https://www.reddit.com/user/20Akif/)
+![Funny Meme](https://i.redd.it/vi1jkz80yqzb1.jpg?width=100&height=100)
+* Meme Author: [Aussie_Meningitis](https://www.reddit.com/user/Aussie_Meningitis/)
 
 
 
