@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uwtrz8jbbrzb1.jpg?width=100&height=100)
-* Meme Author: [MythicalKaos](https://www.reddit.com/user/MythicalKaos/)
+![Funny Meme](https://i.redd.it/vdbjmp7zsjzb1.jpg?width=100&height=100)
+* Meme Author: [danny_divillo](https://www.reddit.com/user/danny_divillo/)
 
 
 
