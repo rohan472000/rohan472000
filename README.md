@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n3hfzmud1jzb1.jpg?width=100&height=100)
-* Meme Author: [Due_Negotiation_3505](https://www.reddit.com/user/Due_Negotiation_3505/)
+![Funny Meme](https://i.redd.it/xzxpyknrvmzb1.jpg?width=100&height=100)
+* Meme Author: [HugeTrol](https://www.reddit.com/user/HugeTrol/)
 
 
 
