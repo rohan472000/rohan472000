@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dx5nbgpl1pzb1.jpg?width=100&height=100)
-* Meme Author: [Emotional-Sea9384](https://www.reddit.com/user/Emotional-Sea9384/)
+![Funny Meme](https://i.redd.it/2n88j4yw1kzb1.jpg?width=100&height=100)
+* Meme Author: [Billyysdu](https://www.reddit.com/user/Billyysdu/)
 
 
 
