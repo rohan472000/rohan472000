@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ws92l26p6mzb1.png?width=100&height=100)
-* Meme Author: [Present-Economy9315](https://www.reddit.com/user/Present-Economy9315/)
+![Funny Meme](https://i.redd.it/cawhz4b5fqzb1.jpg?width=100&height=100)
+* Meme Author: [off-a-cough](https://www.reddit.com/user/off-a-cough/)
 
 
 
