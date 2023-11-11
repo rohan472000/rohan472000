@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bum64uir4lzb1.jpg?width=100&height=100)
-* Meme Author: [ClairvoyantSky](https://www.reddit.com/user/ClairvoyantSky/)
+![Funny Meme](https://i.redd.it/e4ed6kqasnzb1.jpg?width=100&height=100)
+* Meme Author: [RoJoPlayz](https://www.reddit.com/user/RoJoPlayz/)
 
 
 
