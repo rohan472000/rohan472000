@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g13s8jhappzb1.jpg?width=100&height=100)
-* Meme Author: [rabbitsdiedaily](https://www.reddit.com/user/rabbitsdiedaily/)
+![Funny Meme](https://i.redd.it/r293vlqtypzb1.jpg?width=100&height=100)
+* Meme Author: [TinnyWOLF307](https://www.reddit.com/user/TinnyWOLF307/)
 
 
 
