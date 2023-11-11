@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uxxheyw10rzb1.jpg?width=100&height=100)
-* Meme Author: [Freddi_47](https://www.reddit.com/user/Freddi_47/)
+![Funny Meme](https://i.redd.it/59n9ichf0ezb1.jpg?width=100&height=100)
+* Meme Author: [OnyxAndStormy](https://www.reddit.com/user/OnyxAndStormy/)
 
 
 
