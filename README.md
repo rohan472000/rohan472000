@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2c8egqeg9kzb1.jpg?width=100&height=100)
-* Meme Author: [TheRealOcsiban](https://www.reddit.com/user/TheRealOcsiban/)
+![Funny Meme](https://i.redd.it/uwtrz8jbbrzb1.jpg?width=100&height=100)
+* Meme Author: [MythicalKaos](https://www.reddit.com/user/MythicalKaos/)
 
 
 
