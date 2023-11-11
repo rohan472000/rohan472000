@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wkmlzgklgnzb1.png?width=100&height=100)
-* Meme Author: [Themusicison](https://www.reddit.com/user/Themusicison/)
+![Funny Meme](https://i.redd.it/8bejbrxopkzb1.jpg?width=100&height=100)
+* Meme Author: [Superb-Feedback9055](https://www.reddit.com/user/Superb-Feedback9055/)
 
 
 
