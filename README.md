@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c74shbn27qzb1.png?width=100&height=100)
-* Meme Author: [Legospacememe](https://www.reddit.com/user/Legospacememe/)
+![Funny Meme](https://i.redd.it/uxxheyw10rzb1.jpg?width=100&height=100)
+* Meme Author: [Freddi_47](https://www.reddit.com/user/Freddi_47/)
 
 
 
