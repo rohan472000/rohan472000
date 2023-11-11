@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/31wy6uewlgzb1.jpg?width=100&height=100)
-* Meme Author: [Delicious_Hospital_9](https://www.reddit.com/user/Delicious_Hospital_9/)
+![Funny Meme](https://i.redd.it/14ye3zvujizb1.jpg?width=100&height=100)
+* Meme Author: [thethreateninggeek](https://www.reddit.com/user/thethreateninggeek/)
 
 
 
