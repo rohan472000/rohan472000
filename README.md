@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ucuxxyb0vmzb1.jpg?width=100&height=100)
-* Meme Author: [Facepalm-Cringe](https://www.reddit.com/user/Facepalm-Cringe/)
+![Funny Meme](https://i.redd.it/0ihelrea8qzb1.png?width=100&height=100)
+* Meme Author: [Margaret906](https://www.reddit.com/user/Margaret906/)
 
 
 
