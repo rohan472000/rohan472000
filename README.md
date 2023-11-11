@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d4b3ogomnfzb1.jpg?width=100&height=100)
-* Meme Author: [workflirt](https://www.reddit.com/user/workflirt/)
+![Funny Meme](https://i.redd.it/wc5an8nsrizb1.jpg?width=100&height=100)
+* Meme Author: [potato_hunter21](https://www.reddit.com/user/potato_hunter21/)
 
 
 
