@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g13s8jhappzb1.jpg?width=100&height=100)
-* Meme Author: [rabbitsdiedaily](https://www.reddit.com/user/rabbitsdiedaily/)
+![Funny Meme](https://i.imgur.com/W4rzNiQ.jpeg?width=100&height=100)
+* Meme Author: [artemismilkman](https://www.reddit.com/user/artemismilkman/)
 
 
 
