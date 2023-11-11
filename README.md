@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3p5lzpff2ozb1.jpg?width=100&height=100)
-* Meme Author: [Super_M_Ray](https://www.reddit.com/user/Super_M_Ray/)
+![Funny Meme](https://i.redd.it/kb5vw56t2ozb1.jpeg?width=100&height=100)
+* Meme Author: [CallMeAlexSohan](https://www.reddit.com/user/CallMeAlexSohan/)
 
 
 
