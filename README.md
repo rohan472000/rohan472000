@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/859gnb.jpg?width=100&height=100)
-* Meme Author: [AuroraGlow675](https://www.reddit.com/user/AuroraGlow675/)
+![Funny Meme](https://i.redd.it/kb5vw56t2ozb1.jpeg?width=100&height=100)
+* Meme Author: [CallMeAlexSohan](https://www.reddit.com/user/CallMeAlexSohan/)
 
 
 
