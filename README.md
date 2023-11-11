@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9nmoby43kizb1.png?width=100&height=100)
-* Meme Author: [PurpleBoltRevived](https://www.reddit.com/user/PurpleBoltRevived/)
+![Funny Meme](https://i.redd.it/ws92l26p6mzb1.png?width=100&height=100)
+* Meme Author: [Present-Economy9315](https://www.reddit.com/user/Present-Economy9315/)
 
 
 
