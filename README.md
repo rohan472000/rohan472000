@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hwqv38smifzb1.jpg?width=100&height=100)
-* Meme Author: [mallolike](https://www.reddit.com/user/mallolike/)
+![Funny Meme](https://i.redd.it/s1fs5r58zdzb1.jpg?width=100&height=100)
+* Meme Author: [damascenarosa](https://www.reddit.com/user/damascenarosa/)
 
 
 
