@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3kffwdo6pszb1.jpg?width=100&height=100)
-* Meme Author: [CHARLIE-MF-BROWN](https://www.reddit.com/user/CHARLIE-MF-BROWN/)
+![Funny Meme](https://i.redd.it/6t55h4tb9kzb1.png?width=100&height=100)
+* Meme Author: [ClaireDacloush](https://www.reddit.com/user/ClaireDacloush/)
 
 
 
