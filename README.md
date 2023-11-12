@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l4hpakpxbrzb1.png?width=100&height=100)
-* Meme Author: [simagus](https://www.reddit.com/user/simagus/)
+![Funny Meme](https://i.redd.it/ovexyzy0kuzb1.png?width=100&height=100)
+* Meme Author: [findcureforautism](https://www.reddit.com/user/findcureforautism/)
 
 
 
