@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f608yxvammzb1.jpg?width=100&height=100)
-* Meme Author: [RyantheSithLord](https://www.reddit.com/user/RyantheSithLord/)
+![Funny Meme](https://i.redd.it/byzz49t31qzb1.jpg?width=100&height=100)
+* Meme Author: [Aruiaruishas](https://www.reddit.com/user/Aruiaruishas/)
 
 
 
