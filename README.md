@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wz9b6izcilzb1.jpg?width=100&height=100)
-* Meme Author: [hell_yes_or_BS](https://www.reddit.com/user/hell_yes_or_BS/)
+![Funny Meme](https://i.redd.it/5hmdkhwgsnzb1.jpg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
