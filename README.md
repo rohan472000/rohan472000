@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eoigzuzifuzb1.jpg?width=100&height=100)
-* Meme Author: [Expert_Camel5619](https://www.reddit.com/user/Expert_Camel5619/)
+![Funny Meme](https://i.redd.it/h7zo1sbzzpzb1.jpg?width=100&height=100)
+* Meme Author: [EnvySugarCover](https://www.reddit.com/user/EnvySugarCover/)
 
 
 
