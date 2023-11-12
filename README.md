@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f7yoqte1hyzb1.jpg?width=100&height=100)
-* Meme Author: [AnimeIsMyLifeAndSoul](https://www.reddit.com/user/AnimeIsMyLifeAndSoul/)
+![Funny Meme](https://i.redd.it/uzflln926yzb1.jpg?width=100&height=100)
+* Meme Author: [Expert_Camel5619](https://www.reddit.com/user/Expert_Camel5619/)
 
 
 
