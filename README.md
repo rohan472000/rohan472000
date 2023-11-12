@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eddtn4dgorzb1.jpg?width=100&height=100)
-* Meme Author: [TheCobrateKid2](https://www.reddit.com/user/TheCobrateKid2/)
+![Funny Meme](https://i.redd.it/fc2eo39m5yzb1.jpg?width=100&height=100)
+* Meme Author: [SomeGuylulul](https://www.reddit.com/user/SomeGuylulul/)
 
 
 
