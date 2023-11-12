@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sow2j216iuzb1.png?width=100&height=100)
-* Meme Author: [GreenFeather19991](https://www.reddit.com/user/GreenFeather19991/)
+![Funny Meme](https://i.redd.it/whl2jdrw9tzb1.jpg?width=100&height=100)
+* Meme Author: [pandorabox1995](https://www.reddit.com/user/pandorabox1995/)
 
 
 
