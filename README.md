@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l1kfucpfnnzb1.jpg?width=100&height=100)
-* Meme Author: [SpecialistPossible44](https://www.reddit.com/user/SpecialistPossible44/)
+![Funny Meme](https://i.redd.it/zoodeljc9qzb1.jpg?width=100&height=100)
+* Meme Author: [Elijah_Dizzle](https://www.reddit.com/user/Elijah_Dizzle/)
 
 
 
