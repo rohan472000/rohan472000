@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aq59rwgvwlzb1.jpg?width=100&height=100)
-* Meme Author: [Mech_Mech](https://www.reddit.com/user/Mech_Mech/)
+![Funny Meme](https://i.redd.it/lja0o61bpqzb1.jpg?width=100&height=100)
+* Meme Author: [Makeitstopgoshdarnit](https://www.reddit.com/user/Makeitstopgoshdarnit/)
 
 
 
