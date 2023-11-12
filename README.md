@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ruy61jpy1vzb1.jpg?width=100&height=100)
-* Meme Author: [Joe-_-King](https://www.reddit.com/user/Joe-_-King/)
+![Funny Meme](https://i.redd.it/83g06qcepszb1.jpg?width=100&height=100)
+* Meme Author: [Gawkams_Razor](https://www.reddit.com/user/Gawkams_Razor/)
 
 
 
