@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eix7mkm5upzb1.jpg?width=100&height=100)
-* Meme Author: [Key-Expert-7297](https://www.reddit.com/user/Key-Expert-7297/)
+![Funny Meme](https://i.redd.it/djaph3kgyozb1.jpg?width=100&height=100)
+* Meme Author: [Lord_Detleff1](https://www.reddit.com/user/Lord_Detleff1/)
 
 
 
