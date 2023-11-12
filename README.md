@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bbpc2ehh3qzb1.jpg?width=100&height=100)
-* Meme Author: [BIazry](https://www.reddit.com/user/BIazry/)
+![Funny Meme](https://i.redd.it/hyyq3r0bzrzb1.jpg?width=100&height=100)
+* Meme Author: [hollopurple](https://www.reddit.com/user/hollopurple/)
 
 
 
