@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/byzz49t31qzb1.jpg?width=100&height=100)
-* Meme Author: [Aruiaruishas](https://www.reddit.com/user/Aruiaruishas/)
+![Funny Meme](https://i.redd.it/ula4boqgypzb1.jpg?width=100&height=100)
+* Meme Author: [Large-Wheel-4181](https://www.reddit.com/user/Large-Wheel-4181/)
 
 
 
