@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1pszsmzcigzb1.jpg?width=100&height=100)
-* Meme Author: [3psilon9](https://www.reddit.com/user/3psilon9/)
+![Funny Meme](https://i.redd.it/4umyp701irzb1.jpg?width=100&height=100)
+* Meme Author: [plodeer](https://www.reddit.com/user/plodeer/)
 
 
 
