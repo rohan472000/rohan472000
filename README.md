@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iu10a24q8rzb1.png?width=100&height=100)
-* Meme Author: [Jurassic-Terminator](https://www.reddit.com/user/Jurassic-Terminator/)
+![Funny Meme](https://i.redd.it/urfwdgkontzb1.jpg?width=100&height=100)
+* Meme Author: [NameTooSmol](https://www.reddit.com/user/NameTooSmol/)
 
 
 
