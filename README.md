@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pgg20x2zdvzb1.png?width=100&height=100)
-* Meme Author: [VPM1991](https://www.reddit.com/user/VPM1991/)
+![Funny Meme](https://i.redd.it/2awhi24n7yzb1.jpg?width=100&height=100)
+* Meme Author: [Top-Aside-1881](https://www.reddit.com/user/Top-Aside-1881/)
 
 
 
