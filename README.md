@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i07tvjfa2tzb1.png?width=100&height=100)
-* Meme Author: [Plastic_Mess_9827](https://www.reddit.com/user/Plastic_Mess_9827/)
+![Funny Meme](https://i.redd.it/7rs8hf4w6szb1.png?width=100&height=100)
+* Meme Author: [Legomarioboy08](https://www.reddit.com/user/Legomarioboy08/)
 
 
 
