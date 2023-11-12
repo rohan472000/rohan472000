@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e4ed6kqasnzb1.jpg?width=100&height=100)
-* Meme Author: [RoJoPlayz](https://www.reddit.com/user/RoJoPlayz/)
+![Funny Meme](https://i.redd.it/66tf3b3lzuzb1.jpg?width=100&height=100)
+* Meme Author: [slothking2602](https://www.reddit.com/user/slothking2602/)
 
 
 
