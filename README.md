@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z4xprsjixqzb1.jpg?width=100&height=100)
-* Meme Author: [True_Failiure](https://www.reddit.com/user/True_Failiure/)
+![Funny Meme](https://i.redd.it/urfwdgkontzb1.jpg?width=100&height=100)
+* Meme Author: [NameTooSmol](https://www.reddit.com/user/NameTooSmol/)
 
 
 
