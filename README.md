@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ovexyzy0kuzb1.png?width=100&height=100)
-* Meme Author: [findcureforautism](https://www.reddit.com/user/findcureforautism/)
+![Funny Meme](https://i.redd.it/j2yafz749rzb1.jpg?width=100&height=100)
+* Meme Author: [Waitingforlunch](https://www.reddit.com/user/Waitingforlunch/)
 
 
 
