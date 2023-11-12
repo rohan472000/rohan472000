@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7zvjckfmorzb1.png?width=100&height=100)
-* Meme Author: [Koolblue57](https://www.reddit.com/user/Koolblue57/)
+![Funny Meme](https://i.redd.it/sbbzh3do3lzb1.jpg?width=100&height=100)
+* Meme Author: [dnewma04](https://www.reddit.com/user/dnewma04/)
 
 
 
