@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/liqn5faobrzb1.jpg?width=100&height=100)
-* Meme Author: [Makeitstopgoshdarnit](https://www.reddit.com/user/Makeitstopgoshdarnit/)
+![Funny Meme](https://i.redd.it/j836ynv1fvzb1.png?width=100&height=100)
+* Meme Author: [_IliaD](https://www.reddit.com/user/_IliaD/)
 
 
 
