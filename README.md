@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ylmwqv2t6rzb1.jpg?width=100&height=100)
-* Meme Author: [Kommunikationsgesetz](https://www.reddit.com/user/Kommunikationsgesetz/)
+![Funny Meme](https://i.redd.it/jrfjghncnlzb1.png?width=100&height=100)
+* Meme Author: [cracken96](https://www.reddit.com/user/cracken96/)
 
 
 
