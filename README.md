@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/blsku6o3mpzb1.jpg?width=100&height=100)
-* Meme Author: [It_hurtsss](https://www.reddit.com/user/It_hurtsss/)
+![Funny Meme](https://i.redd.it/0oyz3vtahpzb1.png?width=100&height=100)
+* Meme Author: [GlitteringTone6425](https://www.reddit.com/user/GlitteringTone6425/)
 
 
 
