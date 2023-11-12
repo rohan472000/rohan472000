@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0quacxkvpuzb1.jpg?width=100&height=100)
-* Meme Author: [SpaceLee5000](https://www.reddit.com/user/SpaceLee5000/)
+![Funny Meme](https://i.redd.it/blsku6o3mpzb1.jpg?width=100&height=100)
+* Meme Author: [It_hurtsss](https://www.reddit.com/user/It_hurtsss/)
 
 
 
