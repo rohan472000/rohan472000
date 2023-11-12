@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ksa09s1q2rzb1.jpg?width=100&height=100)
-* Meme Author: [Nanaue7](https://www.reddit.com/user/Nanaue7/)
+![Funny Meme](https://i.redd.it/rt0wohjhmmzb1.jpg?width=100&height=100)
+* Meme Author: [Pharah_is_my_waIfu](https://www.reddit.com/user/Pharah_is_my_waIfu/)
 
 
 
