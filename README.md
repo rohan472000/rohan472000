@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mnjh0htsqozb1.jpg?width=100&height=100)
-* Meme Author: [FavoriteInstrument](https://www.reddit.com/user/FavoriteInstrument/)
+![Funny Meme](https://i.redd.it/95lw4np5rrzb1.jpg?width=100&height=100)
+* Meme Author: [gamerguy287](https://www.reddit.com/user/gamerguy287/)
 
 
 
