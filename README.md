@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0gd8ti4xjtzb1.jpg?width=100&height=100)
-* Meme Author: [Danielbbq](https://www.reddit.com/user/Danielbbq/)
+![Funny Meme](https://i.redd.it/whl2jdrw9tzb1.jpg?width=100&height=100)
+* Meme Author: [pandorabox1995](https://www.reddit.com/user/pandorabox1995/)
 
 
 
