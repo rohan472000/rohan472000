@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/le9rhyv48xzb1.png?width=100&height=100)
-* Meme Author: [Barbastorpia](https://www.reddit.com/user/Barbastorpia/)
+![Funny Meme](https://i.redd.it/cvm3fymn1yzb1.jpg?width=100&height=100)
+* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
 
 
 
