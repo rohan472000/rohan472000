@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jrfjghncnlzb1.png?width=100&height=100)
-* Meme Author: [cracken96](https://www.reddit.com/user/cracken96/)
+![Funny Meme](https://i.redd.it/96uqis533qzb1.jpg?width=100&height=100)
+* Meme Author: [B5Scheuert](https://www.reddit.com/user/B5Scheuert/)
 
 
 
