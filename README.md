@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jawpnpbo5uzb1.jpg?width=100&height=100)
-* Meme Author: [wetbeef10](https://www.reddit.com/user/wetbeef10/)
+![Funny Meme](https://i.redd.it/65951wyb8vzb1.jpg?width=100&height=100)
+* Meme Author: [maestrozeldafan](https://www.reddit.com/user/maestrozeldafan/)
 
 
 
