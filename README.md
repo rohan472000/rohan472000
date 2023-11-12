@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gfkl2a1i3uzb1.png?width=100&height=100)
-* Meme Author: [1997D190P](https://www.reddit.com/user/1997D190P/)
+![Funny Meme](https://i.redd.it/4jxri4sxorzb1.jpg?width=100&height=100)
+* Meme Author: [theunknown_master](https://www.reddit.com/user/theunknown_master/)
 
 
 
