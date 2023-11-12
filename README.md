@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/83g06qcepszb1.jpg?width=100&height=100)
-* Meme Author: [Gawkams_Razor](https://www.reddit.com/user/Gawkams_Razor/)
+![Funny Meme](https://i.redd.it/z4xprsjixqzb1.jpg?width=100&height=100)
+* Meme Author: [True_Failiure](https://www.reddit.com/user/True_Failiure/)
 
 
 
