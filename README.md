@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/blsku6o3mpzb1.jpg?width=100&height=100)
-* Meme Author: [It_hurtsss](https://www.reddit.com/user/It_hurtsss/)
+![Funny Meme](https://i.redd.it/zoodeljc9qzb1.jpg?width=100&height=100)
+* Meme Author: [Elijah_Dizzle](https://www.reddit.com/user/Elijah_Dizzle/)
 
 
 
