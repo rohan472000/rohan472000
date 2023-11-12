@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/djaph3kgyozb1.jpg?width=100&height=100)
-* Meme Author: [Lord_Detleff1](https://www.reddit.com/user/Lord_Detleff1/)
+![Funny Meme](https://i.redd.it/ylmwqv2t6rzb1.jpg?width=100&height=100)
+* Meme Author: [Kommunikationsgesetz](https://www.reddit.com/user/Kommunikationsgesetz/)
 
 
 
