@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2nu0n28k0yzb1.jpg?width=100&height=100)
-* Meme Author: [pythonaaaaaaaaaaaaaa](https://www.reddit.com/user/pythonaaaaaaaaaaaaaa/)
+![Funny Meme](https://i.redd.it/o70v7a38b30c1.png?width=100&height=100)
+* Meme Author: [Botosup](https://www.reddit.com/user/Botosup/)
 
 
 
