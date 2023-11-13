@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/urfwdgkontzb1.jpg?width=100&height=100)
-* Meme Author: [NameTooSmol](https://www.reddit.com/user/NameTooSmol/)
+![Funny Meme](https://i.redd.it/rd0fvo186yzb1.jpg?width=100&height=100)
+* Meme Author: [mallolike](https://www.reddit.com/user/mallolike/)
 
 
 
