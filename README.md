@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uyztmd3jfzzb1.jpg?width=100&height=100)
-* Meme Author: [_VoRteX_PL](https://www.reddit.com/user/_VoRteX_PL/)
+![Funny Meme](https://i.redd.it/zvxxf3p8v10c1.jpg?width=100&height=100)
+* Meme Author: [coreval-](https://www.reddit.com/user/coreval-/)
 
 
 
