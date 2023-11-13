@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cycsagykd50c1.jpg?width=100&height=100)
-* Meme Author: [Mantisass](https://www.reddit.com/user/Mantisass/)
+![Funny Meme](https://i.redd.it/52hvi3sx730c1.jpg?width=100&height=100)
+* Meme Author: [Basically-Boring](https://www.reddit.com/user/Basically-Boring/)
 
 
 
