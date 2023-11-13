@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iptmwdaa710c1.jpg?width=100&height=100)
-* Meme Author: [ItsOkbroDontGiveUp](https://www.reddit.com/user/ItsOkbroDontGiveUp/)
+![Funny Meme](https://i.redd.it/mq0rlza3ovzb1.jpg?width=100&height=100)
+* Meme Author: [ImpromptuHotelier](https://www.reddit.com/user/ImpromptuHotelier/)
 
 
 
