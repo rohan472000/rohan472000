@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zhi7ee1wp00c1.jpg?width=100&height=100)
-* Meme Author: [Effective-Pattern971](https://www.reddit.com/user/Effective-Pattern971/)
+![Funny Meme](https://i.redd.it/0eb9hly1syzb1.jpg?width=100&height=100)
+* Meme Author: [Chernablogger](https://www.reddit.com/user/Chernablogger/)
 
 
 
