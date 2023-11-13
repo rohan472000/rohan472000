@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/emk79smi9xzb1.jpg?width=100&height=100)
-* Meme Author: [bfastman](https://www.reddit.com/user/bfastman/)
+![Funny Meme](https://i.redd.it/lfoa7oee8zzb1.jpg?width=100&height=100)
+* Meme Author: [Tydeus2000](https://www.reddit.com/user/Tydeus2000/)
 
 
 
