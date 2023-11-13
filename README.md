@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uryfkssslxzb1.jpg?width=100&height=100)
-* Meme Author: [delo357](https://www.reddit.com/user/delo357/)
+![Funny Meme](https://i.redd.it/65951wyb8vzb1.jpg?width=100&height=100)
+* Meme Author: [maestrozeldafan](https://www.reddit.com/user/maestrozeldafan/)
 
 
 
