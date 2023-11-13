@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/itl8zw0cqzzb1.jpg?width=100&height=100)
-* Meme Author: [Crying_Pen](https://www.reddit.com/user/Crying_Pen/)
+![Funny Meme](https://i.redd.it/j836ynv1fvzb1.png?width=100&height=100)
+* Meme Author: [_IliaD](https://www.reddit.com/user/_IliaD/)
 
 
 
