@@ -1,5 +1,5 @@
-![Funny Meme](https://i.postimg.cc/mgTy2L1t/85thtb.jpg?width=100&height=100)
-* Meme Author: [Accurate-Variety-771](https://www.reddit.com/user/Accurate-Variety-771/)
+![Funny Meme](https://i.redd.it/l509uv2gpszb1.jpg?width=100&height=100)
+* Meme Author: [ImaginationFunny2480](https://www.reddit.com/user/ImaginationFunny2480/)
 
 
 
