@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zm16f7b23yzb1.png?width=100&height=100)
-* Meme Author: [rrsafety](https://www.reddit.com/user/rrsafety/)
+![Funny Meme](https://i.redd.it/7flonyg3c20c1.jpg?width=100&height=100)
+* Meme Author: [damascenarosa](https://www.reddit.com/user/damascenarosa/)
 
 
 
