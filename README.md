@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a5xbe59q030c1.jpg?width=100&height=100)
-* Meme Author: [Wildxflower55](https://www.reddit.com/user/Wildxflower55/)
+![Funny Meme](https://i.redd.it/cycsagykd50c1.jpg?width=100&height=100)
+* Meme Author: [Mantisass](https://www.reddit.com/user/Mantisass/)
 
 
 
