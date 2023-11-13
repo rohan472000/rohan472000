@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j836ynv1fvzb1.png?width=100&height=100)
-* Meme Author: [_IliaD](https://www.reddit.com/user/_IliaD/)
+![Funny Meme](https://i.redd.it/240sy5is800c1.jpg?width=100&height=100)
+* Meme Author: [Kermit_Frog_743](https://www.reddit.com/user/Kermit_Frog_743/)
 
 
 
