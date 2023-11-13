@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xg1c6hmejtzb1.png?width=100&height=100)
-* Meme Author: [Accomplished_Ask_326](https://www.reddit.com/user/Accomplished_Ask_326/)
+![Funny Meme](https://i.redd.it/vu7xtfmiu00c1.jpg?width=100&height=100)
+* Meme Author: [CT-2632_Jaax](https://www.reddit.com/user/CT-2632_Jaax/)
 
 
 
