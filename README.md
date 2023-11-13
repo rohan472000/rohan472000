@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/le9rhyv48xzb1.png?width=100&height=100)
-* Meme Author: [Barbastorpia](https://www.reddit.com/user/Barbastorpia/)
+![Funny Meme](https://i.redd.it/dyetbl4e300c1.jpg?width=100&height=100)
+* Meme Author: [imkindabored357](https://www.reddit.com/user/imkindabored357/)
 
 
 
