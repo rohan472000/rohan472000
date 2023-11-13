@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/52hvi3sx730c1.jpg?width=100&height=100)
-* Meme Author: [Basically-Boring](https://www.reddit.com/user/Basically-Boring/)
+![Funny Meme](https://i.redd.it/r4gegrz1a20c1.png?width=100&height=100)
+* Meme Author: [ASTRO_GAGZ](https://www.reddit.com/user/ASTRO_GAGZ/)
 
 
 
