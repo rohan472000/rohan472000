@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fc2eo39m5yzb1.jpg?width=100&height=100)
-* Meme Author: [SomeGuylulul](https://www.reddit.com/user/SomeGuylulul/)
+![Funny Meme](https://i.redd.it/8vkhgujylzzb1.jpg?width=100&height=100)
+* Meme Author: [SnakeTheWarlord](https://www.reddit.com/user/SnakeTheWarlord/)
 
 
 
