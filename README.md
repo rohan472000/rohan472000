@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mq0rlza3ovzb1.jpg?width=100&height=100)
-* Meme Author: [ImpromptuHotelier](https://www.reddit.com/user/ImpromptuHotelier/)
+![Funny Meme](https://i.redd.it/1jczalzq610c1.jpg?width=100&height=100)
+* Meme Author: [Entire-Possession-95](https://www.reddit.com/user/Entire-Possession-95/)
 
 
 
