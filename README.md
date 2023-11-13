@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oanhg7goyyzb1.jpg?width=100&height=100)
-* Meme Author: [ibnugamingyt12](https://www.reddit.com/user/ibnugamingyt12/)
+![Funny Meme](https://i.redd.it/3gn7agxqw10c1.png?width=100&height=100)
+* Meme Author: [xsorefernx](https://www.reddit.com/user/xsorefernx/)
 
 
 
