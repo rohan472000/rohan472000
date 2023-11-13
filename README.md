@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/713bacbjh20c1.png?width=100&height=100)
-* Meme Author: [hardlopertjie](https://www.reddit.com/user/hardlopertjie/)
+![Funny Meme](https://i.redd.it/zm16f7b23yzb1.png?width=100&height=100)
+* Meme Author: [rrsafety](https://www.reddit.com/user/rrsafety/)
 
 
 
