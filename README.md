@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tekwvt53m00c1.jpg?width=100&height=100)
-* Meme Author: [valkashc](https://www.reddit.com/user/valkashc/)
+![Funny Meme](https://i.redd.it/u2bbdrzodtzb1.jpg?width=100&height=100)
+* Meme Author: [PM_ME_URFOOD](https://www.reddit.com/user/PM_ME_URFOOD/)
 
 
 
