@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x1jfbw12n40c1.jpg?width=100&height=100)
-* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
+![Funny Meme](https://i.redd.it/a5xbe59q030c1.jpg?width=100&height=100)
+* Meme Author: [Wildxflower55](https://www.reddit.com/user/Wildxflower55/)
 
 
 
