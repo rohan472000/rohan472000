@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3gn7agxqw10c1.png?width=100&height=100)
-* Meme Author: [xsorefernx](https://www.reddit.com/user/xsorefernx/)
+![Funny Meme](https://i.redd.it/qnqogpt8ytzb1.png?width=100&height=100)
+* Meme Author: [thisuseristakenbreh](https://www.reddit.com/user/thisuseristakenbreh/)
 
 
 
