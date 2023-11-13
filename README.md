@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jnvxbz40960c1.jpg?width=100&height=100)
-* Meme Author: [AJ_Crowley_29](https://www.reddit.com/user/AJ_Crowley_29/)
+![Funny Meme](https://i.redd.it/c8ybpxhp640c1.jpg?width=100&height=100)
+* Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
 
 
 
