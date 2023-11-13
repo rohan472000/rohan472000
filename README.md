@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lfoa7oee8zzb1.jpg?width=100&height=100)
-* Meme Author: [Tydeus2000](https://www.reddit.com/user/Tydeus2000/)
+![Funny Meme](https://i.redd.it/itl8zw0cqzzb1.jpg?width=100&height=100)
+* Meme Author: [Crying_Pen](https://www.reddit.com/user/Crying_Pen/)
 
 
 
