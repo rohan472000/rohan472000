@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3zstvu7dv40c1.png?width=100&height=100)
-* Meme Author: [SENTRYTHETHERIAN](https://www.reddit.com/user/SENTRYTHETHERIAN/)
+![Funny Meme](https://i.redd.it/wwje5t3a320c1.jpg?width=100&height=100)
+* Meme Author: [waggy-tails-inc](https://www.reddit.com/user/waggy-tails-inc/)
 
 
 
