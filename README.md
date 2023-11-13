@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aewym3mrs50c1.jpg?width=100&height=100)
-* Meme Author: [panseshi](https://www.reddit.com/user/panseshi/)
+![Funny Meme](https://i.redd.it/jnvxbz40960c1.jpg?width=100&height=100)
+* Meme Author: [AJ_Crowley_29](https://www.reddit.com/user/AJ_Crowley_29/)
 
 
 
