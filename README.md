@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dyetbl4e300c1.jpg?width=100&height=100)
-* Meme Author: [imkindabored357](https://www.reddit.com/user/imkindabored357/)
+![Funny Meme](https://i.redd.it/rsrz0ih7y00c1.jpg?width=100&height=100)
+* Meme Author: [CT-2632_Jaax](https://www.reddit.com/user/CT-2632_Jaax/)
 
 
 
