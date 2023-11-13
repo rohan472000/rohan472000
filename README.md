@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/49bavfpeq40c1.jpg?width=100&height=100)
-* Meme Author: [youngpoe54](https://www.reddit.com/user/youngpoe54/)
+![Funny Meme](https://i.redd.it/pw3rbjlrg10c1.jpg?width=100&height=100)
+* Meme Author: [BigClitMcphee](https://www.reddit.com/user/BigClitMcphee/)
 
 
 
