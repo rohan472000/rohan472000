@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vu7xtfmiu00c1.jpg?width=100&height=100)
-* Meme Author: [CT-2632_Jaax](https://www.reddit.com/user/CT-2632_Jaax/)
+![Funny Meme](https://i.redd.it/1gxccam8330c1.jpg?width=100&height=100)
+* Meme Author: [Final-Cream-4037](https://www.reddit.com/user/Final-Cream-4037/)
 
 
 
