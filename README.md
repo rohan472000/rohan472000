@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gc8ajb9vpzzb1.jpg?width=100&height=100)
-* Meme Author: [Large-Wheel-4181](https://www.reddit.com/user/Large-Wheel-4181/)
+![Funny Meme](https://i.redd.it/n2wqpqnwtzzb1.jpg?width=100&height=100)
+* Meme Author: [S0n0fs0m3thing](https://www.reddit.com/user/S0n0fs0m3thing/)
 
 
 
