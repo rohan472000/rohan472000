@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n2wqpqnwtzzb1.jpg?width=100&height=100)
-* Meme Author: [S0n0fs0m3thing](https://www.reddit.com/user/S0n0fs0m3thing/)
+![Funny Meme](https://i.redd.it/v8vcw2cto60c1.jpg?width=100&height=100)
+* Meme Author: [Decent-Path4062](https://www.reddit.com/user/Decent-Path4062/)
 
 
 
