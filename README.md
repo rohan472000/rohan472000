@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yogqv7e8gxzb1.jpg?width=100&height=100)
-* Meme Author: [MulletSnake](https://www.reddit.com/user/MulletSnake/)
+![Funny Meme](https://i.redd.it/3l3blst38qzb1.jpg?width=100&height=100)
+* Meme Author: [Ok-Sleep8655](https://www.reddit.com/user/Ok-Sleep8655/)
 
 
 
