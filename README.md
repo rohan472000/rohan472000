@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1jczalzq610c1.jpg?width=100&height=100)
-* Meme Author: [Entire-Possession-95](https://www.reddit.com/user/Entire-Possession-95/)
+![Funny Meme](https://i.redd.it/ddwcicj6byzb1.jpg?width=100&height=100)
+* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
 
 
 
