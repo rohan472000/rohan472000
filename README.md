@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3pvylu7cwvzb1.jpg?width=100&height=100)
-* Meme Author: [DescX](https://www.reddit.com/user/DescX/)
+![Funny Meme](https://i.redd.it/lfoa7oee8zzb1.jpg?width=100&height=100)
+* Meme Author: [Tydeus2000](https://www.reddit.com/user/Tydeus2000/)
 
 
 
