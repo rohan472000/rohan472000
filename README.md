@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7flonyg3c20c1.jpg?width=100&height=100)
-* Meme Author: [damascenarosa](https://www.reddit.com/user/damascenarosa/)
+![Funny Meme](https://i.redd.it/65951wyb8vzb1.jpg?width=100&height=100)
+* Meme Author: [maestrozeldafan](https://www.reddit.com/user/maestrozeldafan/)
 
 
 
