@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/08j9z4jan00c1.jpg?width=100&height=100)
-* Meme Author: [NoExchange5847](https://www.reddit.com/user/NoExchange5847/)
+![Funny Meme](https://i.redd.it/uyztmd3jfzzb1.jpg?width=100&height=100)
+* Meme Author: [_VoRteX_PL](https://www.reddit.com/user/_VoRteX_PL/)
 
 
 
