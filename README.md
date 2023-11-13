@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0eb9hly1syzb1.jpg?width=100&height=100)
-* Meme Author: [Chernablogger](https://www.reddit.com/user/Chernablogger/)
+![Funny Meme](https://i.redd.it/eoapawz7ywzb1.jpg?width=100&height=100)
+* Meme Author: [ezdanian016](https://www.reddit.com/user/ezdanian016/)
 
 
 
