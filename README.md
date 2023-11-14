@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/blnol22kq50c1.jpg?width=100&height=100)
-* Meme Author: [daddyDAUA](https://www.reddit.com/user/daddyDAUA/)
+![Funny Meme](https://i.redd.it/o3lz2bt0gb0c1.png?width=100&height=100)
+* Meme Author: [XKingOfLostSoulsX](https://www.reddit.com/user/XKingOfLostSoulsX/)
 
 
 
