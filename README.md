@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kjdvfmmabc0c1.jpg?width=100&height=100)
-* Meme Author: [itsricoche](https://www.reddit.com/user/itsricoche/)
+![Funny Meme](https://i.redd.it/ybcbua7wa60c1.jpg?width=100&height=100)
+* Meme Author: [Illbehere4u](https://www.reddit.com/user/Illbehere4u/)
 
 
 
