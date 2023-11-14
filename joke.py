@@ -13,10 +13,10 @@ TIMEOUT = 60 # Timeout( seconds)
 logging.basicConfig(level=logging.INFO)
 
 
-def fetch_random_meme() -> Optional[dict]:
+def fetch_random_meme(t) -> Optional[dict]:
     """Get a random meme data from Reddit API."""
     try:
-        meme = RedditService.get_random_meme(timeout=TIMEOUT)
+        meme = RedditService.get_random_meme(timeout=t)
         if meme and IMAGE_EXTENSIONS_PATTERN.search(meme["url"]):
             return meme
     except TimeoutError as err:
@@ -53,7 +53,7 @@ def update_readme_with_meme(meme: dict) -> bool:
 
 def main() -> None:
     """Update README with a new meme."""
-    meme = fetch_random_meme()
+    meme = fetch_random_meme(TIMEOUT)
     if meme and IMAGE_EXTENSIONS_PATTERN.search(meme["url"]):
         update_readme_with_meme(meme)
 
