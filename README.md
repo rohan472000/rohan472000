@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/58all8yq110c1.jpg?width=100&height=100)
-* Meme Author: [supermarioplush220](https://www.reddit.com/user/supermarioplush220/)
+![Funny Meme](https://i.redd.it/1hes7u05940c1.png?width=100&height=100)
+* Meme Author: [OneTurnsToNone](https://www.reddit.com/user/OneTurnsToNone/)
 
 
 
