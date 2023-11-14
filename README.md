@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pokxouxxd60c1.jpg?width=100&height=100)
-* Meme Author: [SpyTaco69](https://www.reddit.com/user/SpyTaco69/)
+![Funny Meme](https://i.redd.it/3pyg3dp3y30c1.jpg?width=100&height=100)
+* Meme Author: [Basically-Boring](https://www.reddit.com/user/Basically-Boring/)
 
 
 
