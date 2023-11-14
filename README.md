@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6w0xrv28f60c1.jpg?width=100&height=100)
-* Meme Author: [JaxAKAAntonioFomby](https://www.reddit.com/user/JaxAKAAntonioFomby/)
+![Funny Meme](https://i.redd.it/c5yxh952l10c1.jpg?width=100&height=100)
+* Meme Author: [Valhallawalker](https://www.reddit.com/user/Valhallawalker/)
 
 
 
