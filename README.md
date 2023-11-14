@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/05z20wg8x60c1.jpg?width=100&height=100)
-* Meme Author: [Zitty-Z](https://www.reddit.com/user/Zitty-Z/)
+![Funny Meme](https://i.redd.it/u7tgg0sbx30c1.jpg?width=100&height=100)
+* Meme Author: [Basically-Boring](https://www.reddit.com/user/Basically-Boring/)
 
 
 
