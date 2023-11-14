@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1u78ys54550c1.jpg?width=100&height=100)
-* Meme Author: [Goldrush24](https://www.reddit.com/user/Goldrush24/)
+![Funny Meme](https://i.redd.it/yuloumu0470c1.png?width=100&height=100)
+* Meme Author: [_Matsu_Ki_](https://www.reddit.com/user/_Matsu_Ki_/)
 
 
 
