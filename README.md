@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wwje5t3a320c1.jpg?width=100&height=100)
-* Meme Author: [waggy-tails-inc](https://www.reddit.com/user/waggy-tails-inc/)
+![Funny Meme](https://i.redd.it/oeyh3py0t10c1.jpg?width=100&height=100)
+* Meme Author: [JustAReallyDumKid](https://www.reddit.com/user/JustAReallyDumKid/)
 
 
 
