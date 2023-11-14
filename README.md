@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lr10qwgw4b0c1.jpg?width=100&height=100)
-* Meme Author: [GreenFeather19991](https://www.reddit.com/user/GreenFeather19991/)
+![Funny Meme](https://i.redd.it/1h1qxmp74b0c1.jpg?width=100&height=100)
+* Meme Author: [faultyhorror](https://www.reddit.com/user/faultyhorror/)
 
 
 
