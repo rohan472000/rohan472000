@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t3120eqt260c1.jpg?width=100&height=100)
-* Meme Author: [osmankebapye](https://www.reddit.com/user/osmankebapye/)
+![Funny Meme](https://i.redd.it/i84506axha0c1.jpg?width=100&height=100)
+* Meme Author: [razzleware](https://www.reddit.com/user/razzleware/)
 
 
 
