@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jma6v6jkf60c1.jpg?width=100&height=100)
-* Meme Author: [wisdompuff](https://www.reddit.com/user/wisdompuff/)
+![Funny Meme](https://i.redd.it/cg9venmcyzzb1.jpg?width=100&height=100)
+* Meme Author: [EDCvoid](https://www.reddit.com/user/EDCvoid/)
 
 
 
