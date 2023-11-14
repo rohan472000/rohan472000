@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zeoe486dp90c1.jpg?width=100&height=100)
-* Meme Author: [Yoguls-Returns](https://www.reddit.com/user/Yoguls-Returns/)
+![Funny Meme](https://i.redd.it/riv4ln7po60c1.jpg?width=100&height=100)
+* Meme Author: [Dependent-Boat-4123](https://www.reddit.com/user/Dependent-Boat-4123/)
 
 
 
