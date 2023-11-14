@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zvxxf3p8v10c1.jpg?width=100&height=100)
-* Meme Author: [coreval-](https://www.reddit.com/user/coreval-/)
+![Funny Meme](https://i.redd.it/k1fw6sbxd40c1.jpg?width=100&height=100)
+* Meme Author: [Godz657](https://www.reddit.com/user/Godz657/)
 
 
 
