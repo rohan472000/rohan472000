@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i84506axha0c1.jpg?width=100&height=100)
-* Meme Author: [razzleware](https://www.reddit.com/user/razzleware/)
+![Funny Meme](https://i.redd.it/j9a8bybcf80c1.jpg?width=100&height=100)
+* Meme Author: [nicolyosoro](https://www.reddit.com/user/nicolyosoro/)
 
 
 
