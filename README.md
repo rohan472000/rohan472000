@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/39qk77e1370c1.jpg?width=100&height=100)
-* Meme Author: [meaux253](https://www.reddit.com/user/meaux253/)
+![Funny Meme](https://i.redd.it/guyk182tn70c1.jpg?width=100&height=100)
+* Meme Author: [mushyrooms00](https://www.reddit.com/user/mushyrooms00/)
 
 
 
