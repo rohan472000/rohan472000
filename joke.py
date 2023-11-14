@@ -7,7 +7,7 @@ from services.reddit import RedditService
 # Constants
 README_FILE = "README.md"
 IMAGE_EXTENSIONS_PATTERN = re.compile(r"\.(jpg|jpeg|png)$", re.IGNORECASE)
-TIMEOUT = 5 # Timeout( seconds)
+TIMEOUT = 60 # Timeout( seconds)
 
 # Configure logging
 logging.basicConfig(level=logging.INFO)
