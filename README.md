@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/02xbdgny350c1.jpg?width=100&height=100)
-* Meme Author: [thebiosciboy](https://www.reddit.com/user/thebiosciboy/)
+![Funny Meme](https://i.redd.it/pgqzzo70pb0c1.jpg?width=100&height=100)
+* Meme Author: [Bat_toes](https://www.reddit.com/user/Bat_toes/)
 
 
 
