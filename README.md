@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zdch6h2g260c1.jpg?width=100&height=100)
-* Meme Author: [Loose_Journalist9879](https://www.reddit.com/user/Loose_Journalist9879/)
+![Funny Meme](https://i.redd.it/a9vncukjh80c1.jpg?width=100&height=100)
+* Meme Author: [Accurate_Plantain896](https://www.reddit.com/user/Accurate_Plantain896/)
 
 
 
