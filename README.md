@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0fh7fv99j20c1.jpg?width=100&height=100)
-* Meme Author: [OverlordXenon](https://www.reddit.com/user/OverlordXenon/)
+![Funny Meme](https://i.redd.it/lraox7m6980c1.jpg?width=100&height=100)
+* Meme Author: [LazyLion65](https://www.reddit.com/user/LazyLion65/)
 
 
 
