@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dd249a12uzzb1.jpg?width=100&height=100)
-* Meme Author: [Happy_Cat28236](https://www.reddit.com/user/Happy_Cat28236/)
+![Funny Meme](https://i.redd.it/zvxxf3p8v10c1.jpg?width=100&height=100)
+* Meme Author: [coreval-](https://www.reddit.com/user/coreval-/)
 
 
 
