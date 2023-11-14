@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lraox7m6980c1.jpg?width=100&height=100)
-* Meme Author: [LazyLion65](https://www.reddit.com/user/LazyLion65/)
+![Funny Meme](https://i.redd.it/5tnmut27v10c1.png?width=100&height=100)
+* Meme Author: [TalithePally](https://www.reddit.com/user/TalithePally/)
 
 
 
