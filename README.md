@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oqj6rz5jhc0c1.jpg?width=100&height=100)
-* Meme Author: [etaithespeedcuber](https://www.reddit.com/user/etaithespeedcuber/)
+![Funny Meme](https://i.redd.it/7ifsvhniza0c1.jpg?width=100&height=100)
+* Meme Author: [PalpitationOdd7107](https://www.reddit.com/user/PalpitationOdd7107/)
 
 
 
