@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/72jvdlu2q40c1.jpg?width=100&height=100)
-* Meme Author: [Quick_Presentation11](https://www.reddit.com/user/Quick_Presentation11/)
+![Funny Meme](https://i.redd.it/q6asw3ocl90c1.png?width=100&height=100)
+* Meme Author: [hwei8](https://www.reddit.com/user/hwei8/)
 
 
 
