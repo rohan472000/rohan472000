@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c8ybpxhp640c1.jpg?width=100&height=100)
-* Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
+![Funny Meme](https://i.redd.it/gj4lj0rok40c1.jpg?width=100&height=100)
+* Meme Author: [Doodlerodent](https://www.reddit.com/user/Doodlerodent/)
 
 
 
