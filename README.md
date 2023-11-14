@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bm6ji49p580c1.jpg?width=100&height=100)
-* Meme Author: [LiverFox](https://www.reddit.com/user/LiverFox/)
+![Funny Meme](https://i.redd.it/bpgxry7z8c0c1.jpg?width=100&height=100)
+* Meme Author: [myclmyers](https://www.reddit.com/user/myclmyers/)
 
 
 
