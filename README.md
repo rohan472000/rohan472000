@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/riv4ln7po60c1.jpg?width=100&height=100)
-* Meme Author: [Dependent-Boat-4123](https://www.reddit.com/user/Dependent-Boat-4123/)
+![Funny Meme](https://i.redd.it/bm6ji49p580c1.jpg?width=100&height=100)
+* Meme Author: [LiverFox](https://www.reddit.com/user/LiverFox/)
 
 
 
