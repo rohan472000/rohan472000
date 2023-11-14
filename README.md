@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o3lz2bt0gb0c1.png?width=100&height=100)
-* Meme Author: [XKingOfLostSoulsX](https://www.reddit.com/user/XKingOfLostSoulsX/)
+![Funny Meme](https://i.redd.it/7rxpf4ut3b0c1.jpg?width=100&height=100)
+* Meme Author: [aquatic-gorilla](https://www.reddit.com/user/aquatic-gorilla/)
 
 
 
