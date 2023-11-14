@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ux6ctgcxaa0c1.jpg?width=100&height=100)
-* Meme Author: [jaykular](https://www.reddit.com/user/jaykular/)
+![Funny Meme](https://i.redd.it/zeoe486dp90c1.jpg?width=100&height=100)
+* Meme Author: [Yoguls-Returns](https://www.reddit.com/user/Yoguls-Returns/)
 
 
 
