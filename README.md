@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x60vh7j49c0c1.jpg?width=100&height=100)
-* Meme Author: [Available-Problem518](https://www.reddit.com/user/Available-Problem518/)
+![Funny Meme](https://i.redd.it/ux6ctgcxaa0c1.jpg?width=100&height=100)
+* Meme Author: [jaykular](https://www.reddit.com/user/jaykular/)
 
 
 
