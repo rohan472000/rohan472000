@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r4cuhzoonb0c1.jpg?width=100&height=100)
-* Meme Author: [Puggleboi2](https://www.reddit.com/user/Puggleboi2/)
+![Funny Meme](https://i.redd.it/xeyyiqfei80c1.jpg?width=100&height=100)
+* Meme Author: [Riley8284](https://www.reddit.com/user/Riley8284/)
 
 
 
