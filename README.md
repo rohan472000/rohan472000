@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j9a8bybcf80c1.jpg?width=100&height=100)
-* Meme Author: [nicolyosoro](https://www.reddit.com/user/nicolyosoro/)
+![Funny Meme](https://i.redd.it/58all8yq110c1.jpg?width=100&height=100)
+* Meme Author: [supermarioplush220](https://www.reddit.com/user/supermarioplush220/)
 
 
 
