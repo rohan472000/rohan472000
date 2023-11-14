@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/46zwpw8jr20c1.jpg?width=100&height=100)
-* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
+![Funny Meme](https://i.redd.it/5tnmut27v10c1.png?width=100&height=100)
+* Meme Author: [TalithePally](https://www.reddit.com/user/TalithePally/)
 
 
 
