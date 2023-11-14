@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hd3xk5kbp00c1.jpg?width=100&height=100)
-* Meme Author: [Right0rightoh](https://www.reddit.com/user/Right0rightoh/)
+![Funny Meme](https://i.redd.it/pokxouxxd60c1.jpg?width=100&height=100)
+* Meme Author: [SpyTaco69](https://www.reddit.com/user/SpyTaco69/)
 
 
 
