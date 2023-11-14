@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7lg24wulh60c1.png?width=100&height=100)
-* Meme Author: [TheFinacingMan](https://www.reddit.com/user/TheFinacingMan/)
+![Funny Meme](https://i.redd.it/vwj5g9tr6c0c1.jpg?width=100&height=100)
+* Meme Author: [pandorabox1995](https://www.reddit.com/user/pandorabox1995/)
 
 
 
