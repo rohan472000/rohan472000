@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lcbr6kakq70c1.jpg?width=100&height=100)
-* Meme Author: [CanIGetSomePogchamps](https://www.reddit.com/user/CanIGetSomePogchamps/)
+![Funny Meme](https://i.redd.it/72jvdlu2q40c1.jpg?width=100&height=100)
+* Meme Author: [Quick_Presentation11](https://www.reddit.com/user/Quick_Presentation11/)
 
 
 
