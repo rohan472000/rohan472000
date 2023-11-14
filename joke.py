@@ -7,7 +7,6 @@ from services.reddit import RedditService
 # Constants
 README_FILE = "README.md"
 IMAGE_EXTENSIONS_PATTERN = re.compile(r"\.(jpg|jpeg|png)$", re.IGNORECASE)
-TIMEOUT = 60 # Timeout( seconds)
 
 # Configure logging
 logging.basicConfig(level=logging.INFO)
@@ -15,13 +14,7 @@ logging.basicConfig(level=logging.INFO)
 
 def fetch_random_meme() -> Optional[dict]:
     """Get a random meme data from Reddit API."""
-    try:
-        meme = RedditService.get_random_meme(timeout=TIMEOUT)
-        if meme and IMAGE_EXTENSIONS_PATTERN.search(meme["url"]):
-            return meme
-    except TimeoutError as err:
-        logging.error(f"Fetching meme timed out: {err}")
-    return None
+    return RedditService.get_random_meme()
 
 
 def update_readme_with_meme(meme: dict) -> bool:
