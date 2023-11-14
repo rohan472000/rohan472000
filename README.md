@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/61ulstg9r00c1.png?width=100&height=100)
-* Meme Author: [SimpleButFun](https://www.reddit.com/user/SimpleButFun/)
+![Funny Meme](https://i.redd.it/cxp1l0goi50c1.jpg?width=100&height=100)
+* Meme Author: [CaptainNinjaClassic](https://www.reddit.com/user/CaptainNinjaClassic/)
 
 
 
