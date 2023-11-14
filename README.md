@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pd7aj93b700c1.jpg?width=100&height=100)
-* Meme Author: [External_Ad_1062](https://www.reddit.com/user/External_Ad_1062/)
+![Funny Meme](https://i.redd.it/wxhedh7df70c1.jpg?width=100&height=100)
+* Meme Author: [Special-Avocado-7072](https://www.reddit.com/user/Special-Avocado-7072/)
 
 
 
