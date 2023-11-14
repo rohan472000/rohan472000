@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cg9venmcyzzb1.jpg?width=100&height=100)
-* Meme Author: [EDCvoid](https://www.reddit.com/user/EDCvoid/)
+![Funny Meme](https://i.redd.it/fto0aa6sb50c1.jpg?width=100&height=100)
+* Meme Author: [PhantomStardust7](https://www.reddit.com/user/PhantomStardust7/)
 
 
 
