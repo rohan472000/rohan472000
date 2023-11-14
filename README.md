@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/32mju2l6v40c1.png?width=100&height=100)
-* Meme Author: [Evoxrus_XV](https://www.reddit.com/user/Evoxrus_XV/)
+![Funny Meme](https://i.redd.it/aewym3mrs50c1.jpg?width=100&height=100)
+* Meme Author: [panseshi](https://www.reddit.com/user/panseshi/)
 
 
 
