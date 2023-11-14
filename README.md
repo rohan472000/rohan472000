@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hbse5ci5100c1.jpg?width=100&height=100)
-* Meme Author: [Ok-Fail-540](https://www.reddit.com/user/Ok-Fail-540/)
+![Funny Meme](https://i.redd.it/roazk39ti20c1.jpg?width=100&height=100)
+* Meme Author: [NobleNomad1](https://www.reddit.com/user/NobleNomad1/)
 
 
 
