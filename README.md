@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/guyk182tn70c1.jpg?width=100&height=100)
-* Meme Author: [mushyrooms00](https://www.reddit.com/user/mushyrooms00/)
+![Funny Meme](https://i.redd.it/r4gegrz1a20c1.png?width=100&height=100)
+* Meme Author: [ASTRO_GAGZ](https://www.reddit.com/user/ASTRO_GAGZ/)
 
 
 
