@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yujwogwlq80c1.png?width=100&height=100)
-* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
+![Funny Meme](https://i.redd.it/pokxouxxd60c1.jpg?width=100&height=100)
+* Meme Author: [SpyTaco69](https://www.reddit.com/user/SpyTaco69/)
 
 
 
