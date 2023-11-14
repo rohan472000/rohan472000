@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bbperghpo80c1.jpg?width=100&height=100)
-* Meme Author: [JackBrightScD](https://www.reddit.com/user/JackBrightScD/)
+![Funny Meme](https://i.redd.it/wtmnz2gmh20c1.png?width=100&height=100)
+* Meme Author: [JustaTacoTree](https://www.reddit.com/user/JustaTacoTree/)
 
 
 
