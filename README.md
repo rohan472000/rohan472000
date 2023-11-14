@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/roazk39ti20c1.jpg?width=100&height=100)
-* Meme Author: [NobleNomad1](https://www.reddit.com/user/NobleNomad1/)
+![Funny Meme](https://i.redd.it/bs0i2geutyzb1.jpg?width=100&height=100)
+* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
 
 
 
