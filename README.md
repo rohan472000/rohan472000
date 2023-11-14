@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gj4lj0rok40c1.jpg?width=100&height=100)
-* Meme Author: [Doodlerodent](https://www.reddit.com/user/Doodlerodent/)
+![Funny Meme](https://i.redd.it/uooq0gwpe70c1.jpg?width=100&height=100)
+* Meme Author: [Careless_Reception74](https://www.reddit.com/user/Careless_Reception74/)
 
 
 
