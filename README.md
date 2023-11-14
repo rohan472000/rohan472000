@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aewym3mrs50c1.jpg?width=100&height=100)
-* Meme Author: [panseshi](https://www.reddit.com/user/panseshi/)
+![Funny Meme](https://i.redd.it/k5izv37va50c1.jpg?width=100&height=100)
+* Meme Author: [justchillinonmybed](https://www.reddit.com/user/justchillinonmybed/)
 
 
 
