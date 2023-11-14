@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5tnmut27v10c1.png?width=100&height=100)
-* Meme Author: [TalithePally](https://www.reddit.com/user/TalithePally/)
+![Funny Meme](https://i.redd.it/lcbr6kakq70c1.jpg?width=100&height=100)
+* Meme Author: [CanIGetSomePogchamps](https://www.reddit.com/user/CanIGetSomePogchamps/)
 
 
 
