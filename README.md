@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/51y860xzk60c1.jpg?width=100&height=100)
-* Meme Author: [The-Great-Memelord](https://www.reddit.com/user/The-Great-Memelord/)
+![Funny Meme](https://i.redd.it/vjh4urnyv40c1.jpg?width=100&height=100)
+* Meme Author: [Lord_Detleff1](https://www.reddit.com/user/Lord_Detleff1/)
 
 
 
