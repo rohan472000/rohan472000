@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/985dhyorjc0c1.jpeg?width=100&height=100)
-* Meme Author: [LocalNative141](https://www.reddit.com/user/LocalNative141/)
+![Funny Meme](https://i.redd.it/rsara8jlif0c1.jpg?width=100&height=100)
+* Meme Author: [LelouchYagami_2912](https://www.reddit.com/user/LelouchYagami_2912/)
 
 
 
