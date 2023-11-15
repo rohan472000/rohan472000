@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dx2v6b963e0c1.jpg?width=100&height=100)
-* Meme Author: [alemar2142](https://www.reddit.com/user/alemar2142/)
+![Funny Meme](https://i.redd.it/xhfueeh1dd0c1.jpg?width=100&height=100)
+* Meme Author: [Specialist-Score-819](https://www.reddit.com/user/Specialist-Score-819/)
 
 
 
