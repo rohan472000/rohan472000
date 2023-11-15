@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nkzufu45od0c1.jpg?width=100&height=100)
-* Meme Author: [n3w4cc01_1nt](https://www.reddit.com/user/n3w4cc01_1nt/)
+![Funny Meme](https://i.redd.it/qmhp3hv65b0c1.jpg?width=100&height=100)
+* Meme Author: [Sweaty_Sandwich-05](https://www.reddit.com/user/Sweaty_Sandwich-05/)
 
 
 
