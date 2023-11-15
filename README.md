@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/655nmiyunh0c1.jpg?width=100&height=100)
-* Meme Author: [rhdking13](https://www.reddit.com/user/rhdking13/)
+![Funny Meme](https://i.redd.it/293ofcynwi0c1.jpg?width=100&height=100)
+* Meme Author: [SockOfSand](https://www.reddit.com/user/SockOfSand/)
 
 
 
