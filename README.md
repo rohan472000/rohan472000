@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mi1jtef9wi0c1.jpg?width=100&height=100)
-* Meme Author: [Solid_Curve8763](https://www.reddit.com/user/Solid_Curve8763/)
+![Funny Meme](https://i.redd.it/tp01nf4oej0c1.jpg?width=100&height=100)
+* Meme Author: [gods_of_shitposting](https://www.reddit.com/user/gods_of_shitposting/)
 
 
 
