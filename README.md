@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mox5cq566j0c1.jpg?width=100&height=100)
-* Meme Author: [so-like_juan](https://www.reddit.com/user/so-like_juan/)
+![Funny Meme](https://i.redd.it/mlx7xyuelk0c1.jpg?width=100&height=100)
+* Meme Author: [Accomplished_Ask_326](https://www.reddit.com/user/Accomplished_Ask_326/)
 
 
 
