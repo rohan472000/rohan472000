@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0ysuyq7emh0c1.jpg?width=100&height=100)
-* Meme Author: [Berkeo3n](https://www.reddit.com/user/Berkeo3n/)
+![Funny Meme](https://i.redd.it/j01mmrjdcl0c1.jpg?width=100&height=100)
+* Meme Author: [WayAgitated8646](https://www.reddit.com/user/WayAgitated8646/)
 
 
 
