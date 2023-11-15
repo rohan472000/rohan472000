@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3q6rd0wsgh0c1.png?width=100&height=100)
-* Meme Author: [jeffmartinjr](https://www.reddit.com/user/jeffmartinjr/)
+![Funny Meme](https://i.redd.it/3a4tf7g99j0c1.jpeg?width=100&height=100)
+* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
 
 
 
