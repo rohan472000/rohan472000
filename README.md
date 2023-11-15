@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pz87yt0xmg0c1.jpg?width=100&height=100)
-* Meme Author: [Yoda2820](https://www.reddit.com/user/Yoda2820/)
+![Funny Meme](https://i.redd.it/g6aejzexsd0c1.jpg?width=100&height=100)
+* Meme Author: [RyanCooper510](https://www.reddit.com/user/RyanCooper510/)
 
 
 
