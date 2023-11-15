@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7rxpf4ut3b0c1.jpg?width=100&height=100)
-* Meme Author: [aquatic-gorilla](https://www.reddit.com/user/aquatic-gorilla/)
+![Funny Meme](https://i.redd.it/g6aejzexsd0c1.jpg?width=100&height=100)
+* Meme Author: [RyanCooper510](https://www.reddit.com/user/RyanCooper510/)
 
 
 
