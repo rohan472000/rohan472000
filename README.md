@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n5ua53958c0c1.jpg?width=100&height=100)
-* Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
+![Funny Meme](https://i.redd.it/pds06u1h740c1.png?width=100&height=100)
+* Meme Author: [pomle](https://www.reddit.com/user/pomle/)
 
 
 
