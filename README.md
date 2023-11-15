@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q3pdjtgp1g0c1.jpg?width=100&height=100)
-* Meme Author: [MayISoloHer](https://www.reddit.com/user/MayISoloHer/)
+![Funny Meme](https://i.redd.it/89q77u4fdd0c1.jpg?width=100&height=100)
+* Meme Author: [RegularNoodles](https://www.reddit.com/user/RegularNoodles/)
 
 
 
