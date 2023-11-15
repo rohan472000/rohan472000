@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lms89wjs2l0c1.jpg?width=100&height=100)
-* Meme Author: [SalmonelaDoAr](https://www.reddit.com/user/SalmonelaDoAr/)
+![Funny Meme](https://i.redd.it/mi1jtef9wi0c1.jpg?width=100&height=100)
+* Meme Author: [Solid_Curve8763](https://www.reddit.com/user/Solid_Curve8763/)
 
 
 
