@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/berv7l3w0c0c1.jpg?width=100&height=100)
-* Meme Author: [primethoracic2](https://www.reddit.com/user/primethoracic2/)
+![Funny Meme](https://i.redd.it/9ttuu6hate0c1.jpg?width=100&height=100)
+* Meme Author: [jaybailey079](https://www.reddit.com/user/jaybailey079/)
 
 
 
