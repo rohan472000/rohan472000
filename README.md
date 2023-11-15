@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b5yldpvnci0c1.jpg?width=100&height=100)
-* Meme Author: [1997D190P](https://www.reddit.com/user/1997D190P/)
+![Funny Meme](https://i.redd.it/zmrftb2byi0c1.jpg?width=100&height=100)
+* Meme Author: [Illustrious-Safe-536](https://www.reddit.com/user/Illustrious-Safe-536/)
 
 
 
