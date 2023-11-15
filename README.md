@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dnrk9ylldg0c1.jpg?width=100&height=100)
-* Meme Author: [Big_Layer8](https://www.reddit.com/user/Big_Layer8/)
+![Funny Meme](https://i.redd.it/q3pdjtgp1g0c1.jpg?width=100&height=100)
+* Meme Author: [MayISoloHer](https://www.reddit.com/user/MayISoloHer/)
 
 
 
