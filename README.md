@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cosya8bgve0c1.png?width=100&height=100)
-* Meme Author: [Far_Mountain_69](https://www.reddit.com/user/Far_Mountain_69/)
+![Funny Meme](https://i.redd.it/0x6zs7zkyf0c1.png?width=100&height=100)
+* Meme Author: [Crafter235](https://www.reddit.com/user/Crafter235/)
 
 
 
