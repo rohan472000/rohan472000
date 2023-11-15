@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sz5lk34zec0c1.png?width=100&height=100)
-* Meme Author: [PimentoSandwich](https://www.reddit.com/user/PimentoSandwich/)
+![Funny Meme](https://i.redd.it/tmr11qgssi0c1.jpeg?width=100&height=100)
+* Meme Author: [Holofan4life](https://www.reddit.com/user/Holofan4life/)
 
 
 
