@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7dvujmc9vj0c1.png?width=100&height=100)
-* Meme Author: [analfister_696969](https://www.reddit.com/user/analfister_696969/)
+![Funny Meme](https://i.redd.it/44xb2j4bbg0c1.jpg?width=100&height=100)
+* Meme Author: [nickynickname](https://www.reddit.com/user/nickynickname/)
 
 
 
