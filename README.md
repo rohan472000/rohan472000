@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bu5ish9bli0c1.jpg?width=100&height=100)
-* Meme Author: [Toothless72](https://www.reddit.com/user/Toothless72/)
+![Funny Meme](https://i.redd.it/s8c6difelk0c1.jpg?width=100&height=100)
+* Meme Author: [Aromatic-Union6080](https://www.reddit.com/user/Aromatic-Union6080/)
 
 
 
