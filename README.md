@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pir2smmuhd0c1.jpg?width=100&height=100)
-* Meme Author: [lukhomdingi](https://www.reddit.com/user/lukhomdingi/)
+![Funny Meme](https://i.redd.it/d4mb0u3plb0c1.jpg?width=100&height=100)
+* Meme Author: [smol_boi-_-](https://www.reddit.com/user/smol_boi-_-/)
 
 
 
