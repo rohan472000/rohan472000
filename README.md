@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pm139421ia0c1.jpg?width=100&height=100)
-* Meme Author: [Casper_Von_Ghoul](https://www.reddit.com/user/Casper_Von_Ghoul/)
+![Funny Meme](https://i.redd.it/fmev4qeh070c1.jpg?width=100&height=100)
+* Meme Author: [Hultis_66](https://www.reddit.com/user/Hultis_66/)
 
 
 
