@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7nqibk2znc0c1.jpg?width=100&height=100)
-* Meme Author: [That-Pollution-6126](https://www.reddit.com/user/That-Pollution-6126/)
+![Funny Meme](https://i.redd.it/655nmiyunh0c1.jpg?width=100&height=100)
+* Meme Author: [rhdking13](https://www.reddit.com/user/rhdking13/)
 
 
 
