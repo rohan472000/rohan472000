@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c2ocdhp9hg0c1.jpg?width=100&height=100)
-* Meme Author: [clockwork_orc](https://www.reddit.com/user/clockwork_orc/)
+![Funny Meme](https://i.redd.it/4qxnmqcazd0c1.png?width=100&height=100)
+* Meme Author: [CloudyGandalf06](https://www.reddit.com/user/CloudyGandalf06/)
 
 
 
