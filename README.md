@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/azw06egkac0c1.jpg?width=100&height=100)
-* Meme Author: [Dogs-Keep-Me-Going](https://www.reddit.com/user/Dogs-Keep-Me-Going/)
+![Funny Meme](https://i.redd.it/7dvujmc9vj0c1.png?width=100&height=100)
+* Meme Author: [analfister_696969](https://www.reddit.com/user/analfister_696969/)
 
 
 
