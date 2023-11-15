@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ehlcw933kc0c1.jpg?width=100&height=100)
-* Meme Author: [Bogdi504](https://www.reddit.com/user/Bogdi504/)
+![Funny Meme](https://i.redd.it/6xbk507b4f0c1.jpg?width=100&height=100)
+* Meme Author: [Draven_the_raven](https://www.reddit.com/user/Draven_the_raven/)
 
 
 
