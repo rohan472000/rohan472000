@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jpov3b1iwg0c1.jpg?width=100&height=100)
-* Meme Author: [Turbulent_Quiet_407](https://www.reddit.com/user/Turbulent_Quiet_407/)
+![Funny Meme](https://i.redd.it/b1a5a2bdsd0c1.jpg?width=100&height=100)
+* Meme Author: [randomfacepalm](https://www.reddit.com/user/randomfacepalm/)
 
 
 
