@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uc0wbezghd0c1.jpg?width=100&height=100)
-* Meme Author: [SomeRandomCyclops](https://www.reddit.com/user/SomeRandomCyclops/)
+![Funny Meme](https://i.redd.it/rmfu5tv9xf0c1.jpg?width=100&height=100)
+* Meme Author: [Waitingforlunch](https://www.reddit.com/user/Waitingforlunch/)
 
 
 
