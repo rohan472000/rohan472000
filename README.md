@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i2ykis6csa0c1.png?width=100&height=100)
-* Meme Author: [rober9999](https://www.reddit.com/user/rober9999/)
+![Funny Meme](https://i.redd.it/44xb2j4bbg0c1.jpg?width=100&height=100)
+* Meme Author: [nickynickname](https://www.reddit.com/user/nickynickname/)
 
 
 
