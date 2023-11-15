@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jjwglom3gd0c1.jpg?width=100&height=100)
-* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
+![Funny Meme](https://i.redd.it/xqnet9zemf0c1.jpg?width=100&height=100)
+* Meme Author: [Zealousideal-Tax-937](https://www.reddit.com/user/Zealousideal-Tax-937/)
 
 
 
