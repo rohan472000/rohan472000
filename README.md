@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m8n8l3d1ch0c1.png?width=100&height=100)
-* Meme Author: [Sweaty-Wealth9157](https://www.reddit.com/user/Sweaty-Wealth9157/)
+![Funny Meme](https://i.redd.it/rsara8jlif0c1.jpg?width=100&height=100)
+* Meme Author: [LelouchYagami_2912](https://www.reddit.com/user/LelouchYagami_2912/)
 
 
 
