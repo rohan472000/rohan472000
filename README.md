@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qppynhnngc0c1.png?width=100&height=100)
-* Meme Author: [Ok_Refrigerator9802](https://www.reddit.com/user/Ok_Refrigerator9802/)
+![Funny Meme](https://i.redd.it/90fdd96uqb0c1.jpg?width=100&height=100)
+* Meme Author: [Walrus-Cold](https://www.reddit.com/user/Walrus-Cold/)
 
 
 
