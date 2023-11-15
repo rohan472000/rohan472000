@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u06qpac4450c1.jpg?width=100&height=100)
-* Meme Author: [astro_scientician](https://www.reddit.com/user/astro_scientician/)
+![Funny Meme](https://i.redd.it/rf6sf3e4x60c1.jpg?width=100&height=100)
+* Meme Author: [PEMDAB](https://www.reddit.com/user/PEMDAB/)
 
 
 
