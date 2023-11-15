@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3a4tf7g99j0c1.jpeg?width=100&height=100)
-* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
+![Funny Meme](https://i.redd.it/7nqibk2znc0c1.jpg?width=100&height=100)
+* Meme Author: [That-Pollution-6126](https://www.reddit.com/user/That-Pollution-6126/)
 
 
 
