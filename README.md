@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pds06u1h740c1.png?width=100&height=100)
-* Meme Author: [pomle](https://www.reddit.com/user/pomle/)
+![Funny Meme](https://i.redd.it/ke4mcr9ule0c1.png?width=100&height=100)
+* Meme Author: [txma-](https://www.reddit.com/user/txma-/)
 
 
 
