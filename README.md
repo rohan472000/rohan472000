@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bes25zgu1d0c1.jpg?width=100&height=100)
-* Meme Author: [Leon_Homan](https://www.reddit.com/user/Leon_Homan/)
+![Funny Meme](https://i.redd.it/7rxpf4ut3b0c1.jpg?width=100&height=100)
+* Meme Author: [aquatic-gorilla](https://www.reddit.com/user/aquatic-gorilla/)
 
 
 
