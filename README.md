@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rc7ijlydoj0c1.jpg?width=100&height=100)
-* Meme Author: [TheSanityInspector](https://www.reddit.com/user/TheSanityInspector/)
+![Funny Meme](https://i.redd.it/7bnu7u6buc0c1.png?width=100&height=100)
+* Meme Author: [WayAgitated8646](https://www.reddit.com/user/WayAgitated8646/)
 
 
 
