@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0ysuyq7emh0c1.jpg?width=100&height=100)
-* Meme Author: [Berkeo3n](https://www.reddit.com/user/Berkeo3n/)
+![Funny Meme](https://i.redd.it/sz5lk34zec0c1.png?width=100&height=100)
+* Meme Author: [PimentoSandwich](https://www.reddit.com/user/PimentoSandwich/)
 
 
 
