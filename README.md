@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xhfueeh1dd0c1.jpg?width=100&height=100)
-* Meme Author: [Specialist-Score-819](https://www.reddit.com/user/Specialist-Score-819/)
+![Funny Meme](https://i.redd.it/9o3qsp263j0c1.jpg?width=100&height=100)
+* Meme Author: [Large-Wheel-4181](https://www.reddit.com/user/Large-Wheel-4181/)
 
 
 
