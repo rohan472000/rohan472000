@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ej5zsmppld0c1.png?width=100&height=100)
-* Meme Author: [SlamDunkCactus](https://www.reddit.com/user/SlamDunkCactus/)
+![Funny Meme](https://i.redd.it/m0ol4ielkd0c1.jpg?width=100&height=100)
+* Meme Author: [Alarming-Big8245](https://www.reddit.com/user/Alarming-Big8245/)
 
 
 
