@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d4mb0u3plb0c1.jpg?width=100&height=100)
-* Meme Author: [smol_boi-_-](https://www.reddit.com/user/smol_boi-_-/)
+![Funny Meme](https://i.redd.it/jygjsze10e0c1.jpg?width=100&height=100)
+* Meme Author: [DinglebarryHandpump](https://www.reddit.com/user/DinglebarryHandpump/)
 
 
 
