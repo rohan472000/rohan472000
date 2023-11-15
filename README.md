@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jygjsze10e0c1.jpg?width=100&height=100)
-* Meme Author: [DinglebarryHandpump](https://www.reddit.com/user/DinglebarryHandpump/)
+![Funny Meme](https://i.redd.it/ej5zsmppld0c1.png?width=100&height=100)
+* Meme Author: [SlamDunkCactus](https://www.reddit.com/user/SlamDunkCactus/)
 
 
 
