@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q3pdjtgp1g0c1.jpg?width=100&height=100)
-* Meme Author: [MayISoloHer](https://www.reddit.com/user/MayISoloHer/)
+![Funny Meme](https://i.redd.it/53mmipxduc0c1.png?width=100&height=100)
+* Meme Author: [Realtor_3605](https://www.reddit.com/user/Realtor_3605/)
 
 
 
