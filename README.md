@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/86216m.jpg?width=100&height=100)
-* Meme Author: [KJ_DiamondMiner](https://www.reddit.com/user/KJ_DiamondMiner/)
+![Funny Meme](https://i.redd.it/8w3j5030bh0c1.jpg?width=100&height=100)
+* Meme Author: [ChadT-70](https://www.reddit.com/user/ChadT-70/)
 
 
 
