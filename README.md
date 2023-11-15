@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ybrk0q1wvd0c1.png?width=100&height=100)
-* Meme Author: [GetEdgeful](https://www.reddit.com/user/GetEdgeful/)
+![Funny Meme](https://i.redd.it/rc7ijlydoj0c1.jpg?width=100&height=100)
+* Meme Author: [TheSanityInspector](https://www.reddit.com/user/TheSanityInspector/)
 
 
 
