@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t73e2kp9bi0c1.png?width=100&height=100)
-* Meme Author: [belovedstoneworker](https://www.reddit.com/user/belovedstoneworker/)
+![Funny Meme](https://i.redd.it/ysb1nfhkbi0c1.jpg?width=100&height=100)
+* Meme Author: [LennerKetty](https://www.reddit.com/user/LennerKetty/)
 
 
 
