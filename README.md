@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tp01nf4oej0c1.jpg?width=100&height=100)
-* Meme Author: [gods_of_shitposting](https://www.reddit.com/user/gods_of_shitposting/)
+![Funny Meme](https://i.redd.it/adac0q7uxf0c1.jpg?width=100&height=100)
+* Meme Author: [haha_memur87](https://www.reddit.com/user/haha_memur87/)
 
 
 
