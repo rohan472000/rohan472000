@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8w3j5030bh0c1.jpg?width=100&height=100)
-* Meme Author: [ChadT-70](https://www.reddit.com/user/ChadT-70/)
+![Funny Meme](https://i.redd.it/438rh65ywg0c1.jpg?width=100&height=100)
+* Meme Author: [SIRENZILA](https://www.reddit.com/user/SIRENZILA/)
 
 
 
