@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0x6zs7zkyf0c1.png?width=100&height=100)
-* Meme Author: [Crafter235](https://www.reddit.com/user/Crafter235/)
+![Funny Meme](https://i.redd.it/9kmuiw928g0c1.jpg?width=100&height=100)
+* Meme Author: [thomas_notthetrain](https://www.reddit.com/user/thomas_notthetrain/)
 
 
 
