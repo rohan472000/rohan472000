@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h9tosxadkc0c1.jpeg?width=100&height=100)
-* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
+![Funny Meme](https://i.redd.it/mox5cq566j0c1.jpg?width=100&height=100)
+* Meme Author: [so-like_juan](https://www.reddit.com/user/so-like_juan/)
 
 
 
