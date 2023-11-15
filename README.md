@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/44xb2j4bbg0c1.jpg?width=100&height=100)
-* Meme Author: [nickynickname](https://www.reddit.com/user/nickynickname/)
+![Funny Meme](https://i.redd.it/7iu5j808lb0c1.jpeg?width=100&height=100)
+* Meme Author: [katanaearth](https://www.reddit.com/user/katanaearth/)
 
 
 
