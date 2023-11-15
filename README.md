@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8iojzcttcb0c1.jpg?width=100&height=100)
-* Meme Author: [JacobJamesTrowbridge](https://www.reddit.com/user/JacobJamesTrowbridge/)
+![Funny Meme](https://i.redd.it/1gbz00gitd0c1.jpg?width=100&height=100)
+* Meme Author: [Bigfootsbrownstar](https://www.reddit.com/user/Bigfootsbrownstar/)
 
 
 
