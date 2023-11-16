@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gjj4j6fqcm0c1.png?width=100&height=100)
-* Meme Author: [TIGERFLAME26](https://www.reddit.com/user/TIGERFLAME26/)
+![Funny Meme](https://i.redd.it/ln7wxepqal0c1.jpg?width=100&height=100)
+* Meme Author: [sprititual_bank_alt](https://www.reddit.com/user/sprititual_bank_alt/)
 
 
 
