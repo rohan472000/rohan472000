@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8mqrdrjmpo0c1.jpg?width=100&height=100)
-* Meme Author: [Mr_Sterence66](https://www.reddit.com/user/Mr_Sterence66/)
+![Funny Meme](https://i.redd.it/chy4cti5pp0c1.jpeg?width=100&height=100)
+* Meme Author: [LackDecent](https://www.reddit.com/user/LackDecent/)
 
 
 
