@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/spj6umoi4n0c1.jpg?width=100&height=100)
-* Meme Author: [Potential_BadA55](https://www.reddit.com/user/Potential_BadA55/)
+![Funny Meme](https://i.redd.it/t5z1cdqhzj0c1.png?width=100&height=100)
+* Meme Author: [Snoo_72851](https://www.reddit.com/user/Snoo_72851/)
 
 
 
