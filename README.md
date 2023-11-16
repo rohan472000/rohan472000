@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vei2r7tjeo0c1.jpg?width=100&height=100)
-* Meme Author: [dogfoodgangsta](https://www.reddit.com/user/dogfoodgangsta/)
+![Funny Meme](https://i.redd.it/tl8yvk6gsq0c1.png?width=100&height=100)
+* Meme Author: [diceblue](https://www.reddit.com/user/diceblue/)
 
 
 
