@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fktk0gxs6l0c1.jpg?width=100&height=100)
-* Meme Author: [Hazarduz](https://www.reddit.com/user/Hazarduz/)
+![Funny Meme](https://i.redd.it/rgqygiafdn0c1.jpg?width=100&height=100)
+* Meme Author: [erockbrox](https://www.reddit.com/user/erockbrox/)
 
 
 
