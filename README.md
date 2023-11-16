@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0p3x58o4rj0c1.jpg?width=100&height=100)
-* Meme Author: [PowerfulOperation8](https://www.reddit.com/user/PowerfulOperation8/)
+![Funny Meme](https://i.redd.it/k9ir7nwire0c1.jpg?width=100&height=100)
+* Meme Author: [UltriLeginaXI](https://www.reddit.com/user/UltriLeginaXI/)
 
 
 
