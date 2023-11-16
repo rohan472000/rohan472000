@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zwc9rseopi0c1.jpg?width=100&height=100)
-* Meme Author: [Cenas_Shovel](https://www.reddit.com/user/Cenas_Shovel/)
+![Funny Meme](https://i.redd.it/6elyjgeckm0c1.jpg?width=100&height=100)
+* Meme Author: [WaferFab](https://www.reddit.com/user/WaferFab/)
 
 
 
