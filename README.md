@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gpfvcsvrlk0c1.jpg?width=100&height=100)
-* Meme Author: [fuckzwift](https://www.reddit.com/user/fuckzwift/)
+![Funny Meme](https://i.redd.it/bv49u5bg3j0c1.jpg?width=100&height=100)
+* Meme Author: [Kicco21](https://www.reddit.com/user/Kicco21/)
 
 
 
