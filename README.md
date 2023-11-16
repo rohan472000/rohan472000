@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f8lrf1fmnk0c1.jpg?width=100&height=100)
-* Meme Author: [kira156](https://www.reddit.com/user/kira156/)
+![Funny Meme](https://i.redd.it/owe7im7lwj0c1.jpg?width=100&height=100)
+* Meme Author: [iAmCokusBalus](https://www.reddit.com/user/iAmCokusBalus/)
 
 
 
