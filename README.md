@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bljrv27cxg0c1.jpg?width=100&height=100)
-* Meme Author: [SIRENZILA](https://www.reddit.com/user/SIRENZILA/)
+![Funny Meme](https://i.redd.it/wcjqp2u84l0c1.jpeg?width=100&height=100)
+* Meme Author: [ItsNormalNC](https://www.reddit.com/user/ItsNormalNC/)
 
 
 
