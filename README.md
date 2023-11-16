@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/25oguay8xp0c1.jpg?width=100&height=100)
-* Meme Author: [Glum-Reaction-8759](https://www.reddit.com/user/Glum-Reaction-8759/)
+![Funny Meme](https://i.redd.it/vei2r7tjeo0c1.jpg?width=100&height=100)
+* Meme Author: [dogfoodgangsta](https://www.reddit.com/user/dogfoodgangsta/)
 
 
 
