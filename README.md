@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i2ykis6csa0c1.png?width=100&height=100)
-* Meme Author: [rober9999](https://www.reddit.com/user/rober9999/)
+![Funny Meme](https://i.redd.it/bwuk1rsqsn0c1.png?width=100&height=100)
+* Meme Author: [Fulltime_Introvert](https://www.reddit.com/user/Fulltime_Introvert/)
 
 
 
