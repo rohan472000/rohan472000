@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bwuk1rsqsn0c1.png?width=100&height=100)
-* Meme Author: [Fulltime_Introvert](https://www.reddit.com/user/Fulltime_Introvert/)
+![Funny Meme](https://i.redd.it/mkocbx9ald0c1.jpeg?width=100&height=100)
+* Meme Author: [newhippi](https://www.reddit.com/user/newhippi/)
 
 
 
