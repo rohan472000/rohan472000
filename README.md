@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/adh9pfkp5m0c1.png?width=100&height=100)
-* Meme Author: [Felix-the-duck](https://www.reddit.com/user/Felix-the-duck/)
+![Funny Meme](https://i.redd.it/fktk0gxs6l0c1.jpg?width=100&height=100)
+* Meme Author: [Hazarduz](https://www.reddit.com/user/Hazarduz/)
 
 
 
