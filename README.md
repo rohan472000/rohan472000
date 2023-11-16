@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ozwexiwbtp0c1.jpg?width=100&height=100)
-* Meme Author: [Iphone_user528](https://www.reddit.com/user/Iphone_user528/)
+![Funny Meme](https://i.redd.it/s1hrp0pgyr0c1.jpg?width=100&height=100)
+* Meme Author: [bignerdiam](https://www.reddit.com/user/bignerdiam/)
 
 
 
