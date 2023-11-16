@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ysb1nfhkbi0c1.jpg?width=100&height=100)
-* Meme Author: [LennerKetty](https://www.reddit.com/user/LennerKetty/)
+![Funny Meme](https://i.redd.it/d8lcuqaeon0c1.jpg?width=100&height=100)
+* Meme Author: [PsychonautSurreality](https://www.reddit.com/user/PsychonautSurreality/)
 
 
 
