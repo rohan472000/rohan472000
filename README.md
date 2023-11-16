@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qmr52as82k0c1.jpg?width=100&height=100)
-* Meme Author: [TomTom101_](https://www.reddit.com/user/TomTom101_/)
+![Funny Meme](https://i.redd.it/bc7ybjuw3o0c1.jpg?width=100&height=100)
+* Meme Author: [Soul699](https://www.reddit.com/user/Soul699/)
 
 
 
