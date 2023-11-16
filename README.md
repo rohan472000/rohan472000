@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bv49u5bg3j0c1.jpg?width=100&height=100)
-* Meme Author: [Kicco21](https://www.reddit.com/user/Kicco21/)
+![Funny Meme](https://i.redd.it/c4cujcos7n0c1.jpg?width=100&height=100)
+* Meme Author: [PleasantDegree1917](https://www.reddit.com/user/PleasantDegree1917/)
 
 
 
