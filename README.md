@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mbktl5dkpp0c1.jpg?width=100&height=100)
-* Meme Author: [uppsak](https://www.reddit.com/user/uppsak/)
+![Funny Meme](https://i.imgur.com/MYTO8vR.jpg?width=100&height=100)
+* Meme Author: [QuicklyThisWay](https://www.reddit.com/user/QuicklyThisWay/)
 
 
 
