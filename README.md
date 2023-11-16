@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/owe7im7lwj0c1.jpg?width=100&height=100)
-* Meme Author: [iAmCokusBalus](https://www.reddit.com/user/iAmCokusBalus/)
+![Funny Meme](https://i.redd.it/bwuk1rsqsn0c1.png?width=100&height=100)
+* Meme Author: [Fulltime_Introvert](https://www.reddit.com/user/Fulltime_Introvert/)
 
 
 
