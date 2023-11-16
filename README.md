@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3idci8vjem0c1.jpg?width=100&height=100)
-* Meme Author: [Solid_Curve8763](https://www.reddit.com/user/Solid_Curve8763/)
+![Funny Meme](https://i.redd.it/zfmko5etof0c1.jpg?width=100&height=100)
+* Meme Author: [B_ThePsychopath](https://www.reddit.com/user/B_ThePsychopath/)
 
 
 
