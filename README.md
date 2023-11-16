@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k9ir7nwire0c1.jpg?width=100&height=100)
-* Meme Author: [UltriLeginaXI](https://www.reddit.com/user/UltriLeginaXI/)
+![Funny Meme](https://i.redd.it/zd3f3o73bn0c1.jpg?width=100&height=100)
+* Meme Author: [IcameInDadsCoffee](https://www.reddit.com/user/IcameInDadsCoffee/)
 
 
 
