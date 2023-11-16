@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8j7rp5lisq0c1.png?width=100&height=100)
-* Meme Author: [Pirokron](https://www.reddit.com/user/Pirokron/)
+![Funny Meme](https://i.redd.it/8yyoe38h7r0c1.jpg?width=100&height=100)
+* Meme Author: [MrCat_OnReddit](https://www.reddit.com/user/MrCat_OnReddit/)
 
 
 
