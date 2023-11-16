@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tfss2e0xfp0c1.jpg?width=100&height=100)
-* Meme Author: [coolsteelboyS4ndyBoy](https://www.reddit.com/user/coolsteelboyS4ndyBoy/)
+![Funny Meme](https://i.redd.it/1r7l9teqkd0c1.jpg?width=100&height=100)
+* Meme Author: [Slippy_T_Frog](https://www.reddit.com/user/Slippy_T_Frog/)
 
 
 
