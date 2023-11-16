@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mlx7xyuelk0c1.jpg?width=100&height=100)
-* Meme Author: [Accomplished_Ask_326](https://www.reddit.com/user/Accomplished_Ask_326/)
+![Funny Meme](https://i.redd.it/ukgg9xgj5q0c1.jpg?width=100&height=100)
+* Meme Author: [windowlicker1234](https://www.reddit.com/user/windowlicker1234/)
 
 
 
