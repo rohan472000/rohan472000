@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n70fve9xjq0c1.jpg?width=100&height=100)
-* Meme Author: [LordMrBoss](https://www.reddit.com/user/LordMrBoss/)
+![Funny Meme](https://i.redd.it/cbzd0p0t9q0c1.jpg?width=100&height=100)
+* Meme Author: [MH_Gamer_](https://www.reddit.com/user/MH_Gamer_/)
 
 
 
