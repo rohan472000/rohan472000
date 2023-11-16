@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5sgrcmop9l0c1.png?width=100&height=100)
-* Meme Author: [generalg28](https://www.reddit.com/user/generalg28/)
+![Funny Meme](https://i.redd.it/48mfmja5vm0c1.jpeg?width=100&height=100)
+* Meme Author: [GenericMarySue](https://www.reddit.com/user/GenericMarySue/)
 
 
 
