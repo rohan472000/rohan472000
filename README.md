@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wcjqp2u84l0c1.jpeg?width=100&height=100)
-* Meme Author: [ItsNormalNC](https://www.reddit.com/user/ItsNormalNC/)
+![Funny Meme](https://i.redd.it/bnokogj1jf0c1.jpg?width=100&height=100)
+* Meme Author: [CaptainNinjaClassic](https://www.reddit.com/user/CaptainNinjaClassic/)
 
 
 
