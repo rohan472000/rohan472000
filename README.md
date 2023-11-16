@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9oegb6kgym0c1.png?width=100&height=100)
-* Meme Author: [Pinl101](https://www.reddit.com/user/Pinl101/)
+![Funny Meme](https://i.redd.it/owe7im7lwj0c1.jpg?width=100&height=100)
+* Meme Author: [iAmCokusBalus](https://www.reddit.com/user/iAmCokusBalus/)
 
 
 
