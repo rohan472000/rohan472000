@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4bbgll9dql0c1.jpg?width=100&height=100)
-* Meme Author: [Mushroom_lady_mwaha](https://www.reddit.com/user/Mushroom_lady_mwaha/)
+![Funny Meme](https://i.redd.it/fb87dtbqvf0c1.jpg?width=100&height=100)
+* Meme Author: [Oddewalla](https://www.reddit.com/user/Oddewalla/)
 
 
 
