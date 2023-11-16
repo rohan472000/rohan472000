@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xfkww92e4n0c1.jpg?width=100&height=100)
-* Meme Author: [HIMUVI](https://www.reddit.com/user/HIMUVI/)
+![Funny Meme](https://i.redd.it/8mnkx362ag0c1.png?width=100&height=100)
+* Meme Author: [Chobitssu](https://www.reddit.com/user/Chobitssu/)
 
 
 
