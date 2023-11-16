@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pkl57fc9gf0c1.jpg?width=100&height=100)
-* Meme Author: [FitCompetition8803](https://www.reddit.com/user/FitCompetition8803/)
+![Funny Meme](https://i.redd.it/c6yfe57sfl0c1.jpg?width=100&height=100)
+* Meme Author: [EquipmentElegant](https://www.reddit.com/user/EquipmentElegant/)
 
 
 
