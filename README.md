@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zfmko5etof0c1.jpg?width=100&height=100)
-* Meme Author: [B_ThePsychopath](https://www.reddit.com/user/B_ThePsychopath/)
+![Funny Meme](https://i.redd.it/644ctqgzam0c1.jpg?width=100&height=100)
+* Meme Author: [DripTheSeawing411](https://www.reddit.com/user/DripTheSeawing411/)
 
 
 
