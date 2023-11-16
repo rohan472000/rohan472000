@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/43kre1hs3r0c1.jpeg?width=100&height=100)
-* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
+![Funny Meme](https://i.redd.it/ysb1nfhkbi0c1.jpg?width=100&height=100)
+* Meme Author: [LennerKetty](https://www.reddit.com/user/LennerKetty/)
 
 
 
