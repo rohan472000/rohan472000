@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/owe7im7lwj0c1.jpg?width=100&height=100)
-* Meme Author: [iAmCokusBalus](https://www.reddit.com/user/iAmCokusBalus/)
+![Funny Meme](https://i.redd.it/spj6umoi4n0c1.jpg?width=100&height=100)
+* Meme Author: [Potential_BadA55](https://www.reddit.com/user/Potential_BadA55/)
 
 
 
