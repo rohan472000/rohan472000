@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/866etp.jpg?width=100&height=100)
-* Meme Author: [Beave1](https://www.reddit.com/user/Beave1/)
+![Funny Meme](https://i.redd.it/y9klc15yxp0c1.jpg?width=100&height=100)
+* Meme Author: [Known_Ad5783](https://www.reddit.com/user/Known_Ad5783/)
 
 
 
