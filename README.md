@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ukgg9xgj5q0c1.jpg?width=100&height=100)
-* Meme Author: [windowlicker1234](https://www.reddit.com/user/windowlicker1234/)
+![Funny Meme](https://i.redd.it/s2ofbpz3hk0c1.jpg?width=100&height=100)
+* Meme Author: [Gryffindumble](https://www.reddit.com/user/Gryffindumble/)
 
 
 
