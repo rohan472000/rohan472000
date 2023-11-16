@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uzpctydikk0c1.jpg?width=100&height=100)
-* Meme Author: [TheWiseAutisticOne](https://www.reddit.com/user/TheWiseAutisticOne/)
+![Funny Meme](https://i.redd.it/xdfz6q11vj0c1.jpg?width=100&height=100)
+* Meme Author: [Content_Dragonfly_53](https://www.reddit.com/user/Content_Dragonfly_53/)
 
 
 
