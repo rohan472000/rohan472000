@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fb87dtbqvf0c1.jpg?width=100&height=100)
-* Meme Author: [Oddewalla](https://www.reddit.com/user/Oddewalla/)
+![Funny Meme](https://i.redd.it/f8lrf1fmnk0c1.jpg?width=100&height=100)
+* Meme Author: [kira156](https://www.reddit.com/user/kira156/)
 
 
 
