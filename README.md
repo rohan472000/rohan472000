@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1nk7x7qhmm0c1.jpeg?width=100&height=100)
-* Meme Author: [SuspiciousStation106](https://www.reddit.com/user/SuspiciousStation106/)
+![Funny Meme](https://i.redd.it/644ctqgzam0c1.jpg?width=100&height=100)
+* Meme Author: [DripTheSeawing411](https://www.reddit.com/user/DripTheSeawing411/)
 
 
 
