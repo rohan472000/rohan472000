@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cy6kujyfbq0c1.jpg?width=100&height=100)
-* Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
+![Funny Meme](https://i.redd.it/ln7wxepqal0c1.jpg?width=100&height=100)
+* Meme Author: [sprititual_bank_alt](https://www.reddit.com/user/sprititual_bank_alt/)
 
 
 
