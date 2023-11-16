@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rrkjr68sak0c1.png?width=100&height=100)
-* Meme Author: [pizzatimein24h](https://www.reddit.com/user/pizzatimein24h/)
+![Funny Meme](https://i.redd.it/6a40iynv8m0c1.jpg?width=100&height=100)
+* Meme Author: [Content_Dragonfly_53](https://www.reddit.com/user/Content_Dragonfly_53/)
 
 
 
