@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gzpteb4u1i0c1.png?width=100&height=100)
-* Meme Author: [whenuleavethestoveon](https://www.reddit.com/user/whenuleavethestoveon/)
+![Funny Meme](https://i.redd.it/c1i8fm50dk0c1.jpeg?width=100&height=100)
+* Meme Author: [PeevesPoltergist](https://www.reddit.com/user/PeevesPoltergist/)
 
 
 
