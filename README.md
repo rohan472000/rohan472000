@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/48mfmja5vm0c1.jpeg?width=100&height=100)
-* Meme Author: [GenericMarySue](https://www.reddit.com/user/GenericMarySue/)
+![Funny Meme](https://i.redd.it/97zbyr91vh0c1.jpg?width=100&height=100)
+* Meme Author: [WhiteLothCat](https://www.reddit.com/user/WhiteLothCat/)
 
 
 
