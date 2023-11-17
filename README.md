@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9ao3gwzows0c1.jpg?width=100&height=100)
-* Meme Author: [20Akif](https://www.reddit.com/user/20Akif/)
+![Funny Meme](https://i.redd.it/sq6ytkvr7s0c1.jpg?width=100&height=100)
+* Meme Author: [realcat67](https://www.reddit.com/user/realcat67/)
 
 
 
