@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ve003o72ry0c1.jpg?width=100&height=100)
-* Meme Author: [TheFogIsComingNR3](https://www.reddit.com/user/TheFogIsComingNR3/)
+![Funny Meme](https://i.redd.it/98s47fktjy0c1.png?width=100&height=100)
+* Meme Author: [LakesideNorth](https://www.reddit.com/user/LakesideNorth/)
 
 
 
