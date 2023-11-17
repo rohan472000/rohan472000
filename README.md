@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f6tfl718zr0c1.jpg?width=100&height=100)
-* Meme Author: [Unable-Difference-55](https://www.reddit.com/user/Unable-Difference-55/)
+![Funny Meme](https://i.redd.it/s1hrp0pgyr0c1.jpg?width=100&height=100)
+* Meme Author: [bignerdiam](https://www.reddit.com/user/bignerdiam/)
 
 
 
