@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/99ltuc0vwl0c1.jpg?width=100&height=100)
-* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
+![Funny Meme](https://i.redd.it/8j7rp5lisq0c1.png?width=100&height=100)
+* Meme Author: [Pirokron](https://www.reddit.com/user/Pirokron/)
 
 
 
