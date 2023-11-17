@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d8lcuqaeon0c1.jpg?width=100&height=100)
-* Meme Author: [PsychonautSurreality](https://www.reddit.com/user/PsychonautSurreality/)
+![Funny Meme](https://i.redd.it/og4a2qaxam0c1.png?width=100&height=100)
+* Meme Author: [Galaxy_Voidd](https://www.reddit.com/user/Galaxy_Voidd/)
 
 
 
