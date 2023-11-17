@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s13wvs65lv0c1.jpg?width=100&height=100)
-* Meme Author: [Giulio_otto](https://www.reddit.com/user/Giulio_otto/)
+![Funny Meme](https://i.redd.it/me7qsxuatv0c1.png?width=100&height=100)
+* Meme Author: [Sensitive_Swimming29](https://www.reddit.com/user/Sensitive_Swimming29/)
 
 
 
