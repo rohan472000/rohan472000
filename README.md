@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/za5uk6n6yp0c1.jpeg?width=100&height=100)
-* Meme Author: [Holofan4life](https://www.reddit.com/user/Holofan4life/)
+![Funny Meme](https://i.redd.it/7fdt85746q0c1.png?width=100&height=100)
+* Meme Author: [TurtleRiot](https://www.reddit.com/user/TurtleRiot/)
 
 
 
