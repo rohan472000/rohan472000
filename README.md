@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nyx0tqkj3r0c1.jpeg?width=100&height=100)
-* Meme Author: [TyDydPony](https://www.reddit.com/user/TyDydPony/)
+![Funny Meme](https://i.redd.it/33fu0v7w1y0c1.jpg?width=100&height=100)
+* Meme Author: [DrSanwich](https://www.reddit.com/user/DrSanwich/)
 
 
 
