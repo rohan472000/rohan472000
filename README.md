@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ptamjf3hrt0c1.jpg?width=100&height=100)
-* Meme Author: [ElectroWasTaken1](https://www.reddit.com/user/ElectroWasTaken1/)
+![Funny Meme](https://i.redd.it/cy9laxgwxv0c1.jpeg?width=100&height=100)
+* Meme Author: [Dangerous-Ant-3482](https://www.reddit.com/user/Dangerous-Ant-3482/)
 
 
 
