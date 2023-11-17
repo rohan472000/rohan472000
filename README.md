@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4bf87sbswt0c1.png?width=100&height=100)
-* Meme Author: [TakoFry](https://www.reddit.com/user/TakoFry/)
+![Funny Meme](https://i.redd.it/x7jsv2s4du0c1.jpg?width=100&height=100)
+* Meme Author: [DBL_NDRSCR](https://www.reddit.com/user/DBL_NDRSCR/)
 
 
 
