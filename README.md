@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/og4a2qaxam0c1.png?width=100&height=100)
-* Meme Author: [Galaxy_Voidd](https://www.reddit.com/user/Galaxy_Voidd/)
+![Funny Meme](https://i.redd.it/ugixwxyrkm0c1.jpg?width=100&height=100)
+* Meme Author: [haa-tim-hen-tie](https://www.reddit.com/user/haa-tim-hen-tie/)
 
 
 
