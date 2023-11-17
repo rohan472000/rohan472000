@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rjugqbuagq0c1.jpg?width=100&height=100)
-* Meme Author: [TorbenGHG](https://www.reddit.com/user/TorbenGHG/)
+![Funny Meme](https://i.redd.it/1itgwah6yr0c1.jpeg?width=100&height=100)
+* Meme Author: [Mastercapybara](https://www.reddit.com/user/Mastercapybara/)
 
 
 
