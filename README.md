@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ugixwxyrkm0c1.jpg?width=100&height=100)
-* Meme Author: [haa-tim-hen-tie](https://www.reddit.com/user/haa-tim-hen-tie/)
+![Funny Meme](https://i.redd.it/s1hrp0pgyr0c1.jpg?width=100&height=100)
+* Meme Author: [bignerdiam](https://www.reddit.com/user/bignerdiam/)
 
 
 
