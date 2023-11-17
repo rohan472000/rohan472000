@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sq6ytkvr7s0c1.jpg?width=100&height=100)
-* Meme Author: [realcat67](https://www.reddit.com/user/realcat67/)
+![Funny Meme](https://i.imgflip.com/86bacu.jpg?width=100&height=100)
+* Meme Author: [throwawaysnitch4cash](https://www.reddit.com/user/throwawaysnitch4cash/)
 
 
 
