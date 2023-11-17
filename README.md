@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3m2waj1pmw0c1.jpg?width=100&height=100)
-* Meme Author: [Gone_Mads](https://www.reddit.com/user/Gone_Mads/)
+![Funny Meme](https://i.redd.it/u750v3kdsr0c1.jpg?width=100&height=100)
+* Meme Author: [alessandropollok](https://www.reddit.com/user/alessandropollok/)
 
 
 
