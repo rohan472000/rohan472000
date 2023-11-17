@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8mqrdrjmpo0c1.jpg?width=100&height=100)
-* Meme Author: [Mr_Sterence66](https://www.reddit.com/user/Mr_Sterence66/)
+![Funny Meme](https://i.redd.it/d8lcuqaeon0c1.jpg?width=100&height=100)
+* Meme Author: [PsychonautSurreality](https://www.reddit.com/user/PsychonautSurreality/)
 
 
 
