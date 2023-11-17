@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m1o8lfglkt0c1.jpeg?width=100&height=100)
-* Meme Author: [Neon_Genisis](https://www.reddit.com/user/Neon_Genisis/)
+![Funny Meme](https://i.redd.it/skckckaqto0c1.jpg?width=100&height=100)
+* Meme Author: [Thewolfdarker](https://www.reddit.com/user/Thewolfdarker/)
 
 
 
