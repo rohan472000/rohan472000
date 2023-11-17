@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i8v2lryyyv0c1.jpg?width=100&height=100)
-* Meme Author: [buffering_neurons](https://www.reddit.com/user/buffering_neurons/)
+![Funny Meme](https://i.redd.it/4squ582ozs0c1.jpeg?width=100&height=100)
+* Meme Author: [1mHero](https://www.reddit.com/user/1mHero/)
 
 
 
