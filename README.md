@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/whjeja8zpt0c1.png?width=100&height=100)
-* Meme Author: [Darkuwu_](https://www.reddit.com/user/Darkuwu_/)
+![Funny Meme](https://i.redd.it/ugixwxyrkm0c1.jpg?width=100&height=100)
+* Meme Author: [haa-tim-hen-tie](https://www.reddit.com/user/haa-tim-hen-tie/)
 
 
 
