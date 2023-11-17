@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v541xqz84t0c1.jpg?width=100&height=100)
-* Meme Author: [Smidge_Master](https://www.reddit.com/user/Smidge_Master/)
+![Funny Meme](https://i.redd.it/vwt4jnp6xu0c1.jpg?width=100&height=100)
+* Meme Author: [MeiMei-Zing](https://www.reddit.com/user/MeiMei-Zing/)
 
 
 
