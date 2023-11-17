@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/horn1y8fgu0c1.jpg?width=100&height=100)
-* Meme Author: [HythlodaeusHuxley](https://www.reddit.com/user/HythlodaeusHuxley/)
+![Funny Meme](https://i.redd.it/4squ582ozs0c1.jpeg?width=100&height=100)
+* Meme Author: [1mHero](https://www.reddit.com/user/1mHero/)
 
 
 
