@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2pff5crskt0c1.jpg?width=100&height=100)
-* Meme Author: [AnarkGaming](https://www.reddit.com/user/AnarkGaming/)
+![Funny Meme](https://i.redd.it/8mqrdrjmpo0c1.jpg?width=100&height=100)
+* Meme Author: [Mr_Sterence66](https://www.reddit.com/user/Mr_Sterence66/)
 
 
 
