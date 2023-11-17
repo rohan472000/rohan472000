@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2987n9ijlv0c1.jpg?width=100&height=100)
-* Meme Author: [homelander_30](https://www.reddit.com/user/homelander_30/)
+![Funny Meme](https://i.redd.it/jk1pxpmkoj0c1.jpg?width=100&height=100)
+* Meme Author: [ibnugamingyt12](https://www.reddit.com/user/ibnugamingyt12/)
 
 
 
