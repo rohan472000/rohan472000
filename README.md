@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/si79nmyw0y0c1.jpg?width=100&height=100)
-* Meme Author: [mezcalligraphy](https://www.reddit.com/user/mezcalligraphy/)
+![Funny Meme](https://i.redd.it/jkzw2xp2pv0c1.png?width=100&height=100)
+* Meme Author: [A_Lost_Yen](https://www.reddit.com/user/A_Lost_Yen/)
 
 
 
