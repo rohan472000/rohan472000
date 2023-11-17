@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/saoxc2qhhs0c1.jpg?width=100&height=100)
-* Meme Author: [NolanTacoKing](https://www.reddit.com/user/NolanTacoKing/)
+![Funny Meme](https://i.redd.it/4njercsrwq0c1.png?width=100&height=100)
+* Meme Author: [Realtor_3605](https://www.reddit.com/user/Realtor_3605/)
 
 
 
