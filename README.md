@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d65gkv1k8q0c1.jpg?width=100&height=100)
-* Meme Author: [NonverbalGore24](https://www.reddit.com/user/NonverbalGore24/)
+![Funny Meme](https://i.redd.it/rjugqbuagq0c1.jpg?width=100&height=100)
+* Meme Author: [TorbenGHG](https://www.reddit.com/user/TorbenGHG/)
 
 
 
