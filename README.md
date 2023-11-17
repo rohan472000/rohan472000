@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vwt4jnp6xu0c1.jpg?width=100&height=100)
-* Meme Author: [MeiMei-Zing](https://www.reddit.com/user/MeiMei-Zing/)
+![Funny Meme](https://i.redd.it/ec73axrryr0c1.jpg?width=100&height=100)
+* Meme Author: [tnonne](https://www.reddit.com/user/tnonne/)
 
 
 
