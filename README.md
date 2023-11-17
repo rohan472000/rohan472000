@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/416livoe7z0c1.jpg?width=100&height=100)
-* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
+![Funny Meme](https://i.redd.it/48rp949iyx0c1.jpg?width=100&height=100)
+* Meme Author: [PoopPoes](https://www.reddit.com/user/PoopPoes/)
 
 
 
