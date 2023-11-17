@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/skckckaqto0c1.jpg?width=100&height=100)
-* Meme Author: [Thewolfdarker](https://www.reddit.com/user/Thewolfdarker/)
+![Funny Meme](https://i.redd.it/tl8yvk6gsq0c1.png?width=100&height=100)
+* Meme Author: [diceblue](https://www.reddit.com/user/diceblue/)
 
 
 
