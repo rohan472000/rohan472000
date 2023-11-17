@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yeg0zu23qv0c1.jpeg?width=100&height=100)
-* Meme Author: [Interesting_Way8431](https://www.reddit.com/user/Interesting_Way8431/)
+![Funny Meme](https://i.redd.it/e4xa65kzdu0c1.png?width=100&height=100)
+* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
 
 
 
