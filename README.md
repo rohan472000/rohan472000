@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zp2txxyxys0c1.jpg?width=100&height=100)
-* Meme Author: [gb1609](https://www.reddit.com/user/gb1609/)
+![Funny Meme](https://i.redd.it/fqqdq2ni8w0c1.jpeg?width=100&height=100)
+* Meme Author: [PetyrDayne](https://www.reddit.com/user/PetyrDayne/)
 
 
 
