@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1vtn1oqwcz0c1.jpg?width=100&height=100)
-* Meme Author: [NotThat_Chick](https://www.reddit.com/user/NotThat_Chick/)
+![Funny Meme](https://i.redd.it/4bf87sbswt0c1.png?width=100&height=100)
+* Meme Author: [TakoFry](https://www.reddit.com/user/TakoFry/)
 
 
 
