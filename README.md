@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c1imzih8ft0c1.png?width=100&height=100)
-* Meme Author: [Convert3d](https://www.reddit.com/user/Convert3d/)
+![Funny Meme](https://i.redd.it/i8v2lryyyv0c1.jpg?width=100&height=100)
+* Meme Author: [buffering_neurons](https://www.reddit.com/user/buffering_neurons/)
 
 
 
