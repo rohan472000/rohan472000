@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h06664ncju0c1.jpg?width=100&height=100)
-* Meme Author: [ThrowAwayRayye](https://www.reddit.com/user/ThrowAwayRayye/)
+![Funny Meme](https://i.redd.it/2pff5crskt0c1.jpg?width=100&height=100)
+* Meme Author: [AnarkGaming](https://www.reddit.com/user/AnarkGaming/)
 
 
 
