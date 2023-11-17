@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgflip.com/86bacu.jpg?width=100&height=100)
-* Meme Author: [throwawaysnitch4cash](https://www.reddit.com/user/throwawaysnitch4cash/)
+![Funny Meme](https://i.redd.it/be7uaa68rl0c1.jpg?width=100&height=100)
+* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
 
 
 
