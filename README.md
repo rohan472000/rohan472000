@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n55vzv0l0t0c1.jpg?width=100&height=100)
-* Meme Author: [RebelScum10576](https://www.reddit.com/user/RebelScum10576/)
+![Funny Meme](https://i.redd.it/3l8lwpkgew0c1.jpg?width=100&height=100)
+* Meme Author: [coolsteelboyS4ndyBoy](https://www.reddit.com/user/coolsteelboyS4ndyBoy/)
 
 
 
