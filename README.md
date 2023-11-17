@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7zz4yj1abp0c1.jpg?width=100&height=100)
-* Meme Author: [Normal_Kitty](https://www.reddit.com/user/Normal_Kitty/)
+![Funny Meme](https://i.redd.it/m1o8lfglkt0c1.jpeg?width=100&height=100)
+* Meme Author: [Neon_Genisis](https://www.reddit.com/user/Neon_Genisis/)
 
 
 
