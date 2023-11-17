@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pp92skd2cv0c1.jpeg?width=100&height=100)
-* Meme Author: [TeemixMeme](https://www.reddit.com/user/TeemixMeme/)
+![Funny Meme](https://i.redd.it/dbbw60xbyv0c1.jpg?width=100&height=100)
+* Meme Author: [omegaman101](https://www.reddit.com/user/omegaman101/)
 
 
 
