@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s1hrp0pgyr0c1.jpg?width=100&height=100)
-* Meme Author: [bignerdiam](https://www.reddit.com/user/bignerdiam/)
+![Funny Meme](https://i.redd.it/u750v3kdsr0c1.jpg?width=100&height=100)
+* Meme Author: [alessandropollok](https://www.reddit.com/user/alessandropollok/)
 
 
 
