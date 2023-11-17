@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lkaqcuycww0c1.jpg?width=100&height=100)
-* Meme Author: [KoopaNetwork](https://www.reddit.com/user/KoopaNetwork/)
+![Funny Meme](https://i.redd.it/2wmu2pxw0x0c1.jpg?width=100&height=100)
+* Meme Author: [danny_divillo](https://www.reddit.com/user/danny_divillo/)
 
 
 
