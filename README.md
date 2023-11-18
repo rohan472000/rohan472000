@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/av9zz7gti01c1.jpg?width=100&height=100)
-* Meme Author: [Themadidiot420](https://www.reddit.com/user/Themadidiot420/)
+![Funny Meme](https://i.redd.it/zni771tzb61c1.jpg?width=100&height=100)
+* Meme Author: [OurImperfectWorld](https://www.reddit.com/user/OurImperfectWorld/)
 
 
 
