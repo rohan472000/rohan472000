@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lsisd4r11x0c1.jpeg?width=100&height=100)
-* Meme Author: [per_alt_delete](https://www.reddit.com/user/per_alt_delete/)
+![Funny Meme](https://i.redd.it/trbtjxwfkz0c1.png?width=100&height=100)
+* Meme Author: [Malkovitch42](https://www.reddit.com/user/Malkovitch42/)
 
 
 
