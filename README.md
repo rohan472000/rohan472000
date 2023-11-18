@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l2vgmcwxwy0c1.png?width=100&height=100)
-* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
+![Funny Meme](https://i.redd.it/7bdptbremv0c1.jpg?width=100&height=100)
+* Meme Author: [stevemanns](https://www.reddit.com/user/stevemanns/)
 
 
 
