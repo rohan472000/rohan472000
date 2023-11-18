@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/omint9ecv21c1.jpeg?width=100&height=100)
-* Meme Author: [SoulSeizer](https://www.reddit.com/user/SoulSeizer/)
+![Funny Meme](https://i.redd.it/m2ne1eg65x0c1.jpg?width=100&height=100)
+* Meme Author: [PetiteAsianSE](https://www.reddit.com/user/PetiteAsianSE/)
 
 
 
