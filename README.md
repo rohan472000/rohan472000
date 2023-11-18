@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5nxzs5c83y0c1.jpeg?width=100&height=100)
-* Meme Author: [Gold_Ingot_555](https://www.reddit.com/user/Gold_Ingot_555/)
+![Funny Meme](https://i.redd.it/bqfgg1dwow0c1.jpg?width=100&height=100)
+* Meme Author: [SophieByers](https://www.reddit.com/user/SophieByers/)
 
 
 
