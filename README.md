@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ty4uah4q131c1.jpg?width=100&height=100)
-* Meme Author: [thethreateninggeek](https://www.reddit.com/user/thethreateninggeek/)
+![Funny Meme](https://i.redd.it/s13wvs65lv0c1.jpg?width=100&height=100)
+* Meme Author: [Giulio_otto](https://www.reddit.com/user/Giulio_otto/)
 
 
 
