@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1c1g806by41c1.png?width=100&height=100)
-* Meme Author: [Uncanny_M](https://www.reddit.com/user/Uncanny_M/)
+![Funny Meme](https://i.redd.it/av9zz7gti01c1.jpg?width=100&height=100)
+* Meme Author: [Themadidiot420](https://www.reddit.com/user/Themadidiot420/)
 
 
 
