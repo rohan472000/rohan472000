@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0sv0cm4rrx0c1.jpg?width=100&height=100)
-* Meme Author: [simplyperk](https://www.reddit.com/user/simplyperk/)
+![Funny Meme](https://i.redd.it/22z5g1wvt51c1.jpeg?width=100&height=100)
+* Meme Author: [Dangerous-Ant-3482](https://www.reddit.com/user/Dangerous-Ant-3482/)
 
 
 
