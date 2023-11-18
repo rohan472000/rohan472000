@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ffrhlrysmz0c1.png?width=100&height=100)
-* Meme Author: [Lyvelion](https://www.reddit.com/user/Lyvelion/)
+![Funny Meme](https://i.redd.it/menwfk003x0c1.jpg?width=100&height=100)
+* Meme Author: [_amihelping_](https://www.reddit.com/user/_amihelping_/)
 
 
 
