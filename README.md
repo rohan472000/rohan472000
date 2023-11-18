@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fcrtkb44201c1.jpeg?width=100&height=100)
-* Meme Author: [Common-Rock](https://www.reddit.com/user/Common-Rock/)
+![Funny Meme](https://i.redd.it/l2vgmcwxwy0c1.png?width=100&height=100)
+* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
 
 
 
