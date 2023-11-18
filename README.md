@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nivplje1b01c1.jpg?width=100&height=100)
-* Meme Author: [AvacadoToast21](https://www.reddit.com/user/AvacadoToast21/)
+![Funny Meme](https://i.redd.it/g75ytcgiwy0c1.jpeg?width=100&height=100)
+* Meme Author: [Mastercapybara](https://www.reddit.com/user/Mastercapybara/)
 
 
 
