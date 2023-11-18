@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/njowgvd0701c1.jpg?width=100&height=100)
-* Meme Author: [pinktopprincess](https://www.reddit.com/user/pinktopprincess/)
+![Funny Meme](https://i.redd.it/1c1g806by41c1.png?width=100&height=100)
+* Meme Author: [Uncanny_M](https://www.reddit.com/user/Uncanny_M/)
 
 
 
