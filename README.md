@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jno6lkuw1z0c1.jpg?width=100&height=100)
-* Meme Author: [txptwxzapp](https://www.reddit.com/user/txptwxzapp/)
+![Funny Meme](https://i.redd.it/eg1qmi3xwz0c1.jpg?width=100&height=100)
+* Meme Author: [BigClitMcphee](https://www.reddit.com/user/BigClitMcphee/)
 
 
 
