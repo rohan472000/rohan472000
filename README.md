@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ptamjf3hrt0c1.jpg?width=100&height=100)
-* Meme Author: [ElectroWasTaken1](https://www.reddit.com/user/ElectroWasTaken1/)
+![Funny Meme](https://i.redd.it/66h8hdfk751c1.png?width=100&height=100)
+* Meme Author: [nitro____zeus](https://www.reddit.com/user/nitro____zeus/)
 
 
 
