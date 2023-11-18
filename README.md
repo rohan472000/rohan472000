@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vsut9b8gcz0c1.png?width=100&height=100)
-* Meme Author: [Lumpy_Forever_98](https://www.reddit.com/user/Lumpy_Forever_98/)
+![Funny Meme](https://i.redd.it/z5siuexzj11c1.jpg?width=100&height=100)
+* Meme Author: [lostlife27](https://www.reddit.com/user/lostlife27/)
 
 
 
