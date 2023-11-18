@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e8t4z1eq4t0c1.jpg?width=100&height=100)
-* Meme Author: [Bromanzier_03](https://www.reddit.com/user/Bromanzier_03/)
+![Funny Meme](https://i.redd.it/m8kb2p39ou0c1.jpeg?width=100&height=100)
+* Meme Author: [RiskNew6639](https://www.reddit.com/user/RiskNew6639/)
 
 
 
