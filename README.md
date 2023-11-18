@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e6bmfpm6yy0c1.jpg?width=100&height=100)
-* Meme Author: [LowVermicelli6464](https://www.reddit.com/user/LowVermicelli6464/)
+![Funny Meme](https://i.redd.it/kijh5sscg11c1.jpg?width=100&height=100)
+* Meme Author: [TheMightyFlyingSloth](https://www.reddit.com/user/TheMightyFlyingSloth/)
 
 
 
