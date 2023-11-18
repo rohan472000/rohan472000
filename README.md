@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/giuc75fj751c1.jpeg?width=100&height=100)
-* Meme Author: [I-HaveAReasonToo](https://www.reddit.com/user/I-HaveAReasonToo/)
+![Funny Meme](https://i.redd.it/njowgvd0701c1.jpg?width=100&height=100)
+* Meme Author: [pinktopprincess](https://www.reddit.com/user/pinktopprincess/)
 
 
 
