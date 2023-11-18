@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xxkhj5sh601c1.png?width=100&height=100)
-* Meme Author: [Accomplished_Ask_326](https://www.reddit.com/user/Accomplished_Ask_326/)
+![Funny Meme](https://i.redd.it/btm0bfucv01c1.jpg?width=100&height=100)
+* Meme Author: [Hondipo](https://www.reddit.com/user/Hondipo/)
 
 
 
