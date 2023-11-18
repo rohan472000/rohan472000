@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rkoesap4z31c1.jpg?width=100&height=100)
-* Meme Author: [Hartleydavidson96](https://www.reddit.com/user/Hartleydavidson96/)
+![Funny Meme](https://i.redd.it/ck029k63u31c1.jpg?width=100&height=100)
+* Meme Author: [No_Team6703](https://www.reddit.com/user/No_Team6703/)
 
 
 
