@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wkysg6khhx0c1.jpg?width=100&height=100)
-* Meme Author: [Opening_Box6468](https://www.reddit.com/user/Opening_Box6468/)
+![Funny Meme](https://i.redd.it/n55vzv0l0t0c1.jpg?width=100&height=100)
+* Meme Author: [RebelScum10576](https://www.reddit.com/user/RebelScum10576/)
 
 
 
