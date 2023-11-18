@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uijp0tey6t0c1.jpg?width=100&height=100)
-* Meme Author: [Pretty-Marketing3444](https://www.reddit.com/user/Pretty-Marketing3444/)
+![Funny Meme](https://i.redd.it/hgcanioaj01c1.jpeg?width=100&height=100)
+* Meme Author: [CT-2632_Jaax](https://www.reddit.com/user/CT-2632_Jaax/)
 
 
 
