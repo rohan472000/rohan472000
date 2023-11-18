@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qjappfb63x0c1.jpg?width=100&height=100)
-* Meme Author: [MorbiusBurger](https://www.reddit.com/user/MorbiusBurger/)
+![Funny Meme](https://i.redd.it/0i7t8mogty0c1.jpg?width=100&height=100)
+* Meme Author: [Wellant](https://www.reddit.com/user/Wellant/)
 
 
 
