@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8fa9afbtax0c1.png?width=100&height=100)
-* Meme Author: [Snapships4life](https://www.reddit.com/user/Snapships4life/)
+![Funny Meme](https://i.redd.it/427jg33w931c1.jpg?width=100&height=100)
+* Meme Author: [FrankieGS](https://www.reddit.com/user/FrankieGS/)
 
 
 
