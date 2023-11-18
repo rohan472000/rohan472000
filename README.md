@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h4xigubhh01c1.jpg?width=100&height=100)
-* Meme Author: [Scaniatex](https://www.reddit.com/user/Scaniatex/)
+![Funny Meme](https://i.redd.it/cnu7ftktus0c1.png?width=100&height=100)
+* Meme Author: [nlwfty](https://www.reddit.com/user/nlwfty/)
 
 
 
