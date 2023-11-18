@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9rwyurhmdz0c1.jpg?width=100&height=100)
-* Meme Author: [PauloDybala_10](https://www.reddit.com/user/PauloDybala_10/)
+![Funny Meme](https://i.redd.it/e4xa65kzdu0c1.png?width=100&height=100)
+* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
 
 
 
