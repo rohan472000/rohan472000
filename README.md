@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kijh5sscg11c1.jpg?width=100&height=100)
-* Meme Author: [TheMightyFlyingSloth](https://www.reddit.com/user/TheMightyFlyingSloth/)
+![Funny Meme](https://i.redd.it/yk3xw73zby0c1.jpeg?width=100&height=100)
+* Meme Author: [HanahBananahX](https://www.reddit.com/user/HanahBananahX/)
 
 
 
