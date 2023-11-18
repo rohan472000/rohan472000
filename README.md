@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dfsgip56o31c1.png?width=100&height=100)
-* Meme Author: [MR_DERP_YT](https://www.reddit.com/user/MR_DERP_YT/)
+![Funny Meme](https://i.redd.it/ck029k63u31c1.jpg?width=100&height=100)
+* Meme Author: [No_Team6703](https://www.reddit.com/user/No_Team6703/)
 
 
 
