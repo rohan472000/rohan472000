@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/klop3z81ax0c1.jpg?width=100&height=100)
-* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
+![Funny Meme](https://i.redd.it/8fa9afbtax0c1.png?width=100&height=100)
+* Meme Author: [Snapships4life](https://www.reddit.com/user/Snapships4life/)
 
 
 
