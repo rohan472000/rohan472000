@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s13wvs65lv0c1.jpg?width=100&height=100)
-* Meme Author: [Giulio_otto](https://www.reddit.com/user/Giulio_otto/)
+![Funny Meme](https://i.redd.it/m8zvmsc45x0c1.jpg?width=100&height=100)
+* Meme Author: [IdiotGiraffe0](https://www.reddit.com/user/IdiotGiraffe0/)
 
 
 
