@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zni771tzb61c1.jpg?width=100&height=100)
-* Meme Author: [OurImperfectWorld](https://www.reddit.com/user/OurImperfectWorld/)
+![Funny Meme](https://i.redd.it/yupgsa0j9y0c1.jpg?width=100&height=100)
+* Meme Author: [mezcalligraphy](https://www.reddit.com/user/mezcalligraphy/)
 
 
 
