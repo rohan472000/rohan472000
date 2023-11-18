@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bqfgg1dwow0c1.jpg?width=100&height=100)
-* Meme Author: [SophieByers](https://www.reddit.com/user/SophieByers/)
+![Funny Meme](https://i.redd.it/b8q5do70nz0c1.jpg?width=100&height=100)
+* Meme Author: [Alarming-Big8245](https://www.reddit.com/user/Alarming-Big8245/)
 
 
 
