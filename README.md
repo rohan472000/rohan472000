@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yk3xw73zby0c1.jpeg?width=100&height=100)
-* Meme Author: [HanahBananahX](https://www.reddit.com/user/HanahBananahX/)
+![Funny Meme](https://i.redd.it/lsisd4r11x0c1.jpeg?width=100&height=100)
+* Meme Author: [per_alt_delete](https://www.reddit.com/user/per_alt_delete/)
 
 
 
