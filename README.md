@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/av9zz7gti01c1.jpg?width=100&height=100)
-* Meme Author: [Themadidiot420](https://www.reddit.com/user/Themadidiot420/)
+![Funny Meme](https://i.redd.it/c4npuxzvqy0c1.jpg?width=100&height=100)
+* Meme Author: [TheFogIsComingNR3](https://www.reddit.com/user/TheFogIsComingNR3/)
 
 
 
