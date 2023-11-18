@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ulkak2xc9x0c1.jpg?width=100&height=100)
-* Meme Author: [MollyDooker99](https://www.reddit.com/user/MollyDooker99/)
+![Funny Meme](https://i.redd.it/hgcanioaj01c1.jpeg?width=100&height=100)
+* Meme Author: [CT-2632_Jaax](https://www.reddit.com/user/CT-2632_Jaax/)
 
 
 
