@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gbyolvoq9y0c1.png?width=100&height=100)
-* Meme Author: [Pherobero](https://www.reddit.com/user/Pherobero/)
+![Funny Meme](https://i.redd.it/bi6hyva7wy0c1.jpg?width=100&height=100)
+* Meme Author: [_Halkel](https://www.reddit.com/user/_Halkel/)
 
 
 
