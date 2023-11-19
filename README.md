@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/50t5o2few81c1.jpg?width=100&height=100)
-* Meme Author: [cmcnee2007](https://www.reddit.com/user/cmcnee2007/)
+![Funny Meme](https://i.redd.it/ytypztxv0c1c1.jpg?width=100&height=100)
+* Meme Author: [41fps](https://www.reddit.com/user/41fps/)
 
 
 
