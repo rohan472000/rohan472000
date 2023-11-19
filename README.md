@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x6d1yudxc81c1.jpg?width=100&height=100)
-* Meme Author: [lookiecookie0505](https://www.reddit.com/user/lookiecookie0505/)
+![Funny Meme](https://i.redd.it/jxupv8mrva1c1.jpg?width=100&height=100)
+* Meme Author: [Keshan345](https://www.reddit.com/user/Keshan345/)
 
 
 
