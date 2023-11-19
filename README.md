@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lzdvbdkrpc1c1.jpeg?width=100&height=100)
-* Meme Author: [SamiR83](https://www.reddit.com/user/SamiR83/)
+![Funny Meme](https://i.redd.it/mxm8j6a7261c1.jpg?width=100&height=100)
+* Meme Author: [EmperorsBallSack](https://www.reddit.com/user/EmperorsBallSack/)
 
 
 
