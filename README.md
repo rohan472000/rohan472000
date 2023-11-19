@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ut0s9haub61c1.jpg?width=100&height=100)
-* Meme Author: [Simonoide_BellosO](https://www.reddit.com/user/Simonoide_BellosO/)
+![Funny Meme](https://i.redd.it/7y410jfvh41c1.jpg?width=100&height=100)
+* Meme Author: [manish787898](https://www.reddit.com/user/manish787898/)
 
 
 
