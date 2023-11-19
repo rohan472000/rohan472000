@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f45m26w1nv0c1.jpg?width=100&height=100)
-* Meme Author: [MynameisBI](https://www.reddit.com/user/MynameisBI/)
+![Funny Meme](https://i.redd.it/lsisd4r11x0c1.jpeg?width=100&height=100)
+* Meme Author: [per_alt_delete](https://www.reddit.com/user/per_alt_delete/)
 
 
 
