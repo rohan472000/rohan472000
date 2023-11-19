@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9tttl1ohr71c1.jpg?width=100&height=100)
-* Meme Author: [Injest_alkahest](https://www.reddit.com/user/Injest_alkahest/)
+![Funny Meme](https://i.redd.it/lzdvbdkrpc1c1.jpeg?width=100&height=100)
+* Meme Author: [SamiR83](https://www.reddit.com/user/SamiR83/)
 
 
 
