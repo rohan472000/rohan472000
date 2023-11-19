@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jufyp3um9a1c1.jpg?width=100&height=100)
-* Meme Author: [Freedom_memer](https://www.reddit.com/user/Freedom_memer/)
+![Funny Meme](https://i.redd.it/j2tqyik0iz0c1.png?width=100&height=100)
+* Meme Author: [BaronBlackFalcon](https://www.reddit.com/user/BaronBlackFalcon/)
 
 
 
