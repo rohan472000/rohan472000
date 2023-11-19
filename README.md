@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aodd8rqi611c1.jpeg?width=100&height=100)
-* Meme Author: [tanmanw10](https://www.reddit.com/user/tanmanw10/)
+![Funny Meme](https://i.redd.it/mnh8y69g451c1.jpg?width=100&height=100)
+* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
 
 
 
