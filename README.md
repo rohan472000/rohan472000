@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wd3nelvxr71c1.jpg?width=100&height=100)
-* Meme Author: [madlad202020](https://www.reddit.com/user/madlad202020/)
+![Funny Meme](https://i.redd.it/ws4p83n7s71c1.jpg?width=100&height=100)
+* Meme Author: [Se2kr](https://www.reddit.com/user/Se2kr/)
 
 
 
