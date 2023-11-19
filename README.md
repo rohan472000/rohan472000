@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/felutrqpx51c1.jpg?width=100&height=100)
-* Meme Author: [AgentNose](https://www.reddit.com/user/AgentNose/)
+![Funny Meme](https://i.redd.it/zku007y9z01c1.jpg?width=100&height=100)
+* Meme Author: [QaseemErRoR](https://www.reddit.com/user/QaseemErRoR/)
 
 
 
