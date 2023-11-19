@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k4bdi0bvdc1c1.jpg?width=100&height=100)
-* Meme Author: [UnhappyPainting404](https://www.reddit.com/user/UnhappyPainting404/)
+![Funny Meme](https://i.redd.it/q912w2fjwd1c1.png?width=100&height=100)
+* Meme Author: [Shazaam41](https://www.reddit.com/user/Shazaam41/)
 
 
 
