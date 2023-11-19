@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdixveaq7c1c1.jpg?width=100&height=100)
-* Meme Author: [F4LASER1440](https://www.reddit.com/user/F4LASER1440/)
+![Funny Meme](https://i.redd.it/j2tqyik0iz0c1.png?width=100&height=100)
+* Meme Author: [BaronBlackFalcon](https://www.reddit.com/user/BaronBlackFalcon/)
 
 
 
