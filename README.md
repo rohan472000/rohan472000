@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/airk707bm51c1.jpg?width=100&height=100)
-* Meme Author: [Honest-Car-8314](https://www.reddit.com/user/Honest-Car-8314/)
+![Funny Meme](https://i.redd.it/h0u9tjv9351c1.jpg?width=100&height=100)
+* Meme Author: [HCJohnson](https://www.reddit.com/user/HCJohnson/)
 
 
 
