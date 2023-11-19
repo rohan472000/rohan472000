@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wlz42gy6nc1c1.jpg?width=100&height=100)
-* Meme Author: [Trollingfornudity](https://www.reddit.com/user/Trollingfornudity/)
+![Funny Meme](https://i.redd.it/znkqbsrwca1c1.png?width=100&height=100)
+* Meme Author: [MagicSnake1000](https://www.reddit.com/user/MagicSnake1000/)
 
 
 
