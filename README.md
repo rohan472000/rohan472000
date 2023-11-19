@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/peucp7l1691c1.jpg?width=100&height=100)
-* Meme Author: [Aruiaruishas](https://www.reddit.com/user/Aruiaruishas/)
+![Funny Meme](https://i.redd.it/meemf45pj61c1.jpg?width=100&height=100)
+* Meme Author: [hollowdisaster](https://www.reddit.com/user/hollowdisaster/)
 
 
 
