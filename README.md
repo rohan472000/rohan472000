@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eui9nl9g4b1c1.jpg?width=100&height=100)
-* Meme Author: [Mr_Axxo](https://www.reddit.com/user/Mr_Axxo/)
+![Funny Meme](https://i.redd.it/54g7x4pet61c1.jpg?width=100&height=100)
+* Meme Author: [ObaliskArt](https://www.reddit.com/user/ObaliskArt/)
 
 
 
