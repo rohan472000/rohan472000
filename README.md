@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6a86zg1rf71c1.png?width=100&height=100)
-* Meme Author: [NotoriousReject](https://www.reddit.com/user/NotoriousReject/)
+![Funny Meme](https://i.redd.it/iae7vv5o561c1.jpg?width=100&height=100)
+* Meme Author: [Symphonie-passion](https://www.reddit.com/user/Symphonie-passion/)
 
 
 
