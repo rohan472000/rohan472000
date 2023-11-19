@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ytypztxv0c1c1.jpg?width=100&height=100)
-* Meme Author: [41fps](https://www.reddit.com/user/41fps/)
+![Funny Meme](https://i.redd.it/jw058cbs971c1.jpg?width=100&height=100)
+* Meme Author: [Asleep_Pen_2800](https://www.reddit.com/user/Asleep_Pen_2800/)
 
 
 
