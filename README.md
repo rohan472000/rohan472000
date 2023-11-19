@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dzfgy6dqz41c1.jpg?width=100&height=100)
-* Meme Author: [dogememes_dinoruby](https://www.reddit.com/user/dogememes_dinoruby/)
+![Funny Meme](https://i.redd.it/zku007y9z01c1.jpg?width=100&height=100)
+* Meme Author: [QaseemErRoR](https://www.reddit.com/user/QaseemErRoR/)
 
 
 
