@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xkqbkmelb01c1.png?width=100&height=100)
-* Meme Author: [TIGERFLAME26](https://www.reddit.com/user/TIGERFLAME26/)
+![Funny Meme](https://i.redd.it/e7n0nhy0f61c1.jpeg?width=100&height=100)
+* Meme Author: [DirkDieGurke](https://www.reddit.com/user/DirkDieGurke/)
 
 
 
