@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t50bk8rjza1c1.jpg?width=100&height=100)
-* Meme Author: [Jack-mclaughlin89](https://www.reddit.com/user/Jack-mclaughlin89/)
+![Funny Meme](https://i.redd.it/hgyeppjkya1c1.png?width=100&height=100)
+* Meme Author: [Snickles4life](https://www.reddit.com/user/Snickles4life/)
 
 
 
