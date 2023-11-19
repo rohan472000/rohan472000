@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x7hmzb3t701c1.jpeg?width=100&height=100)
-* Meme Author: [lumatyx](https://www.reddit.com/user/lumatyx/)
+![Funny Meme](https://i.redd.it/31awljtmr71c1.jpeg?width=100&height=100)
+* Meme Author: [Sophia724](https://www.reddit.com/user/Sophia724/)
 
 
 
