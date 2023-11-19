@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k2sxpe1tz61c1.png?width=100&height=100)
-* Meme Author: [HappylilBonsaiTree](https://www.reddit.com/user/HappylilBonsaiTree/)
+![Funny Meme](https://i.redd.it/bo9vmzz1z31c1.jpg?width=100&height=100)
+* Meme Author: [Grannmaaa](https://www.reddit.com/user/Grannmaaa/)
 
 
 
