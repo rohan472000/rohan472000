@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e4uthk11cz0c1.jpg?width=100&height=100)
-* Meme Author: [mjavedansari](https://www.reddit.com/user/mjavedansari/)
+![Funny Meme](https://i.redd.it/fj14bt7v661c1.jpg?width=100&height=100)
+* Meme Author: [Korean_badass14](https://www.reddit.com/user/Korean_badass14/)
 
 
 
