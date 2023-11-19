@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fmj6vn6o031c1.jpg?width=100&height=100)
-* Meme Author: [sunny_yellows](https://www.reddit.com/user/sunny_yellows/)
+![Funny Meme](https://i.redd.it/x7hmzb3t701c1.jpeg?width=100&height=100)
+* Meme Author: [lumatyx](https://www.reddit.com/user/lumatyx/)
 
 
 
