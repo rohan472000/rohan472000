@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fdgj1qbto91c1.jpg?width=100&height=100)
-* Meme Author: [HuaWay2](https://www.reddit.com/user/HuaWay2/)
+![Funny Meme](https://i.redd.it/keqa5e01191c1.jpeg?width=100&height=100)
+* Meme Author: [AXEMAN546](https://www.reddit.com/user/AXEMAN546/)
 
 
 
