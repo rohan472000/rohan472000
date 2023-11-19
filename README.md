@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ej7ra7l9661c1.png?width=100&height=100)
-* Meme Author: [Hot-Fridge-with-ice](https://www.reddit.com/user/Hot-Fridge-with-ice/)
+![Funny Meme](https://i.redd.it/se1mhkd3471c1.jpg?width=100&height=100)
+* Meme Author: [RaccoonCityTacos](https://www.reddit.com/user/RaccoonCityTacos/)
 
 
 
