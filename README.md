@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q7cj2jxjtb1c1.jpeg?width=100&height=100)
-* Meme Author: [begone178](https://www.reddit.com/user/begone178/)
+![Funny Meme](https://i.redd.it/54g7x4pet61c1.jpg?width=100&height=100)
+* Meme Author: [ObaliskArt](https://www.reddit.com/user/ObaliskArt/)
 
 
 
