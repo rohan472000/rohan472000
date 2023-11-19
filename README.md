@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/um1ukhq4s71c1.png?width=100&height=100)
-* Meme Author: [MemeNoOffense](https://www.reddit.com/user/MemeNoOffense/)
+![Funny Meme](https://i.redd.it/axc9myebhb1c1.jpg?width=100&height=100)
+* Meme Author: [Scarlet_Jedi](https://www.reddit.com/user/Scarlet_Jedi/)
 
 
 
