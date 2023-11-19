@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0lxpfdqlz01c1.png?width=100&height=100)
-* Meme Author: [UnderTaleMarshmallow](https://www.reddit.com/user/UnderTaleMarshmallow/)
+![Funny Meme](https://i.redd.it/9tttl1ohr71c1.jpg?width=100&height=100)
+* Meme Author: [Injest_alkahest](https://www.reddit.com/user/Injest_alkahest/)
 
 
 
