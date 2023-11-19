@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6di8ct500b1c1.jpeg?width=100&height=100)
-* Meme Author: [iAmCokusBalus](https://www.reddit.com/user/iAmCokusBalus/)
+![Funny Meme](https://i.redd.it/ej7ra7l9661c1.png?width=100&height=100)
+* Meme Author: [Hot-Fridge-with-ice](https://www.reddit.com/user/Hot-Fridge-with-ice/)
 
 
 
