@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jufyp3um9a1c1.jpg?width=100&height=100)
-* Meme Author: [Freedom_memer](https://www.reddit.com/user/Freedom_memer/)
+![Funny Meme](https://i.imgflip.com/86hybo.jpg?width=100&height=100)
+* Meme Author: [Basith_Shinrah](https://www.reddit.com/user/Basith_Shinrah/)
 
 
 
