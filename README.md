@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bo9vmzz1z31c1.jpg?width=100&height=100)
-* Meme Author: [Grannmaaa](https://www.reddit.com/user/Grannmaaa/)
+![Funny Meme](https://i.redd.it/axk8j674m71c1.png?width=100&height=100)
+* Meme Author: [ba-na-na-way](https://www.reddit.com/user/ba-na-na-way/)
 
 
 
