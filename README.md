@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1tmqozame61c1.jpg?width=100&height=100)
-* Meme Author: [diveonfire](https://www.reddit.com/user/diveonfire/)
+![Funny Meme](https://i.redd.it/ypm3k3ej461c1.jpg?width=100&height=100)
+* Meme Author: [SuhailSWR](https://www.reddit.com/user/SuhailSWR/)
 
 
 
