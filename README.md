@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j2tqyik0iz0c1.png?width=100&height=100)
-* Meme Author: [BaronBlackFalcon](https://www.reddit.com/user/BaronBlackFalcon/)
+![Funny Meme](https://i.redd.it/f45m26w1nv0c1.jpg?width=100&height=100)
+* Meme Author: [MynameisBI](https://www.reddit.com/user/MynameisBI/)
 
 
 
