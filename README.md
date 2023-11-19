@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xfbt1xxin41c1.jpg?width=100&height=100)
-* Meme Author: [artemismilkman](https://www.reddit.com/user/artemismilkman/)
+![Funny Meme](https://i.redd.it/fdgj1qbto91c1.jpg?width=100&height=100)
+* Meme Author: [HuaWay2](https://www.reddit.com/user/HuaWay2/)
 
 
 
