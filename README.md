@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2gzkp1zxi31c1.jpg?width=100&height=100)
-* Meme Author: [noOne000Br](https://www.reddit.com/user/noOne000Br/)
+![Funny Meme](https://i.redd.it/jufyp3um9a1c1.jpg?width=100&height=100)
+* Meme Author: [Freedom_memer](https://www.reddit.com/user/Freedom_memer/)
 
 
 
