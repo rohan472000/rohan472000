@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eorisitl771c1.jpg?width=100&height=100)
-* Meme Author: [StaunerMcGregor](https://www.reddit.com/user/StaunerMcGregor/)
+![Funny Meme](https://i.redd.it/5kjf3euoa81c1.jpg?width=100&height=100)
+* Meme Author: [Detterius](https://www.reddit.com/user/Detterius/)
 
 
 
