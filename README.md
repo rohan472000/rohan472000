@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s3r68jk0h71c1.jpg?width=100&height=100)
-* Meme Author: [FirmHold8](https://www.reddit.com/user/FirmHold8/)
+![Funny Meme](https://i.redd.it/3ajvgbfix81c1.jpg?width=100&height=100)
+* Meme Author: [Fit-Bar2581](https://www.reddit.com/user/Fit-Bar2581/)
 
 
 
