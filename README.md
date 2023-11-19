@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lrqmlwfiz51c1.jpg?width=100&height=100)
-* Meme Author: [Dramatic_Wallaby5390](https://www.reddit.com/user/Dramatic_Wallaby5390/)
+![Funny Meme](https://i.redd.it/keqa5e01191c1.jpeg?width=100&height=100)
+* Meme Author: [AXEMAN546](https://www.reddit.com/user/AXEMAN546/)
 
 
 
