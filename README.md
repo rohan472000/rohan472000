@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o6rko84zfc1c1.jpg?width=100&height=100)
-* Meme Author: [Detterius](https://www.reddit.com/user/Detterius/)
+![Funny Meme](https://i.redd.it/wlz42gy6nc1c1.jpg?width=100&height=100)
+* Meme Author: [Trollingfornudity](https://www.reddit.com/user/Trollingfornudity/)
 
 
 
