@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dpzmy4c36a1c1.png?width=100&height=100)
-* Meme Author: [SweatyChickenBuuuubz](https://www.reddit.com/user/SweatyChickenBuuuubz/)
+![Funny Meme](https://i.redd.it/b2la3mbav61c1.jpg?width=100&height=100)
+* Meme Author: [Available_Reason7795](https://www.reddit.com/user/Available_Reason7795/)
 
 
 
