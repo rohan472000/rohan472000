@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/meemf45pj61c1.jpg?width=100&height=100)
-* Meme Author: [hollowdisaster](https://www.reddit.com/user/hollowdisaster/)
+![Funny Meme](https://i.redd.it/e7n0nhy0f61c1.jpeg?width=100&height=100)
+* Meme Author: [DirkDieGurke](https://www.reddit.com/user/DirkDieGurke/)
 
 
 
