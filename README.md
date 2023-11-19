@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iae7vv5o561c1.jpg?width=100&height=100)
-* Meme Author: [Symphonie-passion](https://www.reddit.com/user/Symphonie-passion/)
+![Funny Meme](https://i.redd.it/9tttl1ohr71c1.jpg?width=100&height=100)
+* Meme Author: [Injest_alkahest](https://www.reddit.com/user/Injest_alkahest/)
 
 
 
