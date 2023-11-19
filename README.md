@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cwxhyk6vsa1c1.jpg?width=100&height=100)
-* Meme Author: [Solopeerless](https://www.reddit.com/user/Solopeerless/)
+![Funny Meme](https://i.redd.it/6di8ct500b1c1.jpeg?width=100&height=100)
+* Meme Author: [iAmCokusBalus](https://www.reddit.com/user/iAmCokusBalus/)
 
 
 
