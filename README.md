@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h0u9tjv9351c1.jpg?width=100&height=100)
-* Meme Author: [HCJohnson](https://www.reddit.com/user/HCJohnson/)
+![Funny Meme](https://i.redd.it/ty4uah4q131c1.jpg?width=100&height=100)
+* Meme Author: [thethreateninggeek](https://www.reddit.com/user/thethreateninggeek/)
 
 
 
