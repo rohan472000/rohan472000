@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ab6hrtkq051c1.jpg?width=100&height=100)
-* Meme Author: [SignGuy77](https://www.reddit.com/user/SignGuy77/)
+![Funny Meme](https://i.redd.it/meemf45pj61c1.jpg?width=100&height=100)
+* Meme Author: [hollowdisaster](https://www.reddit.com/user/hollowdisaster/)
 
 
 
