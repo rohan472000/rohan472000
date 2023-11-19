@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ws4p83n7s71c1.jpg?width=100&height=100)
-* Meme Author: [Se2kr](https://www.reddit.com/user/Se2kr/)
+![Funny Meme](https://i.redd.it/n78chtqzr51c1.jpg?width=100&height=100)
+* Meme Author: [AbeliousAugustus](https://www.reddit.com/user/AbeliousAugustus/)
 
 
 
