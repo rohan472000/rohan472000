@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s7y8k0m2ec1c1.jpeg?width=100&height=100)
-* Meme Author: [jimmyapril19](https://www.reddit.com/user/jimmyapril19/)
+![Funny Meme](https://i.redd.it/rdixveaq7c1c1.jpg?width=100&height=100)
+* Meme Author: [F4LASER1440](https://www.reddit.com/user/F4LASER1440/)
 
 
 
