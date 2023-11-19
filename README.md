@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7y410jfvh41c1.jpg?width=100&height=100)
-* Meme Author: [manish787898](https://www.reddit.com/user/manish787898/)
+![Funny Meme](https://i.redd.it/7tuodqyhn41c1.jpg?width=100&height=100)
+* Meme Author: [Mason_not_Jason](https://www.reddit.com/user/Mason_not_Jason/)
 
 
 
