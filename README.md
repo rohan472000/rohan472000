@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dd5wbu8qfc1c1.png?width=100&height=100)
-* Meme Author: [adetheaters](https://www.reddit.com/user/adetheaters/)
+![Funny Meme](https://i.redd.it/607kbs02hj1c1.jpg?width=100&height=100)
+* Meme Author: [thethreateninggeek](https://www.reddit.com/user/thethreateninggeek/)
 
 
 
