@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cakysawi9k1c1.jpg?width=100&height=100)
-* Meme Author: [Ok_Quit_9587](https://www.reddit.com/user/Ok_Quit_9587/)
+![Funny Meme](https://i.redd.it/jpc9v8huth1c1.jpg?width=100&height=100)
+* Meme Author: [Lukas-Reggi](https://www.reddit.com/user/Lukas-Reggi/)
 
 
 
