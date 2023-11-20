@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gap1l8dh4a1c1.jpg?width=100&height=100)
-* Meme Author: [Mr_T0ast3r](https://www.reddit.com/user/Mr_T0ast3r/)
+![Funny Meme](https://i.redd.it/pdv90im2r81c1.jpg?width=100&height=100)
+* Meme Author: [Jetpropeller](https://www.reddit.com/user/Jetpropeller/)
 
 
 
