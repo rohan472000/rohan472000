@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t4gqbhi30b1c1.jpg?width=100&height=100)
-* Meme Author: [Embarrassed-Mouse-49](https://www.reddit.com/user/Embarrassed-Mouse-49/)
+![Funny Meme](https://i.redd.it/5h495thwbe1c1.jpg?width=100&height=100)
+* Meme Author: [ComparatorClock](https://www.reddit.com/user/ComparatorClock/)
 
 
 
