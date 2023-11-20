@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ufay6buole1c1.jpg?width=100&height=100)
-* Meme Author: [Caza390](https://www.reddit.com/user/Caza390/)
+![Funny Meme](https://i.redd.it/yyy6qf9f9a1c1.jpg?width=100&height=100)
+* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
 
 
 
