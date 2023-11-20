@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/khmoh1o9bf1c1.jpg?width=100&height=100)
-* Meme Author: [the_legitbacon](https://www.reddit.com/user/the_legitbacon/)
+![Funny Meme](https://i.redd.it/n7btz78omc1c1.jpg?width=100&height=100)
+* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
 
 
 
