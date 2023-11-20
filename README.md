@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8umezxcz991c1.jpg?width=100&height=100)
-* Meme Author: [Xaxos92](https://www.reddit.com/user/Xaxos92/)
+![Funny Meme](https://i.redd.it/dxm0adlate1c1.png?width=100&height=100)
+* Meme Author: [TIGERFLAME26](https://www.reddit.com/user/TIGERFLAME26/)
 
 
 
