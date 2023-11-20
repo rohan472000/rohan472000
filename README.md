@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ppppb98rvh1c1.jpg?width=100&height=100)
-* Meme Author: [Top-Aside-1881](https://www.reddit.com/user/Top-Aside-1881/)
+![Funny Meme](https://i.redd.it/628vp8bsxa1c1.jpg?width=100&height=100)
+* Meme Author: [ChungusSan](https://www.reddit.com/user/ChungusSan/)
 
 
 
