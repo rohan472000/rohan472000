@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aw224jempe1c1.png?width=100&height=100)
-* Meme Author: [LexicalLegend](https://www.reddit.com/user/LexicalLegend/)
+![Funny Meme](https://i.redd.it/13xmbanold1c1.jpg?width=100&height=100)
+* Meme Author: [youself20](https://www.reddit.com/user/youself20/)
 
 
 
