@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fdiy8b6ewd1c1.png?width=100&height=100)
-* Meme Author: [LexicalLegend](https://www.reddit.com/user/LexicalLegend/)
+![Funny Meme](https://i.redd.it/fi1qeoltlg1c1.jpg?width=100&height=100)
+* Meme Author: [Rekless_Animates](https://www.reddit.com/user/Rekless_Animates/)
 
 
 
