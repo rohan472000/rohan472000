@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a7ukwo4pnf1c1.jpg?width=100&height=100)
-* Meme Author: [kiwicase](https://www.reddit.com/user/kiwicase/)
+![Funny Meme](https://i.redd.it/oqh46bpzue1c1.jpg?width=100&height=100)
+* Meme Author: [TheApollo222](https://www.reddit.com/user/TheApollo222/)
 
 
 
