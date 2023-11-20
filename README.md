@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yh5k5n34ng1c1.jpg?width=100&height=100)
-* Meme Author: [RhinoBuckeye](https://www.reddit.com/user/RhinoBuckeye/)
+![Funny Meme](https://i.redd.it/k8hkkb9p4b1c1.jpg?width=100&height=100)
+* Meme Author: [MLG_GuineaPig](https://www.reddit.com/user/MLG_GuineaPig/)
 
 
 
