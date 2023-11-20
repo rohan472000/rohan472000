@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dnfchansra1c1.jpg?width=100&height=100)
-* Meme Author: [Delta-Tropos](https://www.reddit.com/user/Delta-Tropos/)
+![Funny Meme](https://i.imgur.com/v6S3bJv.jpg?width=100&height=100)
+* Meme Author: [QuicklyThisWay](https://www.reddit.com/user/QuicklyThisWay/)
 
 
 
