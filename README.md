@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ftyimobdda1c1.png?width=100&height=100)
-* Meme Author: [uiblkcqt](https://www.reddit.com/user/uiblkcqt/)
+![Funny Meme](https://i.redd.it/25teestui81c1.jpg?width=100&height=100)
+* Meme Author: [LincolnLanier_YT](https://www.reddit.com/user/LincolnLanier_YT/)
 
 
 
