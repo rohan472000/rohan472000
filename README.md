@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zo3rwtxr7b1c1.jpg?width=100&height=100)
-* Meme Author: [BagofEndlessHugs](https://www.reddit.com/user/BagofEndlessHugs/)
+![Funny Meme](https://i.redd.it/n7btz78omc1c1.jpg?width=100&height=100)
+* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
 
 
 
