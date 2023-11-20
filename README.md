@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/trkwsnga3d1c1.jpg?width=100&height=100)
-* Meme Author: [zorro1701e](https://www.reddit.com/user/zorro1701e/)
+![Funny Meme](https://i.redd.it/2dyjop62je1c1.jpg?width=100&height=100)
+* Meme Author: [Cutiesaurs](https://www.reddit.com/user/Cutiesaurs/)
 
 
 
