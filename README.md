@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p3dwni6rxc1c1.jpg?width=100&height=100)
-* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
+![Funny Meme](https://i.redd.it/2ncsd60ekc1c1.jpg?width=100&height=100)
+* Meme Author: [UnfairCardiologist74](https://www.reddit.com/user/UnfairCardiologist74/)
 
 
 
