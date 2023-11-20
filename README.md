@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ol5ee3vtub1c1.jpg?width=100&height=100)
-* Meme Author: [Calaloo17](https://www.reddit.com/user/Calaloo17/)
+![Funny Meme](https://i.redd.it/ufay6buole1c1.jpg?width=100&height=100)
+* Meme Author: [Caza390](https://www.reddit.com/user/Caza390/)
 
 
 
