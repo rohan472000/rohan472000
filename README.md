@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n67dnu2udc1c1.png?width=100&height=100)
-* Meme Author: [x5N__](https://www.reddit.com/user/x5N__/)
+![Funny Meme](https://i.redd.it/d8cmcpf6of1c1.jpg?width=100&height=100)
+* Meme Author: [Alex-Holley](https://www.reddit.com/user/Alex-Holley/)
 
 
 
