@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/psp1ewwxsb1c1.jpg?width=100&height=100)
-* Meme Author: [InvaderofViolence](https://www.reddit.com/user/InvaderofViolence/)
+![Funny Meme](https://i.redd.it/edp8hp0ceg1c1.jpeg?width=100&height=100)
+* Meme Author: [sketchy_van](https://www.reddit.com/user/sketchy_van/)
 
 
 
