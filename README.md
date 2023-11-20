@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/13xmbanold1c1.jpg?width=100&height=100)
-* Meme Author: [youself20](https://www.reddit.com/user/youself20/)
+![Funny Meme](https://i.redd.it/628vp8bsxa1c1.jpg?width=100&height=100)
+* Meme Author: [ChungusSan](https://www.reddit.com/user/ChungusSan/)
 
 
 
