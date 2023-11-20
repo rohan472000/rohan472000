@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2oh473yg1f1c1.jpg?width=100&height=100)
-* Meme Author: [Lost_Flower7](https://www.reddit.com/user/Lost_Flower7/)
+![Funny Meme](https://i.redd.it/wki7e13mca1c1.jpeg?width=100&height=100)
+* Meme Author: [someperson99011](https://www.reddit.com/user/someperson99011/)
 
 
 
