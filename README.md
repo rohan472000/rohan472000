@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/huqdaxmv3h1c1.jpg?width=100&height=100)
-* Meme Author: [ViveroCervantes](https://www.reddit.com/user/ViveroCervantes/)
+![Funny Meme](https://i.redd.it/ftyimobdda1c1.png?width=100&height=100)
+* Meme Author: [uiblkcqt](https://www.reddit.com/user/uiblkcqt/)
 
 
 
