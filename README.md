@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sn1b5vfnad1c1.jpg?width=100&height=100)
-* Meme Author: [Kindly_Drink_4046](https://www.reddit.com/user/Kindly_Drink_4046/)
+![Funny Meme](https://i.redd.it/rbwraz3js91c1.jpeg?width=100&height=100)
+* Meme Author: [IcameInDadsCoffee](https://www.reddit.com/user/IcameInDadsCoffee/)
 
 
 
