@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/auh1nud0n81c1.png?width=100&height=100)
-* Meme Author: [IndefiniteVoid813](https://www.reddit.com/user/IndefiniteVoid813/)
+![Funny Meme](https://i.redd.it/eu3k2t2mvc1c1.jpeg?width=100&height=100)
+* Meme Author: [Lambsauc](https://www.reddit.com/user/Lambsauc/)
 
 
 
