@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5h495thwbe1c1.jpg?width=100&height=100)
-* Meme Author: [ComparatorClock](https://www.reddit.com/user/ComparatorClock/)
+![Funny Meme](https://i.redd.it/aw224jempe1c1.png?width=100&height=100)
+* Meme Author: [LexicalLegend](https://www.reddit.com/user/LexicalLegend/)
 
 
 
