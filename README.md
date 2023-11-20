@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rbwraz3js91c1.jpeg?width=100&height=100)
-* Meme Author: [IcameInDadsCoffee](https://www.reddit.com/user/IcameInDadsCoffee/)
+![Funny Meme](https://i.redd.it/eu3k2t2mvc1c1.jpeg?width=100&height=100)
+* Meme Author: [Lambsauc](https://www.reddit.com/user/Lambsauc/)
 
 
 
