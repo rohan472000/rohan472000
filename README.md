@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/src11g9l0a1c1.jpg?width=100&height=100)
-* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
+![Funny Meme](https://i.redd.it/ty4uah4q131c1.jpg?width=100&height=100)
+* Meme Author: [thethreateninggeek](https://www.reddit.com/user/thethreateninggeek/)
 
 
 
