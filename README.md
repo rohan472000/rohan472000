@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jjxsut3s2h1c1.png?width=100&height=100)
-* Meme Author: [Virtual-Cockroach-89](https://www.reddit.com/user/Virtual-Cockroach-89/)
+![Funny Meme](https://i.redd.it/p3dwni6rxc1c1.jpg?width=100&height=100)
+* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
 
 
 
