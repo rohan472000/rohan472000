@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f47sfi5c1f1c1.png?width=100&height=100)
-* Meme Author: [youngmcdonald85](https://www.reddit.com/user/youngmcdonald85/)
+![Funny Meme](https://i.redd.it/rxxbwjax9k1c1.jpeg?width=100&height=100)
+* Meme Author: [dicktaker1000101](https://www.reddit.com/user/dicktaker1000101/)
 
 
 
