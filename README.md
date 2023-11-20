@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0etgfi2az81c1.jpg?width=100&height=100)
-* Meme Author: [furryiswrong](https://www.reddit.com/user/furryiswrong/)
+![Funny Meme](https://i.redd.it/j32fxhidfj1c1.png?width=100&height=100)
+* Meme Author: [Serious-Ad2586](https://www.reddit.com/user/Serious-Ad2586/)
 
 
 
