@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dlwrfxdqxc1c1.jpg?width=100&height=100)
-* Meme Author: [Alternative-Pay-8296](https://www.reddit.com/user/Alternative-Pay-8296/)
+![Funny Meme](https://i.redd.it/0etgfi2az81c1.jpg?width=100&height=100)
+* Meme Author: [furryiswrong](https://www.reddit.com/user/furryiswrong/)
 
 
 
