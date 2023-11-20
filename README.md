@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/axc9myebhb1c1.jpg?width=100&height=100)
-* Meme Author: [Scarlet_Jedi](https://www.reddit.com/user/Scarlet_Jedi/)
+![Funny Meme](https://i.redd.it/lvgxreansa1c1.jpg?width=100&height=100)
+* Meme Author: [gemandrailfan94](https://www.reddit.com/user/gemandrailfan94/)
 
 
 
