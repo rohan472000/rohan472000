@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/25teestui81c1.jpg?width=100&height=100)
-* Meme Author: [LincolnLanier_YT](https://www.reddit.com/user/LincolnLanier_YT/)
+![Funny Meme](https://i.redd.it/yh5k5n34ng1c1.jpg?width=100&height=100)
+* Meme Author: [RhinoBuckeye](https://www.reddit.com/user/RhinoBuckeye/)
 
 
 
