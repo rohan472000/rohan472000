@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fi1qeoltlg1c1.jpg?width=100&height=100)
-* Meme Author: [Rekless_Animates](https://www.reddit.com/user/Rekless_Animates/)
+![Funny Meme](https://i.redd.it/2ncsd60ekc1c1.jpg?width=100&height=100)
+* Meme Author: [UnfairCardiologist74](https://www.reddit.com/user/UnfairCardiologist74/)
 
 
 
