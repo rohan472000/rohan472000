@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xiz3fqm1qb1c1.jpeg?width=100&height=100)
-* Meme Author: [rameneater23](https://www.reddit.com/user/rameneater23/)
+![Funny Meme](https://i.redd.it/ads2hswwgb1c1.jpg?width=100&height=100)
+* Meme Author: [Careless_Reception74](https://www.reddit.com/user/Careless_Reception74/)
 
 
 
