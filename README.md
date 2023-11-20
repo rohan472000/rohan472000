@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n7q406gdjb1c1.jpg?width=100&height=100)
-* Meme Author: [Prize-Nothing7946](https://www.reddit.com/user/Prize-Nothing7946/)
+![Funny Meme](https://i.redd.it/2w60wexx9i1c1.jpg?width=100&height=100)
+* Meme Author: [Cupcake_Smoothie](https://www.reddit.com/user/Cupcake_Smoothie/)
 
 
 
