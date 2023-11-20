@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ow4f69exxf1c1.jpg?width=100&height=100)
-* Meme Author: [RareSun_](https://www.reddit.com/user/RareSun_/)
+![Funny Meme](https://i.redd.it/h5d3cl995g1c1.jpg?width=100&height=100)
+* Meme Author: [AntRevolutionary2310](https://www.reddit.com/user/AntRevolutionary2310/)
 
 
 
