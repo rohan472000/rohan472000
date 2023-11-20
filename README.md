@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/v2jw94qxhj1c1.jpg?width=100&height=100)
-* Meme Author: [IdontKnow12345_](https://www.reddit.com/user/IdontKnow12345_/)
+![Funny Meme](https://i.redd.it/2s5vlj1g0k1c1.jpg?width=100&height=100)
+* Meme Author: [bbbar](https://www.reddit.com/user/bbbar/)
 
 
 
