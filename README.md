@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m2afzp0f8a1c1.png?width=100&height=100)
-* Meme Author: [rocker_attribute](https://www.reddit.com/user/rocker_attribute/)
+![Funny Meme](https://i.redd.it/ol5ee3vtub1c1.jpg?width=100&height=100)
+* Meme Author: [Calaloo17](https://www.reddit.com/user/Calaloo17/)
 
 
 
