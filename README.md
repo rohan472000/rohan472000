@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mi1clvksyh1c1.jpg?width=100&height=100)
-* Meme Author: [Ragestarbro](https://www.reddit.com/user/Ragestarbro/)
+![Funny Meme](https://i.redd.it/dd5wbu8qfc1c1.png?width=100&height=100)
+* Meme Author: [adetheaters](https://www.reddit.com/user/adetheaters/)
 
 
 
