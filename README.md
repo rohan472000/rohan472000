@@ -1,5 +1,5 @@
-![Funny Meme](https://i.imgur.com/v6S3bJv.jpg?width=100&height=100)
-* Meme Author: [QuicklyThisWay](https://www.reddit.com/user/QuicklyThisWay/)
+![Funny Meme](https://i.redd.it/t04i5p2qbj1c1.jpg?width=100&height=100)
+* Meme Author: [FridgeGaming](https://www.reddit.com/user/FridgeGaming/)
 
 
 
