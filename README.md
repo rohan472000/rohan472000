@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a7ukwo4pnf1c1.jpg?width=100&height=100)
-* Meme Author: [kiwicase](https://www.reddit.com/user/kiwicase/)
+![Funny Meme](https://i.redd.it/1zl74zn3gk1c1.jpg?width=100&height=100)
+* Meme Author: [Democritus97](https://www.reddit.com/user/Democritus97/)
 
 
 
