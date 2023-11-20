@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6zy3798t9g1c1.jpg?width=100&height=100)
-* Meme Author: [Neither_Tomorrow_238](https://www.reddit.com/user/Neither_Tomorrow_238/)
+![Funny Meme](https://i.redd.it/icu2isj05b1c1.png?width=100&height=100)
+* Meme Author: [jacobiner123](https://www.reddit.com/user/jacobiner123/)
 
 
 
