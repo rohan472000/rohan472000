@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qmrasgs6ng1c1.jpg?width=100&height=100)
-* Meme Author: [Negative_Designer_34](https://www.reddit.com/user/Negative_Designer_34/)
+![Funny Meme](https://i.redd.it/icu2isj05b1c1.png?width=100&height=100)
+* Meme Author: [jacobiner123](https://www.reddit.com/user/jacobiner123/)
 
 
 
