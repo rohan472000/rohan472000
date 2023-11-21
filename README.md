@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/to3khlfr9r1c1.jpg?width=100&height=100)
-* Meme Author: [TRGC_](https://www.reddit.com/user/TRGC_/)
+![Funny Meme](https://i.redd.it/tkbsvbfsco1c1.jpg?width=100&height=100)
+* Meme Author: [PotatoWithTheFro](https://www.reddit.com/user/PotatoWithTheFro/)
 
 
 
