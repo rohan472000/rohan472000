@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zhhlcqnlyo1c1.png?width=100&height=100)
-* Meme Author: [Puzzleheaded-Rain230](https://www.reddit.com/user/Puzzleheaded-Rain230/)
+![Funny Meme](https://i.redd.it/150x21zgup1c1.png?width=100&height=100)
+* Meme Author: [_SM-The-Gamer_](https://www.reddit.com/user/_SM-The-Gamer_/)
 
 
 
