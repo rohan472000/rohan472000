@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dcumnqhgxk1c1.jpg?width=100&height=100)
-* Meme Author: [OneClickYouDie](https://www.reddit.com/user/OneClickYouDie/)
+![Funny Meme](https://i.redd.it/0d2r4kynbj1c1.jpg?width=100&height=100)
+* Meme Author: [Gamer-of-Action](https://www.reddit.com/user/Gamer-of-Action/)
 
 
 
