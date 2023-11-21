@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ghyq4wnpyi1c1.jpg?width=100&height=100)
-* Meme Author: [EquipmentElegant](https://www.reddit.com/user/EquipmentElegant/)
+![Funny Meme](https://i.redd.it/jkrw662luj1c1.png?width=100&height=100)
+* Meme Author: [PlayGuye_aka_Evolt](https://www.reddit.com/user/PlayGuye_aka_Evolt/)
 
 
 
