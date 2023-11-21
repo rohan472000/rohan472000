@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pv7o2eg19j1c1.jpg?width=100&height=100)
-* Meme Author: [Peanut-drizzle](https://www.reddit.com/user/Peanut-drizzle/)
+![Funny Meme](https://i.redd.it/97rz9ji31k1c1.jpg?width=100&height=100)
+* Meme Author: [superspork18](https://www.reddit.com/user/superspork18/)
 
 
 
