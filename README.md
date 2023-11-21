@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mgr1i9xzik1c1.jpg?width=100&height=100)
-* Meme Author: [Fantastic_Cookie8550](https://www.reddit.com/user/Fantastic_Cookie8550/)
+![Funny Meme](https://i.redd.it/v3wmc215dm1c1.jpg?width=100&height=100)
+* Meme Author: [Real_Brian_Boitano](https://www.reddit.com/user/Real_Brian_Boitano/)
 
 
 
