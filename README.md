@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4c4572i3jn1c1.jpeg?width=100&height=100)
-* Meme Author: [DaPokeNerd101](https://www.reddit.com/user/DaPokeNerd101/)
+![Funny Meme](https://i.redd.it/3hy3bqx5lm1c1.jpg?width=100&height=100)
+* Meme Author: [Arda_wulf](https://www.reddit.com/user/Arda_wulf/)
 
 
 
