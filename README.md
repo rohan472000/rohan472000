@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t7d1s4awfq1c1.png?width=100&height=100)
-* Meme Author: [AiraneVanchalaEnti69](https://www.reddit.com/user/AiraneVanchalaEnti69/)
+![Funny Meme](https://i.redd.it/boobqsschl1c1.jpeg?width=100&height=100)
+* Meme Author: [Strongarm_11](https://www.reddit.com/user/Strongarm_11/)
 
 
 
