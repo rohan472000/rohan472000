@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2txjsyqybq1c1.jpg?width=100&height=100)
-* Meme Author: [ScottSepter](https://www.reddit.com/user/ScottSepter/)
+![Funny Meme](https://i.redd.it/5485bl3lxq1c1.jpg?width=100&height=100)
+* Meme Author: [inbeesee](https://www.reddit.com/user/inbeesee/)
 
 
 
