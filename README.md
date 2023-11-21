@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b1efcinx1i1c1.png?width=100&height=100)
-* Meme Author: [japhar162](https://www.reddit.com/user/japhar162/)
+![Funny Meme](https://i.redd.it/6t9vibr72g1c1.jpg?width=100&height=100)
+* Meme Author: [Affectionate_End_952](https://www.reddit.com/user/Affectionate_End_952/)
 
 
 
