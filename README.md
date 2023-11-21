@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2ogcxvvmrf1c1.jpg?width=100&height=100)
-* Meme Author: [liquor-ice-mixer](https://www.reddit.com/user/liquor-ice-mixer/)
+![Funny Meme](https://i.redd.it/pv7o2eg19j1c1.jpg?width=100&height=100)
+* Meme Author: [Peanut-drizzle](https://www.reddit.com/user/Peanut-drizzle/)
 
 
 
