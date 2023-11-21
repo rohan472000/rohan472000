@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fwelxo9ipp1c1.jpg?width=100&height=100)
-* Meme Author: [BG_fourteen](https://www.reddit.com/user/BG_fourteen/)
+![Funny Meme](https://i.redd.it/bph5m9ac1o1c1.jpg?width=100&height=100)
+* Meme Author: [NecRobin](https://www.reddit.com/user/NecRobin/)
 
 
 
