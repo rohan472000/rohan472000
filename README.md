@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ml56hdh9zm1c1.jpeg?width=100&height=100)
-* Meme Author: [juanordaz2020](https://www.reddit.com/user/juanordaz2020/)
+![Funny Meme](https://i.redd.it/0nltmqtyxi1c1.jpg?width=100&height=100)
+* Meme Author: [Subiefreak-82](https://www.reddit.com/user/Subiefreak-82/)
 
 
 
