@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dcumnqhgxk1c1.jpg?width=100&height=100)
-* Meme Author: [OneClickYouDie](https://www.reddit.com/user/OneClickYouDie/)
+![Funny Meme](https://i.redd.it/d5lvz6h46k1c1.jpeg?width=100&height=100)
+* Meme Author: [Photoshops_Penises](https://www.reddit.com/user/Photoshops_Penises/)
 
 
 
