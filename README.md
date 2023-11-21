@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/psk7vfvxeo1c1.jpeg?width=100&height=100)
-* Meme Author: [Dovahkiin314159](https://www.reddit.com/user/Dovahkiin314159/)
+![Funny Meme](https://i.redd.it/lq6ax5e96q1c1.png?width=100&height=100)
+* Meme Author: [Hopeful-Claim7205](https://www.reddit.com/user/Hopeful-Claim7205/)
 
 
 
