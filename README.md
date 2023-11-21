@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wz2rrw1yxp1c1.jpg?width=100&height=100)
-* Meme Author: [Nadocomedy](https://www.reddit.com/user/Nadocomedy/)
+![Funny Meme](https://i.redd.it/ml56hdh9zm1c1.jpeg?width=100&height=100)
+* Meme Author: [juanordaz2020](https://www.reddit.com/user/juanordaz2020/)
 
 
 
