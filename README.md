@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/97rz9ji31k1c1.jpg?width=100&height=100)
-* Meme Author: [superspork18](https://www.reddit.com/user/superspork18/)
+![Funny Meme](https://i.redd.it/ufay6buole1c1.jpg?width=100&height=100)
+* Meme Author: [Caza390](https://www.reddit.com/user/Caza390/)
 
 
 
