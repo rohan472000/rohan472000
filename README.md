@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/649x20bm3k1c1.jpg?width=100&height=100)
-* Meme Author: [ras2193](https://www.reddit.com/user/ras2193/)
+![Funny Meme](https://i.redd.it/zdbu9spa3o1c1.jpeg?width=100&height=100)
+* Meme Author: [sarcasticpremed](https://www.reddit.com/user/sarcasticpremed/)
 
 
 
