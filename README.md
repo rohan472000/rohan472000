@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i6ddh0jfhp1c1.jpeg?width=100&height=100)
-* Meme Author: [Bulldojer0712](https://www.reddit.com/user/Bulldojer0712/)
+![Funny Meme](https://i.redd.it/d5zucp5qep1c1.jpg?width=100&height=100)
+* Meme Author: [macmashpotato](https://www.reddit.com/user/macmashpotato/)
 
 
 
