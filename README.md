@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/boobqsschl1c1.jpeg?width=100&height=100)
-* Meme Author: [Strongarm_11](https://www.reddit.com/user/Strongarm_11/)
+![Funny Meme](https://i.redd.it/mgr1i9xzik1c1.jpg?width=100&height=100)
+* Meme Author: [Fantastic_Cookie8550](https://www.reddit.com/user/Fantastic_Cookie8550/)
 
 
 
