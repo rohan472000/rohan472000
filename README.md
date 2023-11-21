@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2jitvs536f1c1.jpg?width=100&height=100)
-* Meme Author: [Gurdel](https://www.reddit.com/user/Gurdel/)
+![Funny Meme](https://i.redd.it/pf5peoi1gm1c1.jpeg?width=100&height=100)
+* Meme Author: [DONGBONGER3000](https://www.reddit.com/user/DONGBONGER3000/)
 
 
 
