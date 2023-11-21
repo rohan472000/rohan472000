@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tzgiq7qpnc1c1.jpeg?width=100&height=100)
-* Meme Author: [DrizzleDrain](https://www.reddit.com/user/DrizzleDrain/)
+![Funny Meme](https://i.redd.it/31k41thymo1c1.jpg?width=100&height=100)
+* Meme Author: [coolsteelboyS4ndyBoy](https://www.reddit.com/user/coolsteelboyS4ndyBoy/)
 
 
 
