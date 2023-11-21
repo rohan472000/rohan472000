@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5ppitetunp1c1.png?width=100&height=100)
-* Meme Author: [Markiemoomoo](https://www.reddit.com/user/Markiemoomoo/)
+![Funny Meme](https://i.redd.it/1zl74zn3gk1c1.jpg?width=100&height=100)
+* Meme Author: [Democritus97](https://www.reddit.com/user/Democritus97/)
 
 
 
