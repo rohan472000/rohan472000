@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qh7sko1t7g1c1.jpg?width=100&height=100)
-* Meme Author: [Additional-Resort624](https://www.reddit.com/user/Additional-Resort624/)
+![Funny Meme](https://i.redd.it/tzgiq7qpnc1c1.jpeg?width=100&height=100)
+* Meme Author: [DrizzleDrain](https://www.reddit.com/user/DrizzleDrain/)
 
 
 
