@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/faan6ziu4f1c1.jpg?width=100&height=100)
-* Meme Author: [DrPloyt](https://www.reddit.com/user/DrPloyt/)
+![Funny Meme](https://i.redd.it/db1uc6vbwp1c1.png?width=100&height=100)
+* Meme Author: [Gamingwithlewit](https://www.reddit.com/user/Gamingwithlewit/)
 
 
 
