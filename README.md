@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pf5peoi1gm1c1.jpeg?width=100&height=100)
-* Meme Author: [DONGBONGER3000](https://www.reddit.com/user/DONGBONGER3000/)
+![Funny Meme](https://i.redd.it/t4fwlgpn9k1c1.jpeg?width=100&height=100)
+* Meme Author: [fake_account_6](https://www.reddit.com/user/fake_account_6/)
 
 
 
