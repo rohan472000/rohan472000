@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d7c3843a5p1c1.jpg?width=100&height=100)
-* Meme Author: [FusionPlex_12](https://www.reddit.com/user/FusionPlex_12/)
+![Funny Meme](https://i.redd.it/q0phvsx8mo1c1.png?width=100&height=100)
+* Meme Author: [Thatoneidiotatschool](https://www.reddit.com/user/Thatoneidiotatschool/)
 
 
 
