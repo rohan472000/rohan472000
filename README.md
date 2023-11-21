@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d5zucp5qep1c1.jpg?width=100&height=100)
-* Meme Author: [macmashpotato](https://www.reddit.com/user/macmashpotato/)
+![Funny Meme](https://i.redd.it/wz2rrw1yxp1c1.jpg?width=100&height=100)
+* Meme Author: [Nadocomedy](https://www.reddit.com/user/Nadocomedy/)
 
 
 
