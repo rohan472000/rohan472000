@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8bxoudyrwk1c1.jpg?width=100&height=100)
-* Meme Author: [Goobersniper](https://www.reddit.com/user/Goobersniper/)
+![Funny Meme](https://i.redd.it/wgciq64p9m1c1.png?width=100&height=100)
+* Meme Author: [Moat_of_the_Sacked](https://www.reddit.com/user/Moat_of_the_Sacked/)
 
 
 
