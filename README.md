@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zdbu9spa3o1c1.jpeg?width=100&height=100)
-* Meme Author: [sarcasticpremed](https://www.reddit.com/user/sarcasticpremed/)
+![Funny Meme](https://i.redd.it/zbi4qrgbsh1c1.png?width=100&height=100)
+* Meme Author: [Anus-Surfer](https://www.reddit.com/user/Anus-Surfer/)
 
 
 
