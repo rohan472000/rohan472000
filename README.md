@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1zl74zn3gk1c1.jpg?width=100&height=100)
-* Meme Author: [Democritus97](https://www.reddit.com/user/Democritus97/)
+![Funny Meme](https://i.redd.it/wsie0at1tp1c1.jpeg?width=100&height=100)
+* Meme Author: [TheApollo222](https://www.reddit.com/user/TheApollo222/)
 
 
 
