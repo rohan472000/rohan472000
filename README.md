@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cxh0bx5xjk1c1.jpeg?width=100&height=100)
-* Meme Author: [Konke_yDong](https://www.reddit.com/user/Konke_yDong/)
+![Funny Meme](https://i.redd.it/cyt9qzeupl1c1.jpg?width=100&height=100)
+* Meme Author: [big-daddy-virgin](https://www.reddit.com/user/big-daddy-virgin/)
 
 
 
