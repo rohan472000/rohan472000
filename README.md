@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5cfgnr9e7k1c1.jpeg?width=100&height=100)
-* Meme Author: [Cyanboi_Neil](https://www.reddit.com/user/Cyanboi_Neil/)
+![Funny Meme](https://i.redd.it/d7c3843a5p1c1.jpg?width=100&height=100)
+* Meme Author: [FusionPlex_12](https://www.reddit.com/user/FusionPlex_12/)
 
 
 
