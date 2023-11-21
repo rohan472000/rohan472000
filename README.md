@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cyt9qzeupl1c1.jpg?width=100&height=100)
-* Meme Author: [big-daddy-virgin](https://www.reddit.com/user/big-daddy-virgin/)
+![Funny Meme](https://i.redd.it/3s64v9yf2m1c1.jpg?width=100&height=100)
+* Meme Author: [HeartHero456](https://www.reddit.com/user/HeartHero456/)
 
 
 
