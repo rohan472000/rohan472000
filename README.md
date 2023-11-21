@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bbq4vg2yxm1c1.png?width=100&height=100)
-* Meme Author: [AntiSocialPartygoer](https://www.reddit.com/user/AntiSocialPartygoer/)
+![Funny Meme](https://i.redd.it/tkbsvbfsco1c1.jpg?width=100&height=100)
+* Meme Author: [PotatoWithTheFro](https://www.reddit.com/user/PotatoWithTheFro/)
 
 
 
