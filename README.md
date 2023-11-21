@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4z0dfvxptf1c1.png?width=100&height=100)
-* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
+![Funny Meme](https://i.redd.it/2ogcxvvmrf1c1.jpg?width=100&height=100)
+* Meme Author: [liquor-ice-mixer](https://www.reddit.com/user/liquor-ice-mixer/)
 
 
 
