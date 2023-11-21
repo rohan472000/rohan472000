@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7m9weham7l1c1.png?width=100&height=100)
-* Meme Author: [determinationmaster](https://www.reddit.com/user/determinationmaster/)
+![Funny Meme](https://i.redd.it/b1efcinx1i1c1.png?width=100&height=100)
+* Meme Author: [japhar162](https://www.reddit.com/user/japhar162/)
 
 
 
