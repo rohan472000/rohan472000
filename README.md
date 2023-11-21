@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/euz20aheko1c1.jpg?width=100&height=100)
-* Meme Author: [WayAgitated8646](https://www.reddit.com/user/WayAgitated8646/)
+![Funny Meme](https://i.redd.it/wz2rrw1yxp1c1.jpg?width=100&height=100)
+* Meme Author: [Nadocomedy](https://www.reddit.com/user/Nadocomedy/)
 
 
 
