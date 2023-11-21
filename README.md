@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hzg3hp2azj1c1.jpg?width=100&height=100)
-* Meme Author: [Atlas_of_history](https://www.reddit.com/user/Atlas_of_history/)
+![Funny Meme](https://i.redd.it/6fpta5ljkj1c1.jpg?width=100&height=100)
+* Meme Author: [Alexarius87](https://www.reddit.com/user/Alexarius87/)
 
 
 
