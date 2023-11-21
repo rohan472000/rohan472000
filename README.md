@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z0zimrf8nh1c1.png?width=100&height=100)
-* Meme Author: [I_POST_ON_THE_DONALD](https://www.reddit.com/user/I_POST_ON_THE_DONALD/)
+![Funny Meme](https://i.redd.it/nwb1z9poii1c1.jpg?width=100&height=100)
+* Meme Author: [Ok_Strength4608-2nd](https://www.reddit.com/user/Ok_Strength4608-2nd/)
 
 
 
