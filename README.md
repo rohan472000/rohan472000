@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/giva9o3fdl1c1.jpg?width=100&height=100)
-* Meme Author: [Salty-004](https://www.reddit.com/user/Salty-004/)
+![Funny Meme](https://i.redd.it/b1efcinx1i1c1.png?width=100&height=100)
+* Meme Author: [japhar162](https://www.reddit.com/user/japhar162/)
 
 
 
