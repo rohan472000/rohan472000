@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x0zako4sfl1c1.jpg?width=100&height=100)
-* Meme Author: [toastbutbutter](https://www.reddit.com/user/toastbutbutter/)
+![Funny Meme](https://i.redd.it/i6ddh0jfhp1c1.jpeg?width=100&height=100)
+* Meme Author: [Bulldojer0712](https://www.reddit.com/user/Bulldojer0712/)
 
 
 
