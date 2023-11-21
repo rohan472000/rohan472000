@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/najc3aioum1c1.jpg?width=100&height=100)
-* Meme Author: [skinfrakki](https://www.reddit.com/user/skinfrakki/)
+![Funny Meme](https://i.redd.it/2jitvs536f1c1.jpg?width=100&height=100)
+* Meme Author: [Gurdel](https://www.reddit.com/user/Gurdel/)
 
 
 
