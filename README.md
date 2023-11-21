@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fkc9d90xkg1c1.jpg?width=100&height=100)
-* Meme Author: [Valhallawalker](https://www.reddit.com/user/Valhallawalker/)
+![Funny Meme](https://i.redd.it/7m9weham7l1c1.png?width=100&height=100)
+* Meme Author: [determinationmaster](https://www.reddit.com/user/determinationmaster/)
 
 
 
