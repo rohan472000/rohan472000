@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d5lvz6h46k1c1.jpeg?width=100&height=100)
-* Meme Author: [Photoshops_Penises](https://www.reddit.com/user/Photoshops_Penises/)
+![Funny Meme](https://i.redd.it/97rz9ji31k1c1.jpg?width=100&height=100)
+* Meme Author: [superspork18](https://www.reddit.com/user/superspork18/)
 
 
 
