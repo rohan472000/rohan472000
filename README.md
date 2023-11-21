@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cyt9qzeupl1c1.jpg?width=100&height=100)
-* Meme Author: [big-daddy-virgin](https://www.reddit.com/user/big-daddy-virgin/)
+![Funny Meme](https://i.redd.it/z0zimrf8nh1c1.png?width=100&height=100)
+* Meme Author: [I_POST_ON_THE_DONALD](https://www.reddit.com/user/I_POST_ON_THE_DONALD/)
 
 
 
