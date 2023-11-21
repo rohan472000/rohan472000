@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/05yn7lrf4i1c1.jpg?width=100&height=100)
-* Meme Author: [K3W4L](https://www.reddit.com/user/K3W4L/)
+![Funny Meme](https://i.redd.it/f47sfi5c1f1c1.png?width=100&height=100)
+* Meme Author: [youngmcdonald85](https://www.reddit.com/user/youngmcdonald85/)
 
 
 
