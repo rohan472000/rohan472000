@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kpvwz74nlf1c1.jpg?width=100&height=100)
-* Meme Author: [LostSnipurfi1354](https://www.reddit.com/user/LostSnipurfi1354/)
+![Funny Meme](https://i.redd.it/4c4572i3jn1c1.jpeg?width=100&height=100)
+* Meme Author: [DaPokeNerd101](https://www.reddit.com/user/DaPokeNerd101/)
 
 
 
