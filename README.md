@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zbi4qrgbsh1c1.png?width=100&height=100)
-* Meme Author: [Anus-Surfer](https://www.reddit.com/user/Anus-Surfer/)
+![Funny Meme](https://i.redd.it/kam8ogvl5l1c1.jpeg?width=100&height=100)
+* Meme Author: [Milis_Lila](https://www.reddit.com/user/Milis_Lila/)
 
 
 
