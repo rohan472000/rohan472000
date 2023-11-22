@@ -1,4 +1,4 @@
-![Funny Meme](https://i.imgflip.com/86skns.jpg?width=100&height=100)
+![Funny Meme](https://i.imgflip.com/86u7bq.jpg?width=100&height=100)
 * Meme Author: [throwawaysnitch4cash](https://www.reddit.com/user/throwawaysnitch4cash/)
 
 
