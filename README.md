@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1frnc1ltcq1c1.jpg?width=100&height=100)
-* Meme Author: [kickresume](https://www.reddit.com/user/kickresume/)
+![Funny Meme](https://i.redd.it/fy8dn9iz5s1c1.jpg?width=100&height=100)
+* Meme Author: [PharaoPamela](https://www.reddit.com/user/PharaoPamela/)
 
 
 
