@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/90816ioovu1c1.jpg?width=100&height=100)
-* Meme Author: [PucWalker](https://www.reddit.com/user/PucWalker/)
+![Funny Meme](https://i.redd.it/9q319i0iwq1c1.jpg?width=100&height=100)
+* Meme Author: [EquipmentElegant](https://www.reddit.com/user/EquipmentElegant/)
 
 
 
