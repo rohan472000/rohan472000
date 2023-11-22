@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kbd409f86u1c1.jpg?width=100&height=100)
-* Meme Author: [JPPT1974](https://www.reddit.com/user/JPPT1974/)
+![Funny Meme](https://i.redd.it/0v136mm1jt1c1.jpg?width=100&height=100)
+* Meme Author: [TahsinTheBangladeshi](https://www.reddit.com/user/TahsinTheBangladeshi/)
 
 
 
