@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/056zdf2x5y1c1.jpg?width=100&height=100)
-* Meme Author: [themonsterhunterX](https://www.reddit.com/user/themonsterhunterX/)
+![Funny Meme](https://i.redd.it/cxivl14l9x1c1.png?width=100&height=100)
+* Meme Author: [Ezzedo](https://www.reddit.com/user/Ezzedo/)
 
 
 
