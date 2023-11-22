@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3ufr5fxfzv1c1.png?width=100&height=100)
-* Meme Author: [Zaboomerfooo](https://www.reddit.com/user/Zaboomerfooo/)
+![Funny Meme](https://i.redd.it/sxes9ue8nu1c1.jpeg?width=100&height=100)
+* Meme Author: [sarcasticpremed](https://www.reddit.com/user/sarcasticpremed/)
 
 
 
