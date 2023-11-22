@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9ujlv1zvvr1c1.jpg?width=100&height=100)
-* Meme Author: [wowexpert123](https://www.reddit.com/user/wowexpert123/)
+![Funny Meme](https://i.redd.it/0dja5a19hu1c1.jpeg?width=100&height=100)
+* Meme Author: [tstyes](https://www.reddit.com/user/tstyes/)
 
 
 
