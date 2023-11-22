@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ig994g8pjn1c1.png?width=100&height=100)
-* Meme Author: [ngactp](https://www.reddit.com/user/ngactp/)
+![Funny Meme](https://i.redd.it/e18n86sv0q1c1.jpeg?width=100&height=100)
+* Meme Author: [pranavshreedhar123](https://www.reddit.com/user/pranavshreedhar123/)
 
 
 
