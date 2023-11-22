@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/citbpayg2w1c1.jpeg?width=100&height=100)
-* Meme Author: [Efficient-Ad-3302](https://www.reddit.com/user/Efficient-Ad-3302/)
+![Funny Meme](https://i.redd.it/upytt3usrq1c1.jpg?width=100&height=100)
+* Meme Author: [R7IN](https://www.reddit.com/user/R7IN/)
 
 
 
