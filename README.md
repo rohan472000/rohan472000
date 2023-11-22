@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vxleypgr6y1c1.jpeg?width=100&height=100)
-* Meme Author: [GameXpert64](https://www.reddit.com/user/GameXpert64/)
+![Funny Meme](https://i.redd.it/056zdf2x5y1c1.jpg?width=100&height=100)
+* Meme Author: [themonsterhunterX](https://www.reddit.com/user/themonsterhunterX/)
 
 
 
