@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g770uo58dr1c1.jpg?width=100&height=100)
-* Meme Author: [hullopalooza](https://www.reddit.com/user/hullopalooza/)
+![Funny Meme](https://i.redd.it/tsuwo1pgox1c1.jpg?width=100&height=100)
+* Meme Author: [Supersaiajinblue](https://www.reddit.com/user/Supersaiajinblue/)
 
 
 
