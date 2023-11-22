@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0v136mm1jt1c1.jpg?width=100&height=100)
-* Meme Author: [TahsinTheBangladeshi](https://www.reddit.com/user/TahsinTheBangladeshi/)
+![Funny Meme](https://i.redd.it/ff9o9gvnyt1c1.jpg?width=100&height=100)
+* Meme Author: [bigbalrogdong](https://www.reddit.com/user/bigbalrogdong/)
 
 
 
