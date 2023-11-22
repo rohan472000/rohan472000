@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vt07qgntom1c1.jpg?width=100&height=100)
-* Meme Author: [Gojira6832](https://www.reddit.com/user/Gojira6832/)
+![Funny Meme](https://i.redd.it/9ujlv1zvvr1c1.jpg?width=100&height=100)
+* Meme Author: [wowexpert123](https://www.reddit.com/user/wowexpert123/)
 
 
 
