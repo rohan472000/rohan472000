@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q0phvsx8mo1c1.png?width=100&height=100)
-* Meme Author: [Thatoneidiotatschool](https://www.reddit.com/user/Thatoneidiotatschool/)
+![Funny Meme](https://i.redd.it/sof523pkln1c1.jpg?width=100&height=100)
+* Meme Author: [Redeye007](https://www.reddit.com/user/Redeye007/)
 
 
 
