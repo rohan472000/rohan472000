@@ -1,4 +1,4 @@
-![Funny Meme](https://i.redd.it/873rw5xqsr1c1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/hkcmft7usv1c1.jpg?width=100&height=100)
 * Meme Author: [DaveTheRocketGuy](https://www.reddit.com/user/DaveTheRocketGuy/)
 
 
