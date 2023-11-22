@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/90816ioovu1c1.jpg?width=100&height=100)
-* Meme Author: [PucWalker](https://www.reddit.com/user/PucWalker/)
+![Funny Meme](https://i.redd.it/yoffar44py1c1.jpg?width=100&height=100)
+* Meme Author: [Dunmer_of_Skyrim](https://www.reddit.com/user/Dunmer_of_Skyrim/)
 
 
 
