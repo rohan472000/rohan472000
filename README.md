@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bfwha85ebt1c1.jpeg?width=100&height=100)
-* Meme Author: [literal_god](https://www.reddit.com/user/literal_god/)
+![Funny Meme](https://i.redd.it/ig994g8pjn1c1.png?width=100&height=100)
+* Meme Author: [ngactp](https://www.reddit.com/user/ngactp/)
 
 
 
