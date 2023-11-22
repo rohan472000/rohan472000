@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/upytt3usrq1c1.jpg?width=100&height=100)
-* Meme Author: [R7IN](https://www.reddit.com/user/R7IN/)
+![Funny Meme](https://i.redd.it/a0jy75pm1z1c1.jpg?width=100&height=100)
+* Meme Author: [HSK9](https://www.reddit.com/user/HSK9/)
 
 
 
