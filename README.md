@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r7g6vdpp0q1c1.jpeg?width=100&height=100)
-* Meme Author: [YellowScreen75](https://www.reddit.com/user/YellowScreen75/)
+![Funny Meme](https://i.redd.it/1frnc1ltcq1c1.jpg?width=100&height=100)
+* Meme Author: [kickresume](https://www.reddit.com/user/kickresume/)
 
 
 
