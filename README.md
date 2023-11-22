@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i5tux6idyp1c1.jpg?width=100&height=100)
-* Meme Author: [SteeeeveJune](https://www.reddit.com/user/SteeeeveJune/)
+![Funny Meme](https://i.redd.it/fy8dn9iz5s1c1.jpg?width=100&height=100)
+* Meme Author: [PharaoPamela](https://www.reddit.com/user/PharaoPamela/)
 
 
 
