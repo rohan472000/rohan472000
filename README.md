@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b5ub3yiyfr1c1.jpg?width=100&height=100)
-* Meme Author: [EquipmentElegant](https://www.reddit.com/user/EquipmentElegant/)
+![Funny Meme](https://i.redd.it/n2296pod2y1c1.jpeg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 
