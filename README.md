@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pueqlireqv1c1.jpeg?width=100&height=100)
-* Meme Author: [Dry-Ice164](https://www.reddit.com/user/Dry-Ice164/)
+![Funny Meme](https://i.redd.it/iazh6ivr9s1c1.jpeg?width=100&height=100)
+* Meme Author: [SamboTheGr8](https://www.reddit.com/user/SamboTheGr8/)
 
 
 
