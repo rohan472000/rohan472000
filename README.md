@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/id5fp13pnq1c1.jpg?width=100&height=100)
-* Meme Author: [lessthandave89](https://www.reddit.com/user/lessthandave89/)
+![Funny Meme](https://i.redd.it/d7nkargnsp1c1.jpg?width=100&height=100)
+* Meme Author: [BlackIrish69](https://www.reddit.com/user/BlackIrish69/)
 
 
 
