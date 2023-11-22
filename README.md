@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sz5gvpec2r1c1.png?width=100&height=100)
-* Meme Author: [ColorfulPapaya](https://www.reddit.com/user/ColorfulPapaya/)
+![Funny Meme](https://i.redd.it/puam71vaup1c1.jpg?width=100&height=100)
+* Meme Author: [Large-Wheel-4181](https://www.reddit.com/user/Large-Wheel-4181/)
 
 
 
