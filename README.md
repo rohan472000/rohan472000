@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jbbhglb6tv1c1.jpg?width=100&height=100)
-* Meme Author: [1234567en](https://www.reddit.com/user/1234567en/)
+![Funny Meme](https://i.redd.it/8ghx3x2lkw1c1.jpg?width=100&height=100)
+* Meme Author: [KaamDeveloper](https://www.reddit.com/user/KaamDeveloper/)
 
 
 
