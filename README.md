@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/25iaxpak2t1c1.jpeg?width=100&height=100)
-* Meme Author: [Most_Common8114](https://www.reddit.com/user/Most_Common8114/)
+![Funny Meme](https://i.redd.it/ff9o9gvnyt1c1.jpg?width=100&height=100)
+* Meme Author: [bigbalrogdong](https://www.reddit.com/user/bigbalrogdong/)
 
 
 
