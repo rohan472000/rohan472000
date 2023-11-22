@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iazh6ivr9s1c1.jpeg?width=100&height=100)
-* Meme Author: [SamboTheGr8](https://www.reddit.com/user/SamboTheGr8/)
+![Funny Meme](https://i.redd.it/ip1tsctwsw1c1.jpeg?width=100&height=100)
+* Meme Author: [Holofan4life](https://www.reddit.com/user/Holofan4life/)
 
 
 
