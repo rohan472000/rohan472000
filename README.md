@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lej5zvdsiq1c1.png?width=100&height=100)
-* Meme Author: [Ben_Fallstone](https://www.reddit.com/user/Ben_Fallstone/)
+![Funny Meme](https://i.redd.it/sxes9ue8nu1c1.jpeg?width=100&height=100)
+* Meme Author: [sarcasticpremed](https://www.reddit.com/user/sarcasticpremed/)
 
 
 
