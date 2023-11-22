@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7zadrmfdsr1c1.jpg?width=100&height=100)
-* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
+![Funny Meme](https://i.redd.it/lybqw4sf6r1c1.png?width=100&height=100)
+* Meme Author: [Hornet_Lord](https://www.reddit.com/user/Hornet_Lord/)
 
 
 
