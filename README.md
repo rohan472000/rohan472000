@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/az9ldn8jmw1c1.png?width=100&height=100)
-* Meme Author: [trover2345325](https://www.reddit.com/user/trover2345325/)
+![Funny Meme](https://i.redd.it/8yarxwpfdw1c1.jpg?width=100&height=100)
+* Meme Author: [CaptainNinjaClassic](https://www.reddit.com/user/CaptainNinjaClassic/)
 
 
 
