@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u27naz1kiw1c1.jpg?width=100&height=100)
-* Meme Author: [Infinite-Tackle-8864](https://www.reddit.com/user/Infinite-Tackle-8864/)
+![Funny Meme](https://i.redd.it/7yagrilmfn1c1.jpeg?width=100&height=100)
+* Meme Author: [mer029](https://www.reddit.com/user/mer029/)
 
 
 
