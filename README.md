@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ckc7ycxdov1c1.png?width=100&height=100)
-* Meme Author: [LukeZNotFound](https://www.reddit.com/user/LukeZNotFound/)
+![Funny Meme](https://i.redd.it/90816ioovu1c1.jpg?width=100&height=100)
+* Meme Author: [PucWalker](https://www.reddit.com/user/PucWalker/)
 
 
 
