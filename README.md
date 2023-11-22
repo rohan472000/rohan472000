@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2y5cgi94ww1c1.jpg?width=100&height=100)
-* Meme Author: [Turbulent_Feed_6120](https://www.reddit.com/user/Turbulent_Feed_6120/)
+![Funny Meme](https://i.redd.it/vxleypgr6y1c1.jpeg?width=100&height=100)
+* Meme Author: [GameXpert64](https://www.reddit.com/user/GameXpert64/)
 
 
 
