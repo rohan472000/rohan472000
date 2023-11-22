@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/m515lqkxiy1c1.jpg?width=100&height=100)
-* Meme Author: [WandenWaffler](https://www.reddit.com/user/WandenWaffler/)
+![Funny Meme](https://i.redd.it/citbpayg2w1c1.jpeg?width=100&height=100)
+* Meme Author: [Efficient-Ad-3302](https://www.reddit.com/user/Efficient-Ad-3302/)
 
 
 
