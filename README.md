@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lxs3amjsgx1c1.jpg?width=100&height=100)
-* Meme Author: [Prashantshankar](https://www.reddit.com/user/Prashantshankar/)
+![Funny Meme](https://i.redd.it/90816ioovu1c1.jpg?width=100&height=100)
+* Meme Author: [PucWalker](https://www.reddit.com/user/PucWalker/)
 
 
 
