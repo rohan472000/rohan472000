@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8ghx3x2lkw1c1.jpg?width=100&height=100)
-* Meme Author: [KaamDeveloper](https://www.reddit.com/user/KaamDeveloper/)
+![Funny Meme](https://i.redd.it/1ky2uwrz1w1c1.png?width=100&height=100)
+* Meme Author: [_SM-The-Gamer_](https://www.reddit.com/user/_SM-The-Gamer_/)
 
 
 
