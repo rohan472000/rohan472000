@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ff9o9gvnyt1c1.jpg?width=100&height=100)
-* Meme Author: [bigbalrogdong](https://www.reddit.com/user/bigbalrogdong/)
+![Funny Meme](https://i.redd.it/m515lqkxiy1c1.jpg?width=100&height=100)
+* Meme Author: [WandenWaffler](https://www.reddit.com/user/WandenWaffler/)
 
 
 
