@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ky2uwrz1w1c1.png?width=100&height=100)
-* Meme Author: [_SM-The-Gamer_](https://www.reddit.com/user/_SM-The-Gamer_/)
+![Funny Meme](https://i.redd.it/q1ic8bjiwx1c1.jpeg?width=100&height=100)
+* Meme Author: [redrag0n_roOster](https://www.reddit.com/user/redrag0n_roOster/)
 
 
 
