@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/65dxy1x0a02c1.jpg?width=100&height=100)
-* Meme Author: [nineties_nostalgia](https://www.reddit.com/user/nineties_nostalgia/)
+![Funny Meme](https://i.redd.it/ojcfyjuo3z1c1.jpg?width=100&height=100)
+* Meme Author: [HSK9](https://www.reddit.com/user/HSK9/)
 
 
 
