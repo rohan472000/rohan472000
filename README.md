@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4kfsxkrjpz1c1.jpg?width=100&height=100)
-* Meme Author: [notabot367](https://www.reddit.com/user/notabot367/)
+![Funny Meme](https://i.redd.it/cn80c2zpk02c1.png?width=100&height=100)
+* Meme Author: [pawan1612314](https://www.reddit.com/user/pawan1612314/)
 
 
 
