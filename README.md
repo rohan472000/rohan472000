@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1o77bpnh3y1c1.jpg?width=100&height=100)
-* Meme Author: [uwu_01101000](https://www.reddit.com/user/uwu_01101000/)
+![Funny Meme](https://i.redd.it/65dxy1x0a02c1.jpg?width=100&height=100)
+* Meme Author: [nineties_nostalgia](https://www.reddit.com/user/nineties_nostalgia/)
 
 
 
