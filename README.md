@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/notm8wpyj02c1.jpg?width=100&height=100)
-* Meme Author: [Kuthibale](https://www.reddit.com/user/Kuthibale/)
+![Funny Meme](https://i.redd.it/j29qycr2a02c1.jpg?width=100&height=100)
+* Meme Author: [Matatron-1984](https://www.reddit.com/user/Matatron-1984/)
 
 
 
