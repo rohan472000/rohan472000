@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xebmjdnp9p1c1.jpeg?width=100&height=100)
-* Meme Author: [pls_dont_ban_me22](https://www.reddit.com/user/pls_dont_ban_me22/)
+![Funny Meme](https://i.redd.it/u5g6k26wny1c1.png?width=100&height=100)
+* Meme Author: [IAmAccutane](https://www.reddit.com/user/IAmAccutane/)
 
 
 
