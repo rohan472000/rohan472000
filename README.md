@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hchndl3bhz1c1.jpeg?width=100&height=100)
-* Meme Author: [TheRealBissy](https://www.reddit.com/user/TheRealBissy/)
+![Funny Meme](https://i.redd.it/s0o53i1r642c1.jpg?width=100&height=100)
+* Meme Author: [snarkaplump](https://www.reddit.com/user/snarkaplump/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
