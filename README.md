@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/h27oob2i3s1c1.jpg?width=100&height=100)
-* Meme Author: [pee_shudder](https://www.reddit.com/user/pee_shudder/)
+![Funny Meme](https://i.redd.it/4kfsxkrjpz1c1.jpg?width=100&height=100)
+* Meme Author: [notabot367](https://www.reddit.com/user/notabot367/)
 
 
 
