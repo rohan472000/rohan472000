@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6cpf0hte1z1c1.jpg?width=100&height=100)
-* Meme Author: [My_cat_is_sus](https://www.reddit.com/user/My_cat_is_sus/)
+![Funny Meme](https://i.redd.it/6uauzyrgqx1c1.jpg?width=100&height=100)
+* Meme Author: [greatfriendinme](https://www.reddit.com/user/greatfriendinme/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
