@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4kfsxkrjpz1c1.jpg?width=100&height=100)
-* Meme Author: [notabot367](https://www.reddit.com/user/notabot367/)
+![Funny Meme](https://i.redd.it/fk1fmlxng52c1.jpg?width=100&height=100)
+* Meme Author: [Cat_man3](https://www.reddit.com/user/Cat_man3/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
