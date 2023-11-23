@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cfmdibrnkx1c1.jpg?width=100&height=100)
-* Meme Author: [griztheone](https://www.reddit.com/user/griztheone/)
+![Funny Meme](https://i.redd.it/hcv7a2nppv1c1.jpeg?width=100&height=100)
+* Meme Author: [Skippy411](https://www.reddit.com/user/Skippy411/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
