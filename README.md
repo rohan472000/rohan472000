@@ -2,7 +2,6 @@
 * Meme Author: [pawan1612314](https://www.reddit.com/user/pawan1612314/)
 
 
-
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
 **------------------------------------------------------------------------------------------------------------------------------------------------**
 
