@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/enciz2gjtt1c1.jpg?width=100&height=100)
-* Meme Author: [Jetpropeller](https://www.reddit.com/user/Jetpropeller/)
+![Funny Meme](https://i.redd.it/h27oob2i3s1c1.jpg?width=100&height=100)
+* Meme Author: [pee_shudder](https://www.reddit.com/user/pee_shudder/)
 
 
 
