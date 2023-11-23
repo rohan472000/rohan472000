@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iodbofqa342c1.jpg?width=100&height=100)
-* Meme Author: [wolfbayte](https://www.reddit.com/user/wolfbayte/)
+![Funny Meme](https://i.redd.it/9p48szogx02c1.jpeg?width=100&height=100)
+* Meme Author: [StacyCat12](https://www.reddit.com/user/StacyCat12/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
