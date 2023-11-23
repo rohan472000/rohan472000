@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/paq38gjuj42c1.jpg?width=100&height=100)
-* Meme Author: [totalinfonet](https://www.reddit.com/user/totalinfonet/)
+![Funny Meme](https://i.redd.it/5nc4vr0rzx1c1.jpg?width=100&height=100)
+* Meme Author: [DixaMan](https://www.reddit.com/user/DixaMan/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
