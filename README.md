@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/du4hnpmno32c1.jpg?width=100&height=100)
-* Meme Author: [djstickylee](https://www.reddit.com/user/djstickylee/)
+![Funny Meme](https://i.redd.it/7xi3b69fs22c1.jpg?width=100&height=100)
+* Meme Author: [DarkSunglassess](https://www.reddit.com/user/DarkSunglassess/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
