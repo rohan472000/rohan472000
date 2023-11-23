@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4sb5zgijoy1c1.png?width=100&height=100)
-* Meme Author: [moultano](https://www.reddit.com/user/moultano/)
+![Funny Meme](https://i.redd.it/fbmvn33hqv1c1.jpeg?width=100&height=100)
+* Meme Author: [Greninjerk](https://www.reddit.com/user/Greninjerk/)
 
 
 
