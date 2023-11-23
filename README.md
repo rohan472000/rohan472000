@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gzodk43ej52c1.jpg?width=100&height=100)
-* Meme Author: [Normal-Store5648](https://www.reddit.com/user/Normal-Store5648/)
+![Funny Meme](https://i.redd.it/o8kqa2nkcy1c1.jpg?width=100&height=100)
+* Meme Author: [eliyak](https://www.reddit.com/user/eliyak/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
