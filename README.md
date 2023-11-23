@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rqtq24z7yz1c1.jpeg?width=100&height=100)
-* Meme Author: [Doctor-Patronising](https://www.reddit.com/user/Doctor-Patronising/)
+![Funny Meme](https://i.redd.it/40rye3oxyx1c1.png?width=100&height=100)
+* Meme Author: [SubjectNether](https://www.reddit.com/user/SubjectNether/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
