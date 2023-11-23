@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5nmefjx0t02c1.jpg?width=100&height=100)
-* Meme Author: [Icy-Solution-5424](https://www.reddit.com/user/Icy-Solution-5424/)
+![Funny Meme](https://i.redd.it/t7d1s4awfq1c1.png?width=100&height=100)
+* Meme Author: [AiraneVanchalaEnti69](https://www.reddit.com/user/AiraneVanchalaEnti69/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
