@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ed0dlcj8ry1c1.jpg?width=100&height=100)
-* Meme Author: [Swiming_spiders](https://www.reddit.com/user/Swiming_spiders/)
+![Funny Meme](https://i.redd.it/fbmvn33hqv1c1.jpeg?width=100&height=100)
+* Meme Author: [Greninjerk](https://www.reddit.com/user/Greninjerk/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
