@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/f1sxa8rc742c1.jpg?width=100&height=100)
-* Meme Author: [Darius_Kel](https://www.reddit.com/user/Darius_Kel/)
+![Funny Meme](https://i.redd.it/5b59s0ys052c1.jpg?width=100&height=100)
+* Meme Author: [Auroraintime](https://www.reddit.com/user/Auroraintime/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
