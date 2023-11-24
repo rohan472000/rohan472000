@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tvrif42mh72c1.jpg?width=100&height=100)
-* Meme Author: [GSwizzy17](https://www.reddit.com/user/GSwizzy17/)
+![Funny Meme](https://i.redd.it/ojygvodv062c1.jpg?width=100&height=100)
+* Meme Author: [Turd_Burglerson](https://www.reddit.com/user/Turd_Burglerson/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
