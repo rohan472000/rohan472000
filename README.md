@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3g7fz95hr62c1.jpeg?width=100&height=100)
-* Meme Author: [Strongarm_11](https://www.reddit.com/user/Strongarm_11/)
+![Funny Meme](https://i.redd.it/wl0b2vuvy92c1.jpg?width=100&height=100)
+* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
