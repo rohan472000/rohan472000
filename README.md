@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eugomss8pc2c1.png?width=100&height=100)
-* Meme Author: [chaairs](https://www.reddit.com/user/chaairs/)
+![Funny Meme](https://i.redd.it/hzk6fimpbb2c1.jpg?width=100&height=100)
+* Meme Author: [Aggressive_Cherry_81](https://www.reddit.com/user/Aggressive_Cherry_81/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
