@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/loy5pxu5kb2c1.png?width=100&height=100)
-* Meme Author: [PoloGator](https://www.reddit.com/user/PoloGator/)
+![Funny Meme](https://i.redd.it/3g7fz95hr62c1.jpeg?width=100&height=100)
+* Meme Author: [Strongarm_11](https://www.reddit.com/user/Strongarm_11/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
