@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zfs8z1kb272c1.png?width=100&height=100)
-* Meme Author: [Animeking1108](https://www.reddit.com/user/Animeking1108/)
+![Funny Meme](https://i.redd.it/8bnvvk9kp22c1.jpg?width=100&height=100)
+* Meme Author: [Professor_Donaldson](https://www.reddit.com/user/Professor_Donaldson/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
