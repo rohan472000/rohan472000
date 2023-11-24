@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mby7ffop8b2c1.jpg?width=100&height=100)
-* Meme Author: [nineties_nostalgia](https://www.reddit.com/user/nineties_nostalgia/)
+![Funny Meme](https://i.redd.it/o5ed2lqdy72c1.jpg?width=100&height=100)
+* Meme Author: [Mushroom_lady_mwaha](https://www.reddit.com/user/Mushroom_lady_mwaha/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
