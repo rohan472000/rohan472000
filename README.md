@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tudbde906a2c1.png?width=100&height=100)
-* Meme Author: [Sadiepan24](https://www.reddit.com/user/Sadiepan24/)
+![Funny Meme](https://i.redd.it/xuwsg79v172c1.jpg?width=100&height=100)
+* Meme Author: [Gnrl_Linotte_Vanilla](https://www.reddit.com/user/Gnrl_Linotte_Vanilla/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
