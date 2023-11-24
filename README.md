@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2xslssueh42c1.png?width=100&height=100)
-* Meme Author: [ClubianJedi96](https://www.reddit.com/user/ClubianJedi96/)
+![Funny Meme](https://i.redd.it/24697wumd62c1.jpeg?width=100&height=100)
+* Meme Author: [ImBlursed](https://www.reddit.com/user/ImBlursed/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
