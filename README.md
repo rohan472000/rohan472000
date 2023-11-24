@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6pk6tmr9182c1.jpg?width=100&height=100)
-* Meme Author: [squid_ward_16](https://www.reddit.com/user/squid_ward_16/)
+![Funny Meme](https://i.redd.it/kewj0s2an62c1.jpg?width=100&height=100)
+* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
