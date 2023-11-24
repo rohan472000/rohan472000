@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ur7y7q1r982c1.jpg?width=100&height=100)
-* Meme Author: [ChAOs-69er](https://www.reddit.com/user/ChAOs-69er/)
+![Funny Meme](https://i.redd.it/159f0k9r662c1.jpg?width=100&height=100)
+* Meme Author: [Educational_Term_436](https://www.reddit.com/user/Educational_Term_436/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
