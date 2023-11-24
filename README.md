@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vmjcx169192c1.jpg?width=100&height=100)
-* Meme Author: [_SATAN_69](https://www.reddit.com/user/_SATAN_69/)
+![Funny Meme](https://i.redd.it/nnwjkqog542c1.jpeg?width=100&height=100)
+* Meme Author: [TheApollo222](https://www.reddit.com/user/TheApollo222/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
