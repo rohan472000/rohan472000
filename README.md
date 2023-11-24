@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c6cwbbh3rb2c1.jpg?width=100&height=100)
-* Meme Author: [yellowmonkey94](https://www.reddit.com/user/yellowmonkey94/)
+![Funny Meme](https://i.redd.it/ismgbqtap82c1.png?width=100&height=100)
+* Meme Author: [15ShadowGoku](https://www.reddit.com/user/15ShadowGoku/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
