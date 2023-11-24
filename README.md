@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k58kk3om292c1.jpeg?width=100&height=100)
-* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
+![Funny Meme](https://i.redd.it/6ymeaxjl692c1.png?width=100&height=100)
+* Meme Author: [Jurassic-Terminator](https://www.reddit.com/user/Jurassic-Terminator/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
