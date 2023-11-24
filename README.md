@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x8zwb79lr42c1.jpeg?width=100&height=100)
-* Meme Author: [RaccoonRepublic](https://www.reddit.com/user/RaccoonRepublic/)
+![Funny Meme](https://i.redd.it/6j6vgzwpp82c1.jpg?width=100&height=100)
+* Meme Author: [Mushroom_lady_mwaha](https://www.reddit.com/user/Mushroom_lady_mwaha/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
