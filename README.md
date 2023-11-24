@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zsiwk8flp32c1.jpg?width=100&height=100)
-* Meme Author: [Salty-004](https://www.reddit.com/user/Salty-004/)
+![Funny Meme](https://i.redd.it/90gl1hfug72c1.jpg?width=100&height=100)
+* Meme Author: [TheRaginCaucasian](https://www.reddit.com/user/TheRaginCaucasian/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
