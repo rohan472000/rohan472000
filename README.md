@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vv3rk8ul472c1.jpeg?width=100&height=100)
-* Meme Author: [thecatcheronthefly](https://www.reddit.com/user/thecatcheronthefly/)
+![Funny Meme](https://i.redd.it/2kuw7joo8a2c1.jpg?width=100&height=100)
+* Meme Author: [NoNameIdea_Seriously](https://www.reddit.com/user/NoNameIdea_Seriously/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
