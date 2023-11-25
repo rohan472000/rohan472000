@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ui6p2hpqzh2c1.png?width=100&height=100)
-* Meme Author: [Crazy_Jimmy5](https://www.reddit.com/user/Crazy_Jimmy5/)
+![Funny Meme](https://i.redd.it/42f5es6f192c1.jpg?width=100&height=100)
+* Meme Author: [fap_fap_fap_fapper](https://www.reddit.com/user/fap_fap_fap_fapper/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
