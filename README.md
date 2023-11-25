@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sa55v51r092c1.png?width=100&height=100)
-* Meme Author: [Lol-Otter](https://www.reddit.com/user/Lol-Otter/)
+![Funny Meme](https://i.redd.it/030wncq5se2c1.jpeg?width=100&height=100)
+* Meme Author: [ZadarskiDrake](https://www.reddit.com/user/ZadarskiDrake/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
