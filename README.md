@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oelv0d4d372c1.jpg?width=100&height=100)
-* Meme Author: [Yantelope](https://www.reddit.com/user/Yantelope/)
+![Funny Meme](https://i.redd.it/t107bolp6f2c1.jpeg?width=100&height=100)
+* Meme Author: [A_random_memer](https://www.reddit.com/user/A_random_memer/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
