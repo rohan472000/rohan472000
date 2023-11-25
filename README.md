@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gp5a9bxohg2c1.jpeg?width=100&height=100)
-* Meme Author: [Master_Combinator](https://www.reddit.com/user/Master_Combinator/)
+![Funny Meme](https://i.redd.it/yh26x6qh4a2c1.jpg?width=100&height=100)
+* Meme Author: [pkrs04](https://www.reddit.com/user/pkrs04/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
