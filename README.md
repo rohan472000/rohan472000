@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8all40vq352c1.jpg?width=100&height=100)
-* Meme Author: [weeblord42069help](https://www.reddit.com/user/weeblord42069help/)
+![Funny Meme](https://i.redd.it/s4yoy7hqfh2c1.png?width=100&height=100)
+* Meme Author: [TheRumpletiltskin](https://www.reddit.com/user/TheRumpletiltskin/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
