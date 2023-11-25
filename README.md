@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pgpmw4j68c2c1.png?width=100&height=100)
-* Meme Author: [Uncanny_M](https://www.reddit.com/user/Uncanny_M/)
+![Funny Meme](https://i.redd.it/06l1pgap8d2c1.png?width=100&height=100)
+* Meme Author: [paranome_](https://www.reddit.com/user/paranome_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
