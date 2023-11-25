@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/awlhuizasc2c1.jpg?width=100&height=100)
-* Meme Author: [Archmura](https://www.reddit.com/user/Archmura/)
+![Funny Meme](https://i.redd.it/9n0vc5umuc2c1.jpg?width=100&height=100)
+* Meme Author: [MetalFistTerrorist_](https://www.reddit.com/user/MetalFistTerrorist_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
