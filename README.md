@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7kya7jxgre2c1.jpg?width=100&height=100)
-* Meme Author: [PolarisStar05](https://www.reddit.com/user/PolarisStar05/)
+![Funny Meme](https://i.redd.it/yi4de9yyi52c1.jpg?width=100&height=100)
+* Meme Author: [BearFuzanglong](https://www.reddit.com/user/BearFuzanglong/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
