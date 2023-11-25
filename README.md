@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2i8dmq67zd2c1.jpg?width=100&height=100)
-* Meme Author: [BigSpongebobFanatic](https://www.reddit.com/user/BigSpongebobFanatic/)
+![Funny Meme](https://i.redd.it/7kya7jxgre2c1.jpg?width=100&height=100)
+* Meme Author: [PolarisStar05](https://www.reddit.com/user/PolarisStar05/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
