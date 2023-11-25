@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fvprgz6puc2c1.jpeg?width=100&height=100)
-* Meme Author: [RichMarkleyDotCom](https://www.reddit.com/user/RichMarkleyDotCom/)
+![Funny Meme](https://i.redd.it/isn0qbht6i2c1.jpg?width=100&height=100)
+* Meme Author: [Yoda_King_9](https://www.reddit.com/user/Yoda_King_9/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
