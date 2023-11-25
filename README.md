@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t8pay3o4se2c1.jpg?width=100&height=100)
-* Meme Author: [Careless_Reception74](https://www.reddit.com/user/Careless_Reception74/)
+![Funny Meme](https://i.redd.it/ijac63l1bd2c1.png?width=100&height=100)
+* Meme Author: [A-Complicated-Tree](https://www.reddit.com/user/A-Complicated-Tree/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
