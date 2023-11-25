@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b58d2hfds72c1.jpeg?width=100&height=100)
-* Meme Author: [Relative-Theme-4894](https://www.reddit.com/user/Relative-Theme-4894/)
+![Funny Meme](https://i.redd.it/nqk3a0hpkb2c1.jpg?width=100&height=100)
+* Meme Author: [NonverbalGore24](https://www.reddit.com/user/NonverbalGore24/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
