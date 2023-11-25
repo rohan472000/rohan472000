@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0uioz2gw082c1.png?width=100&height=100)
-* Meme Author: [Ayn234](https://www.reddit.com/user/Ayn234/)
+![Funny Meme](https://i.redd.it/tkh6x8no7b2c1.png?width=100&height=100)
+* Meme Author: [GloomyHouseReddit](https://www.reddit.com/user/GloomyHouseReddit/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
