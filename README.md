@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/30un63wglp2c1.jpg?width=100&height=100)
-* Meme Author: [roldynzm](https://www.reddit.com/user/roldynzm/)
+![Funny Meme](https://i.redd.it/sfew0wsppo2c1.jpg?width=100&height=100)
+* Meme Author: [beautifulplanet](https://www.reddit.com/user/beautifulplanet/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
