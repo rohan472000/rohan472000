@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ytvho7oj5q2c1.jpeg?width=100&height=100)
-* Meme Author: [Holofan4life](https://www.reddit.com/user/Holofan4life/)
+![Funny Meme](https://i.redd.it/utk4durp5j2c1.jpg?width=100&height=100)
+* Meme Author: [PrettyCoolTim](https://www.reddit.com/user/PrettyCoolTim/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
