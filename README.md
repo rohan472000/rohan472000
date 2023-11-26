@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/go4u1mkq4p2c1.png?width=100&height=100)
-* Meme Author: [amoptimusprime2](https://www.reddit.com/user/amoptimusprime2/)
+![Funny Meme](https://i.redd.it/n2gtv38fwj2c1.png?width=100&height=100)
+* Meme Author: [Vision-Quest-9054](https://www.reddit.com/user/Vision-Quest-9054/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
