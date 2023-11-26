@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9fk3fxr11m2c1.jpeg?width=100&height=100)
-* Meme Author: [J_ClutchFTV](https://www.reddit.com/user/J_ClutchFTV/)
+![Funny Meme](https://i.redd.it/oiymzbqa5j2c1.png?width=100&height=100)
+* Meme Author: [orangutantrm88](https://www.reddit.com/user/orangutantrm88/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
