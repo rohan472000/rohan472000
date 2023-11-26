@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rret4rxkrk2c1.jpeg?width=100&height=100)
-* Meme Author: [Infamous-Love-1255](https://www.reddit.com/user/Infamous-Love-1255/)
+![Funny Meme](https://i.redd.it/qbaop0mpdo2c1.jpg?width=100&height=100)
+* Meme Author: [not_a_profession](https://www.reddit.com/user/not_a_profession/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
