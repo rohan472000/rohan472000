@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ye13fx0f5j2c1.jpeg?width=100&height=100)
-* Meme Author: [IcameInDadsCoffee](https://www.reddit.com/user/IcameInDadsCoffee/)
+![Funny Meme](https://i.redd.it/5ggphjusql2c1.jpg?width=100&height=100)
+* Meme Author: [Potential_BadA55](https://www.reddit.com/user/Potential_BadA55/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
