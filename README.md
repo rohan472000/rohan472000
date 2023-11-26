@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ry6ll3hakj2c1.jpeg?width=100&height=100)
-* Meme Author: [Zodigod](https://www.reddit.com/user/Zodigod/)
+![Funny Meme](https://i.redd.it/2hp94c1d8l2c1.jpg?width=100&height=100)
+* Meme Author: [TREXIBALL](https://www.reddit.com/user/TREXIBALL/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
