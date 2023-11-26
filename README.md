@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vth45q9j0j2c1.jpg?width=100&height=100)
-* Meme Author: [Deathblade_311](https://www.reddit.com/user/Deathblade_311/)
+![Funny Meme](https://i.redd.it/fznlqtxhyi2c1.jpg?width=100&height=100)
+* Meme Author: [HaggisMcNeill](https://www.reddit.com/user/HaggisMcNeill/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
