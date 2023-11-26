@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tr7z4nefpd2c1.jpeg?width=100&height=100)
-* Meme Author: [Pickleblobsquish](https://www.reddit.com/user/Pickleblobsquish/)
+![Funny Meme](https://i.redd.it/ylkfl4wpdi2c1.jpeg?width=100&height=100)
+* Meme Author: [YourHuckleberry97](https://www.reddit.com/user/YourHuckleberry97/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
