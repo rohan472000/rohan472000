@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4gkq7uql1m2c1.jpg?width=100&height=100)
-* Meme Author: [RLakin70](https://www.reddit.com/user/RLakin70/)
+![Funny Meme](https://i.redd.it/s622oykg0l2c1.jpg?width=100&height=100)
+* Meme Author: [Shadow-Floof](https://www.reddit.com/user/Shadow-Floof/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
