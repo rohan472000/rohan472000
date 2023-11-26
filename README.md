@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dy7h57tdsi2c1.jpg?width=100&height=100)
-* Meme Author: [wckdtransition](https://www.reddit.com/user/wckdtransition/)
+![Funny Meme](https://i.redd.it/7x8bjsw14b2c1.jpeg?width=100&height=100)
+* Meme Author: [fake_account_6](https://www.reddit.com/user/fake_account_6/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
