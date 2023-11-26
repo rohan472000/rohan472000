@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/32c4lg5g7l2c1.jpeg?width=100&height=100)
-* Meme Author: [X_CLUSIVE69](https://www.reddit.com/user/X_CLUSIVE69/)
+![Funny Meme](https://i.redd.it/bs02n83tlm2c1.jpg?width=100&height=100)
+* Meme Author: [EnvironmentalStop412](https://www.reddit.com/user/EnvironmentalStop412/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
