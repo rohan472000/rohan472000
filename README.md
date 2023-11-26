@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8a7f62z0kk2c1.jpg?width=100&height=100)
-* Meme Author: [Half-of-Tuesday](https://www.reddit.com/user/Half-of-Tuesday/)
+![Funny Meme](https://i.redd.it/bxrjpo374k2c1.jpg?width=100&height=100)
+* Meme Author: [amoguspronlover69](https://www.reddit.com/user/amoguspronlover69/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
