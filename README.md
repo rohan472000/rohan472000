@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qx1of0e34k2c1.jpg?width=100&height=100)
-* Meme Author: [Spooky_boi_Kyle_8](https://www.reddit.com/user/Spooky_boi_Kyle_8/)
+![Funny Meme](https://i.redd.it/6ycombg9jp2c1.png?width=100&height=100)
+* Meme Author: [Gainaxer](https://www.reddit.com/user/Gainaxer/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
