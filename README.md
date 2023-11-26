@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/84rszm188l2c1.jpeg?width=100&height=100)
-* Meme Author: [LycanVan](https://www.reddit.com/user/LycanVan/)
+![Funny Meme](https://i.redd.it/lrvir142qk2c1.png?width=100&height=100)
+* Meme Author: [InspectionSignal5236](https://www.reddit.com/user/InspectionSignal5236/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
