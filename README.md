@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wtszggj84o2c1.jpeg?width=100&height=100)
-* Meme Author: [Away-Net-7241](https://www.reddit.com/user/Away-Net-7241/)
+![Funny Meme](https://i.redd.it/f6q6jz0egw2c1.jpeg?width=100&height=100)
+* Meme Author: [Grayfuze](https://www.reddit.com/user/Grayfuze/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
