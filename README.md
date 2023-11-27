@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tmsb0neq2u2c1.png?width=100&height=100)
-* Meme Author: [SevenBall](https://www.reddit.com/user/SevenBall/)
+![Funny Meme](https://i.redd.it/edhuwd2emp2c1.jpg?width=100&height=100)
+* Meme Author: [Agresiivaiss](https://www.reddit.com/user/Agresiivaiss/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
