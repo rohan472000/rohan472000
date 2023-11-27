@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lnlrtaydwr2c1.png?width=100&height=100)
-* Meme Author: [thisuseristakenbreh](https://www.reddit.com/user/thisuseristakenbreh/)
+![Funny Meme](https://i.redd.it/xcomxjxv6t2c1.jpeg?width=100&height=100)
+* Meme Author: [meme-merchant64](https://www.reddit.com/user/meme-merchant64/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
