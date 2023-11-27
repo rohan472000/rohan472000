@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8ebzbyefrs2c1.jpeg?width=100&height=100)
-* Meme Author: [Golden-Vibes](https://www.reddit.com/user/Golden-Vibes/)
+![Funny Meme](https://i.redd.it/v5z52bebmr2c1.png?width=100&height=100)
+* Meme Author: [thestupididiot0](https://www.reddit.com/user/thestupididiot0/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
