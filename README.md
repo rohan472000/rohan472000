@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/enw8yx31yp2c1.jpeg?width=100&height=100)
-* Meme Author: [Arkthus](https://www.reddit.com/user/Arkthus/)
+![Funny Meme](https://i.redd.it/t7is9gktkq2c1.jpg?width=100&height=100)
+* Meme Author: [National-Bison-3236](https://www.reddit.com/user/National-Bison-3236/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
