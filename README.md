@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/enw8yx31yp2c1.jpeg?width=100&height=100)
-* Meme Author: [Arkthus](https://www.reddit.com/user/Arkthus/)
+![Funny Meme](https://i.redd.it/epocspckps2c1.jpeg?width=100&height=100)
+* Meme Author: [parenthetical_phrase](https://www.reddit.com/user/parenthetical_phrase/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
