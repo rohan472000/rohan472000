@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0hlruo6lnt2c1.jpeg?width=100&height=100)
-* Meme Author: [Darth-Hipla](https://www.reddit.com/user/Darth-Hipla/)
+![Funny Meme](https://i.redd.it/unnkcu59rs2c1.jpg?width=100&height=100)
+* Meme Author: [shagstead](https://www.reddit.com/user/shagstead/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
