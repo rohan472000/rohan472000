@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lwi4eavegq2c1.jpg?width=100&height=100)
-* Meme Author: [miglerman17](https://www.reddit.com/user/miglerman17/)
+![Funny Meme](https://i.redd.it/mp6pe2yubu2c1.jpeg?width=100&height=100)
+* Meme Author: [SausageBlender](https://www.reddit.com/user/SausageBlender/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
