@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4joe7d197n2c1.jpg?width=100&height=100)
-* Meme Author: [Goobersniper](https://www.reddit.com/user/Goobersniper/)
+![Funny Meme](https://i.redd.it/sfew0wsppo2c1.jpg?width=100&height=100)
+* Meme Author: [beautifulplanet](https://www.reddit.com/user/beautifulplanet/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
