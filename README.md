@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k6tk498sxq2c1.jpg?width=100&height=100)
-* Meme Author: [Expert_Camel5619](https://www.reddit.com/user/Expert_Camel5619/)
+![Funny Meme](https://i.redd.it/sn2mffeyim2c1.jpg?width=100&height=100)
+* Meme Author: [slashdisco](https://www.reddit.com/user/slashdisco/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
