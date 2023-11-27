@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/n2xtc8eris2c1.jpg?width=100&height=100)
-* Meme Author: [Videowulff](https://www.reddit.com/user/Videowulff/)
+![Funny Meme](https://i.redd.it/bjww1nv1ws2c1.jpg?width=100&height=100)
+* Meme Author: [TheKnightsWhoSayNyet](https://www.reddit.com/user/TheKnightsWhoSayNyet/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
