@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qxe88sw0mw2c1.jpg?width=100&height=100)
-* Meme Author: [TheFogIsComingNR3](https://www.reddit.com/user/TheFogIsComingNR3/)
+![Funny Meme](https://i.redd.it/06lgorwqqx2c1.jpg?width=100&height=100)
+* Meme Author: [Popfartshart](https://www.reddit.com/user/Popfartshart/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
