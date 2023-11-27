@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wcqsyhbk2r2c1.jpeg?width=100&height=100)
-* Meme Author: [Waitingforlunch](https://www.reddit.com/user/Waitingforlunch/)
+![Funny Meme](https://i.redd.it/pxkvzsci0p2c1.png?width=100&height=100)
+* Meme Author: [Thsepopotm](https://www.reddit.com/user/Thsepopotm/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
