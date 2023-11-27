@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lfn5ivea4s2c1.jpg?width=100&height=100)
-* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
+![Funny Meme](https://i.redd.it/68q6tlt7cr2c1.png?width=100&height=100)
+* Meme Author: [M10doreddit](https://www.reddit.com/user/M10doreddit/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
