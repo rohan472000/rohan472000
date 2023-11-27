@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/og42smnabv2c1.jpg?width=100&height=100)
-* Meme Author: [Voorazun](https://www.reddit.com/user/Voorazun/)
+![Funny Meme](https://i.redd.it/j9qrudhgfr2c1.png?width=100&height=100)
+* Meme Author: [Div_100](https://www.reddit.com/user/Div_100/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
