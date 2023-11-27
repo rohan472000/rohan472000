@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dvge21bfpw2c1.jpg?width=100&height=100)
-* Meme Author: [silkyssnake](https://www.reddit.com/user/silkyssnake/)
+![Funny Meme](https://i.redd.it/wkf941argu2c1.jpg?width=100&height=100)
+* Meme Author: [Noriel_Sylvire](https://www.reddit.com/user/Noriel_Sylvire/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
