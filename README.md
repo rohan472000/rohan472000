@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wqwx7c96kv2c1.png?width=100&height=100)
-* Meme Author: [kindofsus38](https://www.reddit.com/user/kindofsus38/)
+![Funny Meme](https://i.redd.it/cq84vnqucs2c1.png?width=100&height=100)
+* Meme Author: [Cheeseyboy01](https://www.reddit.com/user/Cheeseyboy01/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
