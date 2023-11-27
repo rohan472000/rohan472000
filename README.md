@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dd15cmcaty2c1.jpeg?width=100&height=100)
-* Meme Author: [parenthetical_phrase](https://www.reddit.com/user/parenthetical_phrase/)
+![Funny Meme](https://i.redd.it/wqwx7c96kv2c1.png?width=100&height=100)
+* Meme Author: [kindofsus38](https://www.reddit.com/user/kindofsus38/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
