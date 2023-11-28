@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/crwari9ja13c1.jpeg?width=100&height=100)
-* Meme Author: [panseshi](https://www.reddit.com/user/panseshi/)
+![Funny Meme](https://i.redd.it/2tu75zzdzx2c1.jpeg?width=100&height=100)
+* Meme Author: [jimmyapril19](https://www.reddit.com/user/jimmyapril19/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
