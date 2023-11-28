@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jq3eqk4wzv2c1.jpg?width=100&height=100)
-* Meme Author: [katanaearth](https://www.reddit.com/user/katanaearth/)
+![Funny Meme](https://i.redd.it/46nrcd1ad43c1.jpeg?width=100&height=100)
+* Meme Author: [Casual_Beans1](https://www.reddit.com/user/Casual_Beans1/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
