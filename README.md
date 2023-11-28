@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/fc8c7ccb3r2c1.png?width=100&height=100)
-* Meme Author: [Moat_of_the_Sacked](https://www.reddit.com/user/Moat_of_the_Sacked/)
+![Funny Meme](https://i.redd.it/zlr4evw33z2c1.jpg?width=100&height=100)
+* Meme Author: [wackykindaguy](https://www.reddit.com/user/wackykindaguy/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
