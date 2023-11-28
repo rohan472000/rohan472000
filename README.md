@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a0bcx8bj713c1.jpg?width=100&height=100)
-* Meme Author: [Kabukimansanjoe](https://www.reddit.com/user/Kabukimansanjoe/)
+![Funny Meme](https://i.redd.it/oq3i0c3h6z2c1.jpeg?width=100&height=100)
+* Meme Author: [Freeze-up](https://www.reddit.com/user/Freeze-up/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
