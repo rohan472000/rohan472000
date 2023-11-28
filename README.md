@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/abx9ybqinz2c1.png?width=100&height=100)
-* Meme Author: [shocking_negligence](https://www.reddit.com/user/shocking_negligence/)
+![Funny Meme](https://i.redd.it/ikomzlstq03c1.jpg?width=100&height=100)
+* Meme Author: [BulmasBabyDaddy](https://www.reddit.com/user/BulmasBabyDaddy/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
