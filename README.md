@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gyqftvgkd23c1.jpeg?width=100&height=100)
-* Meme Author: [BigBootyBitches4Lyfe](https://www.reddit.com/user/BigBootyBitches4Lyfe/)
+![Funny Meme](https://i.redd.it/abx9ybqinz2c1.png?width=100&height=100)
+* Meme Author: [shocking_negligence](https://www.reddit.com/user/shocking_negligence/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
