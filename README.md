@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/66ztc6e3z33c1.jpg?width=100&height=100)
-* Meme Author: [noodleisacat](https://www.reddit.com/user/noodleisacat/)
+![Funny Meme](https://i.redd.it/8407wh3qiy2c1.jpg?width=100&height=100)
+* Meme Author: [Adam_G_Man](https://www.reddit.com/user/Adam_G_Man/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
