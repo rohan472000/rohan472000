@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9du2lcj0rz2c1.jpg?width=100&height=100)
-* Meme Author: [dogfoodgangsta](https://www.reddit.com/user/dogfoodgangsta/)
+![Funny Meme](https://i.redd.it/xa6mg7jb8u2c1.jpg?width=100&height=100)
+* Meme Author: [The5Theives](https://www.reddit.com/user/The5Theives/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
