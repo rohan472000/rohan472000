@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2c1iu3x33v2c1.jpg?width=100&height=100)
-* Meme Author: [Tom_a_fan](https://www.reddit.com/user/Tom_a_fan/)
+![Funny Meme](https://i.redd.it/nalka7dm923c1.png?width=100&height=100)
+* Meme Author: [CloseMyShitterDoor](https://www.reddit.com/user/CloseMyShitterDoor/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
