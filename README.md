@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/uuyd6thm833c1.png?width=100&height=100)
-* Meme Author: [AmpovHater](https://www.reddit.com/user/AmpovHater/)
+![Funny Meme](https://i.redd.it/la7flm0p8z2c1.jpg?width=100&height=100)
+* Meme Author: [AnimaxPsycho](https://www.reddit.com/user/AnimaxPsycho/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
