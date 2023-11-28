@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/10bv7fwelu2c1.jpeg?width=100&height=100)
-* Meme Author: [fanta_bhelpuri](https://www.reddit.com/user/fanta_bhelpuri/)
+![Funny Meme](https://i.redd.it/xnfm2lo6pw2c1.jpg?width=100&height=100)
+* Meme Author: [CrytzGaming](https://www.reddit.com/user/CrytzGaming/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
