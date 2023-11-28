@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qaf8652t7t2c1.jpg?width=100&height=100)
-* Meme Author: [booklover_on_earth](https://www.reddit.com/user/booklover_on_earth/)
+![Funny Meme](https://i.redd.it/ia5lp2o2ts2c1.jpeg?width=100&height=100)
+* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
