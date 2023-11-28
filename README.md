@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6yxi2kf81y2c1.jpg?width=100&height=100)
-* Meme Author: [Awkward_Impact_6186](https://www.reddit.com/user/Awkward_Impact_6186/)
+![Funny Meme](https://i.redd.it/w78qcpno0t2c1.jpg?width=100&height=100)
+* Meme Author: [PokeChampMarx](https://www.reddit.com/user/PokeChampMarx/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
