@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/a2pxzv4pc43c1.jpeg?width=100&height=100)
-* Meme Author: [Milis_Lila](https://www.reddit.com/user/Milis_Lila/)
+![Funny Meme](https://i.redd.it/8io2l38j853c1.png?width=100&height=100)
+* Meme Author: [I_DONT_KNOW_CODE](https://www.reddit.com/user/I_DONT_KNOW_CODE/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
