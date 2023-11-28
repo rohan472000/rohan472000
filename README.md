@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1ykgonu3i03c1.jpeg?width=100&height=100)
-* Meme Author: [EcyorWasTaken](https://www.reddit.com/user/EcyorWasTaken/)
+![Funny Meme](https://i.redd.it/521gslt8o33c1.jpeg?width=100&height=100)
+* Meme Author: [djfuze919](https://www.reddit.com/user/djfuze919/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
