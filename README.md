@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nnei1sfbnz2c1.png?width=100&height=100)
-* Meme Author: [GreenFeather19991](https://www.reddit.com/user/GreenFeather19991/)
+![Funny Meme](https://i.redd.it/8sz7qn2wt33c1.jpeg?width=100&height=100)
+* Meme Author: [Economy_Sink1697](https://www.reddit.com/user/Economy_Sink1697/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
