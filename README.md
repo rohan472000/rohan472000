@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1sxh99zrr63c1.jpg?width=100&height=100)
-* Meme Author: [Doughnutsugarhead](https://www.reddit.com/user/Doughnutsugarhead/)
+![Funny Meme](https://i.redd.it/jkh78dctwb3c1.jpg?width=100&height=100)
+* Meme Author: [_steve_ipsilon_](https://www.reddit.com/user/_steve_ipsilon_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
