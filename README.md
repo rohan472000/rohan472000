@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hw2402cbk93c1.jpg?width=100&height=100)
-* Meme Author: [kethlynpander](https://www.reddit.com/user/kethlynpander/)
+![Funny Meme](https://i.redd.it/yelaam2hf73c1.jpg?width=100&height=100)
+* Meme Author: [Wild_Tom](https://www.reddit.com/user/Wild_Tom/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
