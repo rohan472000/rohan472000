@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lgbovsdxr53c1.png?width=100&height=100)
-* Meme Author: [MysticPaul97_YT](https://www.reddit.com/user/MysticPaul97_YT/)
+![Funny Meme](https://i.redd.it/1q0qf8df143c1.png?width=100&height=100)
+* Meme Author: [olosteez](https://www.reddit.com/user/olosteez/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
