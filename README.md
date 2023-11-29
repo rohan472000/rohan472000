@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rfpp4w2i4c3c1.jpeg?width=100&height=100)
-* Meme Author: [sarcasticpremed](https://www.reddit.com/user/sarcasticpremed/)
+![Funny Meme](https://i.redd.it/pyyhbobpna3c1.jpg?width=100&height=100)
+* Meme Author: [coolsteelboyS4ndyBoy](https://www.reddit.com/user/coolsteelboyS4ndyBoy/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
