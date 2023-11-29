@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/35vuob59ob3c1.jpg?width=100&height=100)
-* Meme Author: [Noxious_potato](https://www.reddit.com/user/Noxious_potato/)
+![Funny Meme](https://i.redd.it/1pvjp7quic3c1.jpg?width=100&height=100)
+* Meme Author: [TurquoiseBeetle67](https://www.reddit.com/user/TurquoiseBeetle67/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
