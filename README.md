@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g445tjhhkz2c1.png?width=100&height=100)
-* Meme Author: [bigbellypepperboy](https://www.reddit.com/user/bigbellypepperboy/)
+![Funny Meme](https://i.redd.it/zz6f7iwk683c1.png?width=100&height=100)
+* Meme Author: [wewantbloonchipper](https://www.reddit.com/user/wewantbloonchipper/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
