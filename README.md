@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t36zpgylt33c1.jpg?width=100&height=100)
-* Meme Author: [Aromatic-Union6080](https://www.reddit.com/user/Aromatic-Union6080/)
+![Funny Meme](https://i.redd.it/ck2oqvwv383c1.jpg?width=100&height=100)
+* Meme Author: [Such_Intern4085](https://www.reddit.com/user/Such_Intern4085/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
