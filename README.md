@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nnei1sfbnz2c1.png?width=100&height=100)
-* Meme Author: [GreenFeather19991](https://www.reddit.com/user/GreenFeather19991/)
+![Funny Meme](https://i.redd.it/qbg7eh9y163c1.jpg?width=100&height=100)
+* Meme Author: [True_Failiure](https://www.reddit.com/user/True_Failiure/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
