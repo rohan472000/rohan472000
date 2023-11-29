@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iuau8di4863c1.jpg?width=100&height=100)
-* Meme Author: [HybridHamster](https://www.reddit.com/user/HybridHamster/)
+![Funny Meme](https://i.redd.it/4lekhpkuj63c1.png?width=100&height=100)
+* Meme Author: [Probably_MR](https://www.reddit.com/user/Probably_MR/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
