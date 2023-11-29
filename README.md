@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/y7i2rfvv483c1.jpg?width=100&height=100)
-* Meme Author: [Numerous-Confusion74](https://www.reddit.com/user/Numerous-Confusion74/)
+![Funny Meme](https://i.redd.it/hktw8ndmj53c1.jpg?width=100&height=100)
+* Meme Author: [DipakPatell](https://www.reddit.com/user/DipakPatell/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
