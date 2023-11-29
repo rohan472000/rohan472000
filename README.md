@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5bndxtkmm93c1.jpeg?width=100&height=100)
-* Meme Author: [SuperAlloyBerserker](https://www.reddit.com/user/SuperAlloyBerserker/)
+![Funny Meme](https://i.redd.it/00sghyrht53c1.jpeg?width=100&height=100)
+* Meme Author: [mechmo](https://www.reddit.com/user/mechmo/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
