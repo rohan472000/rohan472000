@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/99kzoy1vk53c1.jpeg?width=100&height=100)
-* Meme Author: [Qui-434](https://www.reddit.com/user/Qui-434/)
+![Funny Meme](https://i.redd.it/f8cgnjzibz2c1.jpg?width=100&height=100)
+* Meme Author: [lastporkchopinfinity](https://www.reddit.com/user/lastporkchopinfinity/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
