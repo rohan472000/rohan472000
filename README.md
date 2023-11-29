@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e72xfktg5b3c1.jpg?width=100&height=100)
-* Meme Author: [Willing_Ad1416](https://www.reddit.com/user/Willing_Ad1416/)
+![Funny Meme](https://i.redd.it/1mftk81bw33c1.jpg?width=100&height=100)
+* Meme Author: [KoopaNetwork](https://www.reddit.com/user/KoopaNetwork/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
