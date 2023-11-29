@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mm1qhtijx53c1.jpg?width=100&height=100)
-* Meme Author: [HexagonicDistortion](https://www.reddit.com/user/HexagonicDistortion/)
+![Funny Meme](https://i.redd.it/7mrf1s5lx53c1.jpg?width=100&height=100)
+* Meme Author: [Wonderful_Audience60](https://www.reddit.com/user/Wonderful_Audience60/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
