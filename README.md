@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/gyqftvgkd23c1.jpeg?width=100&height=100)
-* Meme Author: [BigBootyBitches4Lyfe](https://www.reddit.com/user/BigBootyBitches4Lyfe/)
+![Funny Meme](https://i.redd.it/nopg8bl0r53c1.png?width=100&height=100)
+* Meme Author: [Super_M_Ray](https://www.reddit.com/user/Super_M_Ray/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
