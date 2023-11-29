@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xffqjhibp63c1.jpg?width=100&height=100)
-* Meme Author: [werewolfgaming8](https://www.reddit.com/user/werewolfgaming8/)
+![Funny Meme](https://i.redd.it/9v2kzmv2c83c1.jpeg?width=100&height=100)
+* Meme Author: [brawl_miko_32](https://www.reddit.com/user/brawl_miko_32/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
