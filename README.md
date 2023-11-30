@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d4faclf07b3c1.jpg?width=100&height=100)
-* Meme Author: [EvaInTheUSA](https://www.reddit.com/user/EvaInTheUSA/)
+![Funny Meme](https://i.redd.it/3q16oz3spa3c1.jpg?width=100&height=100)
+* Meme Author: [Former_Fuel_8529](https://www.reddit.com/user/Former_Fuel_8529/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
