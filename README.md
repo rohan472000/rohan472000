@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9jfi69bguf3c1.png?width=100&height=100)
-* Meme Author: [Senior_Bluebird_1137](https://www.reddit.com/user/Senior_Bluebird_1137/)
+![Funny Meme](https://i.redd.it/h6pg1jjfdf3c1.png?width=100&height=100)
+* Meme Author: [Horror-Strawberry574](https://www.reddit.com/user/Horror-Strawberry574/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
