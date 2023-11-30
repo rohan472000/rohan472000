@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cai43ln8ki3c1.jpg?width=100&height=100)
-* Meme Author: [Flaviphone](https://www.reddit.com/user/Flaviphone/)
+![Funny Meme](https://i.redd.it/5x41a0tuke3c1.jpg?width=100&height=100)
+* Meme Author: [Isuckatlifee](https://www.reddit.com/user/Isuckatlifee/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
