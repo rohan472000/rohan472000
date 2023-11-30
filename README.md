@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/znuv4rwybf3c1.jpeg?width=100&height=100)
-* Meme Author: [Photoshops_Penises](https://www.reddit.com/user/Photoshops_Penises/)
+![Funny Meme](https://i.redd.it/9adym7x85d3c1.jpeg?width=100&height=100)
+* Meme Author: [Qui-434](https://www.reddit.com/user/Qui-434/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
