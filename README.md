@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/600y46g1l63c1.jpeg?width=100&height=100)
-* Meme Author: [child-of-old-gods](https://www.reddit.com/user/child-of-old-gods/)
+![Funny Meme](https://i.redd.it/yjprhbmdy93c1.jpeg?width=100&height=100)
+* Meme Author: [Efficient-Ad-3302](https://www.reddit.com/user/Efficient-Ad-3302/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
