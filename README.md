@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oc4pzea21j3c1.jpeg?width=100&height=100)
-* Meme Author: [hypercool27x](https://www.reddit.com/user/hypercool27x/)
+![Funny Meme](https://i.redd.it/sxt7leasqj3c1.jpg?width=100&height=100)
+* Meme Author: [devil0o](https://www.reddit.com/user/devil0o/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
