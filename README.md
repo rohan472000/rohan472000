@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/896rl72uxb3c1.jpeg?width=100&height=100)
-* Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
+![Funny Meme](https://i.redd.it/ynwa4f3yjc3c1.jpg?width=100&height=100)
+* Meme Author: [Negative-Ad-360](https://www.reddit.com/user/Negative-Ad-360/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
