@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hlae4ogtbf3c1.png?width=100&height=100)
-* Meme Author: [Lovethecreeper](https://www.reddit.com/user/Lovethecreeper/)
+![Funny Meme](https://i.redd.it/m2t9x5hlfe3c1.png?width=100&height=100)
+* Meme Author: [xoxoyoyo](https://www.reddit.com/user/xoxoyoyo/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
