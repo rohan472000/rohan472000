@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hi1l14pq5i3c1.jpeg?width=100&height=100)
-* Meme Author: [BridgeExcellent8017](https://www.reddit.com/user/BridgeExcellent8017/)
+![Funny Meme](https://i.redd.it/1gsh0kvnaj3c1.jpg?width=100&height=100)
+* Meme Author: [dyldodarlin](https://www.reddit.com/user/dyldodarlin/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
