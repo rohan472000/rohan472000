@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xra03nwxrh3c1.jpg?width=100&height=100)
-* Meme Author: [Embarrassed-Mouse-49](https://www.reddit.com/user/Embarrassed-Mouse-49/)
+![Funny Meme](https://i.redd.it/fn71pbhtjb3c1.jpg?width=100&height=100)
+* Meme Author: [MONEV_GOD](https://www.reddit.com/user/MONEV_GOD/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
