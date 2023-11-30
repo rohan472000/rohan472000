@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7jjcn24jki3c1.png?width=100&height=100)
-* Meme Author: [new_northwesterner](https://www.reddit.com/user/new_northwesterner/)
+![Funny Meme](https://i.redd.it/fplc9eou7e3c1.jpeg?width=100&height=100)
+* Meme Author: [Swiggy1957](https://www.reddit.com/user/Swiggy1957/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
