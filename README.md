@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yy0vc2c5od3c1.jpg?width=100&height=100)
-* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
+![Funny Meme](https://i.redd.it/midt16i2jh3c1.jpeg?width=100&height=100)
+* Meme Author: [Adalf_Hotler69420](https://www.reddit.com/user/Adalf_Hotler69420/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
