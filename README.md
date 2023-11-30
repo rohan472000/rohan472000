@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7uddbwhw1e3c1.png?width=100&height=100)
-* Meme Author: [FifaConCarne](https://www.reddit.com/user/FifaConCarne/)
+![Funny Meme](https://i.redd.it/yoasw7o8qa3c1.jpg?width=100&height=100)
+* Meme Author: [MakEnt75](https://www.reddit.com/user/MakEnt75/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
