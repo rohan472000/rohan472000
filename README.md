@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mf2gvdufi83c1.jpeg?width=100&height=100)
-* Meme Author: [Rule34Uploading](https://www.reddit.com/user/Rule34Uploading/)
+![Funny Meme](https://i.redd.it/83bj93smed3c1.jpeg?width=100&height=100)
+* Meme Author: [E4g6d4bg7](https://www.reddit.com/user/E4g6d4bg7/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
