@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/epn79uol3i3c1.jpg?width=100&height=100)
-* Meme Author: [InsideCharity4824](https://www.reddit.com/user/InsideCharity4824/)
+![Funny Meme](https://i.redd.it/sg4gqrbul83c1.jpg?width=100&height=100)
+* Meme Author: [Pathetic_loner03](https://www.reddit.com/user/Pathetic_loner03/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
