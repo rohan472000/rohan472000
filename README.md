@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rdsqpr4hpc3c1.jpg?width=100&height=100)
-* Meme Author: [Resident_Problem4008](https://www.reddit.com/user/Resident_Problem4008/)
+![Funny Meme](https://i.redd.it/whq0akry4e3c1.jpg?width=100&height=100)
+* Meme Author: [Sk-yline1](https://www.reddit.com/user/Sk-yline1/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
