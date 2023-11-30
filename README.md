@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/shpq2kmaif3c1.jpg?width=100&height=100)
-* Meme Author: [Renegade-Rooster](https://www.reddit.com/user/Renegade-Rooster/)
+![Funny Meme](https://i.redd.it/gmiaij2lyc3c1.png?width=100&height=100)
+* Meme Author: [thelastgodkami](https://www.reddit.com/user/thelastgodkami/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
