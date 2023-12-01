@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qeay6t6gzm3c1.jpg?width=100&height=100)
-* Meme Author: [Kind_Signature2747](https://www.reddit.com/user/Kind_Signature2747/)
+![Funny Meme](https://i.redd.it/eihsg4h72c3c1.jpg?width=100&height=100)
+* Meme Author: [wafflezcol](https://www.reddit.com/user/wafflezcol/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
