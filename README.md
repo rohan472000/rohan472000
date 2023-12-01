@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bc3jxyu5nk3c1.jpeg?width=100&height=100)
-* Meme Author: [ToysNoiz](https://www.reddit.com/user/ToysNoiz/)
+![Funny Meme](https://i.redd.it/4khr1ipf0f3c1.jpeg?width=100&height=100)
+* Meme Author: [SkelliFun](https://www.reddit.com/user/SkelliFun/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
