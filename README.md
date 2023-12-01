@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/5k9qlsca4j3c1.jpg?width=100&height=100)
-* Meme Author: [kushcola](https://www.reddit.com/user/kushcola/)
+![Funny Meme](https://i.redd.it/mkrm2t9yik3c1.jpg?width=100&height=100)
+* Meme Author: [chaosgiantmemes](https://www.reddit.com/user/chaosgiantmemes/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
