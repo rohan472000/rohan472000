@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1g8ire3ulk3c1.jpeg?width=100&height=100)
-* Meme Author: [Sea_Opportunity_9850](https://www.reddit.com/user/Sea_Opportunity_9850/)
+![Funny Meme](https://i.redd.it/7ohfqy84kl3c1.jpg?width=100&height=100)
+* Meme Author: [TeachMeImWilling69](https://www.reddit.com/user/TeachMeImWilling69/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
