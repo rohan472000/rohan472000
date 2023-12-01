@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u5l6g1a0th3c1.png?width=100&height=100)
-* Meme Author: [Fearlessmojo](https://www.reddit.com/user/Fearlessmojo/)
+![Funny Meme](https://i.redd.it/s4tkx595dk3c1.jpg?width=100&height=100)
+* Meme Author: [Batmanfan27](https://www.reddit.com/user/Batmanfan27/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
