@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vr2mzby2am3c1.jpg?width=100&height=100)
-* Meme Author: [Alpacaman25](https://www.reddit.com/user/Alpacaman25/)
+![Funny Meme](https://i.redd.it/cld5r78u0l3c1.jpg?width=100&height=100)
+* Meme Author: [chowderbrain3000](https://www.reddit.com/user/chowderbrain3000/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
