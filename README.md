@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6sj3gmg9vk3c1.jpeg?width=100&height=100)
-* Meme Author: [Ok-Break-1777](https://www.reddit.com/user/Ok-Break-1777/)
+![Funny Meme](https://i.redd.it/mk0bed6v3k3c1.jpeg?width=100&height=100)
+* Meme Author: [swimchickmle](https://www.reddit.com/user/swimchickmle/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
