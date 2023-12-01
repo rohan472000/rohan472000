@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s4tkx595dk3c1.jpg?width=100&height=100)
-* Meme Author: [Batmanfan27](https://www.reddit.com/user/Batmanfan27/)
+![Funny Meme](https://i.redd.it/r6hzikw9ri3c1.png?width=100&height=100)
+* Meme Author: [GameofCHAT](https://www.reddit.com/user/GameofCHAT/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
