@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ie8sxvcjgk3c1.jpg?width=100&height=100)
-* Meme Author: [meruzezo](https://www.reddit.com/user/meruzezo/)
+![Funny Meme](https://i.redd.it/usj2r0qyej3c1.jpg?width=100&height=100)
+* Meme Author: [Stock-Whereas9641](https://www.reddit.com/user/Stock-Whereas9641/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
