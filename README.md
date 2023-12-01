@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/egau3y2hpq3c1.jpg?width=100&height=100)
-* Meme Author: [Corleone648](https://www.reddit.com/user/Corleone648/)
+![Funny Meme](https://i.redd.it/t2lim7wt3q3c1.jpg?width=100&height=100)
+* Meme Author: [ProletariatSwine](https://www.reddit.com/user/ProletariatSwine/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
