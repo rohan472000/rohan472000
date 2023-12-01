@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u8tx8qti2q3c1.jpeg?width=100&height=100)
-* Meme Author: [Content_Dragonfly_53](https://www.reddit.com/user/Content_Dragonfly_53/)
+![Funny Meme](https://i.redd.it/2zayisvr4p3c1.png?width=100&height=100)
+* Meme Author: [pansexual_Pratt](https://www.reddit.com/user/pansexual_Pratt/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
