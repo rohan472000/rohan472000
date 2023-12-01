@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bhzvn42vgl3c1.jpeg?width=100&height=100)
-* Meme Author: [monsieurLeMeowMeow](https://www.reddit.com/user/monsieurLeMeowMeow/)
+![Funny Meme](https://i.redd.it/31ei1l3a9k3c1.jpeg?width=100&height=100)
+* Meme Author: [spilledmind](https://www.reddit.com/user/spilledmind/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
