@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jik2mo4mnp3c1.jpg?width=100&height=100)
-* Meme Author: [EthanGaming7640](https://www.reddit.com/user/EthanGaming7640/)
+![Funny Meme](https://i.redd.it/a75wmg75xn3c1.jpg?width=100&height=100)
+* Meme Author: [Opposite-Chard3967](https://www.reddit.com/user/Opposite-Chard3967/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
