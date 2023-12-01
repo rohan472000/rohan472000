@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rxbqp491oj3c1.jpeg?width=100&height=100)
-* Meme Author: [i_dont_eatbabies](https://www.reddit.com/user/i_dont_eatbabies/)
+![Funny Meme](https://i.redd.it/t9vkt2oiwl3c1.png?width=100&height=100)
+* Meme Author: [vxarctic](https://www.reddit.com/user/vxarctic/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
