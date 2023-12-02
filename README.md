@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8g5z9sishq3c1.jpg?width=100&height=100)
-* Meme Author: [astro_philia](https://www.reddit.com/user/astro_philia/)
+![Funny Meme](https://i.redd.it/j2a3t5xers3c1.jpg?width=100&height=100)
+* Meme Author: [Mfr1988](https://www.reddit.com/user/Mfr1988/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
