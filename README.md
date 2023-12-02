@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t3ve91l9oy3c1.jpeg?width=100&height=100)
-* Meme Author: [BountyKraken](https://www.reddit.com/user/BountyKraken/)
+![Funny Meme](https://i.redd.it/2pa79n6hhy3c1.jpg?width=100&height=100)
+* Meme Author: [Fickle-Butterfly-338](https://www.reddit.com/user/Fickle-Butterfly-338/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
