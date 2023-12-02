@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xtmfjmsz6t3c1.jpg?width=100&height=100)
-* Meme Author: [Narco_Marcion1075](https://www.reddit.com/user/Narco_Marcion1075/)
+![Funny Meme](https://i.redd.it/o1ur0g28co3c1.jpg?width=100&height=100)
+* Meme Author: [SlimeGamingYT69](https://www.reddit.com/user/SlimeGamingYT69/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
