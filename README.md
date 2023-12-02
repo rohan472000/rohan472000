@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2pa79n6hhy3c1.jpg?width=100&height=100)
-* Meme Author: [Fickle-Butterfly-338](https://www.reddit.com/user/Fickle-Butterfly-338/)
+![Funny Meme](https://i.redd.it/7s5wmjo06w3c1.jpg?width=100&height=100)
+* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
