@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jch19uahjv3c1.jpg?width=100&height=100)
-* Meme Author: [DaveTheRocketGuy](https://www.reddit.com/user/DaveTheRocketGuy/)
+![Funny Meme](https://i.redd.it/mqxpfftjis3c1.png?width=100&height=100)
+* Meme Author: [cookie-theif](https://www.reddit.com/user/cookie-theif/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
