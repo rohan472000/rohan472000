@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9r55fef6fr3c1.jpg?width=100&height=100)
-* Meme Author: [UnderstandingOk3784](https://www.reddit.com/user/UnderstandingOk3784/)
+![Funny Meme](https://i.redd.it/oswg5u5p7x3c1.jpg?width=100&height=100)
+* Meme Author: [No-Replacement-7475](https://www.reddit.com/user/No-Replacement-7475/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
