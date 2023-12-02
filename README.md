@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mb4x5mom3r3c1.png?width=100&height=100)
-* Meme Author: [tycooperaow](https://www.reddit.com/user/tycooperaow/)
+![Funny Meme](https://i.redd.it/rxi9766ygt3c1.jpeg?width=100&height=100)
+* Meme Author: [RyanCooper510](https://www.reddit.com/user/RyanCooper510/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
