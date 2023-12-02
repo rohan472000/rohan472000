@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/2o7segkm6o3c1.jpeg?width=100&height=100)
-* Meme Author: [mistermuesli](https://www.reddit.com/user/mistermuesli/)
+![Funny Meme](https://i.redd.it/jbvqsdb8kp3c1.png?width=100&height=100)
+* Meme Author: [button-noot](https://www.reddit.com/user/button-noot/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
