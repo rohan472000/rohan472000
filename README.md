@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kr6hnhzrlw3c1.png?width=100&height=100)
-* Meme Author: [literallyeveryfandom](https://www.reddit.com/user/literallyeveryfandom/)
+![Funny Meme](https://i.redd.it/mb4x5mom3r3c1.png?width=100&height=100)
+* Meme Author: [tycooperaow](https://www.reddit.com/user/tycooperaow/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
