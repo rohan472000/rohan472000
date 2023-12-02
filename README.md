@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/luu1zbgozt3c1.jpeg?width=100&height=100)
-* Meme Author: [TurbulentWonder403](https://www.reddit.com/user/TurbulentWonder403/)
+![Funny Meme](https://i.redd.it/ntyv09puqo3c1.jpg?width=100&height=100)
+* Meme Author: [Watermelonseeds8U](https://www.reddit.com/user/Watermelonseeds8U/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
