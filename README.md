@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/wsdw03vudr3c1.jpg?width=100&height=100)
-* Meme Author: [SandwichAgainstGod](https://www.reddit.com/user/SandwichAgainstGod/)
+![Funny Meme](https://i.redd.it/9gdipkoj9r3c1.jpg?width=100&height=100)
+* Meme Author: [RigatoniPasta](https://www.reddit.com/user/RigatoniPasta/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
