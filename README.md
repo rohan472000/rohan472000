@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qw3d8endmq3c1.png?width=100&height=100)
-* Meme Author: [BluesTime](https://www.reddit.com/user/BluesTime/)
+![Funny Meme](https://i.redd.it/vfnphj7xkq3c1.png?width=100&height=100)
+* Meme Author: [erockbrox](https://www.reddit.com/user/erockbrox/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
