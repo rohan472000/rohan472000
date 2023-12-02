@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/glel22y5hp3c1.jpg?width=100&height=100)
-* Meme Author: [a-horse-has-no-name](https://www.reddit.com/user/a-horse-has-no-name/)
+![Funny Meme](https://i.redd.it/xtmfjmsz6t3c1.jpg?width=100&height=100)
+* Meme Author: [Narco_Marcion1075](https://www.reddit.com/user/Narco_Marcion1075/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
