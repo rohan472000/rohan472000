@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7yx4tv5t5s3c1.jpg?width=100&height=100)
-* Meme Author: [send_me_a_quarter](https://www.reddit.com/user/send_me_a_quarter/)
+![Funny Meme](https://i.redd.it/c1wz7f44rn3c1.jpg?width=100&height=100)
+* Meme Author: [Someone_1414](https://www.reddit.com/user/Someone_1414/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
