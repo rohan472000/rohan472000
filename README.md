@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nzblzkerth3c1.png?width=100&height=100)
-* Meme Author: [Hornet_Lord](https://www.reddit.com/user/Hornet_Lord/)
+![Funny Meme](https://i.redd.it/s9ervp0k8n3c1.jpg?width=100&height=100)
+* Meme Author: [thethreateninggeek](https://www.reddit.com/user/thethreateninggeek/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
