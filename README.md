@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4vyzbxjqcx3c1.jpg?width=100&height=100)
-* Meme Author: [radioactive53](https://www.reddit.com/user/radioactive53/)
+![Funny Meme](https://i.redd.it/ytwsq3vfcs3c1.jpg?width=100&height=100)
+* Meme Author: [TXRattlesnake89](https://www.reddit.com/user/TXRattlesnake89/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
