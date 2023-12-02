@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9gdipkoj9r3c1.jpg?width=100&height=100)
-* Meme Author: [RigatoniPasta](https://www.reddit.com/user/RigatoniPasta/)
+![Funny Meme](https://i.redd.it/ex10ywqm0m3c1.png?width=100&height=100)
+* Meme Author: [No-Chemistry-4673](https://www.reddit.com/user/No-Chemistry-4673/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
