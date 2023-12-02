@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0it75z14zs3c1.jpg?width=100&height=100)
-* Meme Author: [Dmoneystopmotion](https://www.reddit.com/user/Dmoneystopmotion/)
+![Funny Meme](https://i.redd.it/8cn9l9kejs3c1.png?width=100&height=100)
+* Meme Author: [Knight9910](https://www.reddit.com/user/Knight9910/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
