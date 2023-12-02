@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4wvtd7i4gs3c1.jpg?width=100&height=100)
-* Meme Author: [doctorshitbyrd](https://www.reddit.com/user/doctorshitbyrd/)
+![Funny Meme](https://i.redd.it/rrlwia7y5p3c1.jpg?width=100&height=100)
+* Meme Author: [3rdWaveHarmonic](https://www.reddit.com/user/3rdWaveHarmonic/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
