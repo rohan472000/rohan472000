@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1pvz620b2h3c1.jpeg?width=100&height=100)
-* Meme Author: [ConanCimmerian](https://www.reddit.com/user/ConanCimmerian/)
+![Funny Meme](https://i.redd.it/c5tu0qm1yl3c1.jpeg?width=100&height=100)
+* Meme Author: [miffy1231](https://www.reddit.com/user/miffy1231/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
