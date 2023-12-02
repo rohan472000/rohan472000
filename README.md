@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eejze73tuq3c1.png?width=100&height=100)
-* Meme Author: [RogueRobot08](https://www.reddit.com/user/RogueRobot08/)
+![Funny Meme](https://i.redd.it/yoadcexhqx3c1.png?width=100&height=100)
+* Meme Author: [Schleim_Plays](https://www.reddit.com/user/Schleim_Plays/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
