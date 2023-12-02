@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/trc86fhwop3c1.jpg?width=100&height=100)
-* Meme Author: [gartro08](https://www.reddit.com/user/gartro08/)
+![Funny Meme](https://i.redd.it/v7obwq79wo3c1.jpg?width=100&height=100)
+* Meme Author: [Take2x2](https://www.reddit.com/user/Take2x2/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
