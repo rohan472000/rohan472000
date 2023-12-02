@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0nf0fbb0wm3c1.jpg?width=100&height=100)
-* Meme Author: [bendaman116](https://www.reddit.com/user/bendaman116/)
+![Funny Meme](https://i.redd.it/45g7kn0cqr3c1.jpg?width=100&height=100)
+* Meme Author: [Separate-Birthday800](https://www.reddit.com/user/Separate-Birthday800/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
