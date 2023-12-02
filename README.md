@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pmynf0ncgw3c1.png?width=100&height=100)
-* Meme Author: [RubberWalt](https://www.reddit.com/user/RubberWalt/)
+![Funny Meme](https://i.redd.it/5wbjcksngt3c1.jpeg?width=100&height=100)
+* Meme Author: [Kindly_Drink_4046](https://www.reddit.com/user/Kindly_Drink_4046/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
