@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/odcihv8kxw3c1.jpg?width=100&height=100)
-* Meme Author: [artemismilkman](https://www.reddit.com/user/artemismilkman/)
+![Funny Meme](https://i.redd.it/en807abccy3c1.jpeg?width=100&height=100)
+* Meme Author: [JazzPhobic](https://www.reddit.com/user/JazzPhobic/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
