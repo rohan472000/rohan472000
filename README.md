@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/98ajy15v524c1.jpg?width=100&height=100)
-* Meme Author: [Loopy_Legend](https://www.reddit.com/user/Loopy_Legend/)
+![Funny Meme](https://i.redd.it/lz8o1dtqk34c1.jpg?width=100&height=100)
+* Meme Author: [candiedloveapple](https://www.reddit.com/user/candiedloveapple/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
