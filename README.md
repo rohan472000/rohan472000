@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i7sc3g22ny3c1.png?width=100&height=100)
-* Meme Author: [Crafter235](https://www.reddit.com/user/Crafter235/)
+![Funny Meme](https://i.redd.it/nhtq35hi004c1.jpg?width=100&height=100)
+* Meme Author: [Jade_The_Queer](https://www.reddit.com/user/Jade_The_Queer/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
