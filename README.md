@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/00n7lfc81v3c1.jpeg?width=100&height=100)
-* Meme Author: [nightcat6](https://www.reddit.com/user/nightcat6/)
+![Funny Meme](https://i.redd.it/da6imog6404c1.jpg?width=100&height=100)
+* Meme Author: [myburningblade](https://www.reddit.com/user/myburningblade/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
