@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9vh5e6vvm24c1.jpeg?width=100&height=100)
-* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
+![Funny Meme](https://i.redd.it/01k3eaf9eu3c1.jpeg?width=100&height=100)
+* Meme Author: [CptRennett](https://www.reddit.com/user/CptRennett/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
