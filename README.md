@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9jgfgqb0by3c1.png?width=100&height=100)
-* Meme Author: [Flashlight237](https://www.reddit.com/user/Flashlight237/)
+![Funny Meme](https://i.redd.it/ofxf9qsh2w3c1.jpg?width=100&height=100)
+* Meme Author: [gingerwhinger8812](https://www.reddit.com/user/gingerwhinger8812/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
