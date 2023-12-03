@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4078pers834c1.jpeg?width=100&height=100)
-* Meme Author: [Loose_Leg_8440](https://www.reddit.com/user/Loose_Leg_8440/)
+![Funny Meme](https://i.redd.it/k4iq71nho44c1.jpeg?width=100&height=100)
+* Meme Author: [chrispa200](https://www.reddit.com/user/chrispa200/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
