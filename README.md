@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/r1ac5lkqty3c1.jpg?width=100&height=100)
-* Meme Author: [Maniraptavia](https://www.reddit.com/user/Maniraptavia/)
+![Funny Meme](https://i.redd.it/1pc3wjcj504c1.jpeg?width=100&height=100)
+* Meme Author: [ultragigachad_69_](https://www.reddit.com/user/ultragigachad_69_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
