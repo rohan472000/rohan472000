@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/o4vzutpdtw3c1.jpg?width=100&height=100)
-* Meme Author: [Latex_beast](https://www.reddit.com/user/Latex_beast/)
+![Funny Meme](https://i.redd.it/8c6zg7ijkx3c1.jpg?width=100&height=100)
+* Meme Author: [SFRG](https://www.reddit.com/user/SFRG/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
