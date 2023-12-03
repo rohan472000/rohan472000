@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/if2sehrisx3c1.jpg?width=100&height=100)
-* Meme Author: [LawfulnessLeather480](https://www.reddit.com/user/LawfulnessLeather480/)
+![Funny Meme](https://i.redd.it/o4vzutpdtw3c1.jpg?width=100&height=100)
+* Meme Author: [Latex_beast](https://www.reddit.com/user/Latex_beast/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
