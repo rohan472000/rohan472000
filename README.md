@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pxduthdwvz3c1.jpg?width=100&height=100)
-* Meme Author: [Darky_Shadows](https://www.reddit.com/user/Darky_Shadows/)
+![Funny Meme](https://i.redd.it/u8n015wa444c1.jpeg?width=100&height=100)
+* Meme Author: [winkysocks21](https://www.reddit.com/user/winkysocks21/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
