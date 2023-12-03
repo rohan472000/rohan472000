@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nx0fvvhdjw3c1.png?width=100&height=100)
-* Meme Author: [SimpleButFun](https://www.reddit.com/user/SimpleButFun/)
+![Funny Meme](https://i.redd.it/r1ac5lkqty3c1.jpg?width=100&height=100)
+* Meme Author: [Maniraptavia](https://www.reddit.com/user/Maniraptavia/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
