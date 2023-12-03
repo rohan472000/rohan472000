@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cwtpu4cmxy3c1.png?width=100&height=100)
-* Meme Author: [MarwinBIue](https://www.reddit.com/user/MarwinBIue/)
+![Funny Meme](https://i.redd.it/pxduthdwvz3c1.jpg?width=100&height=100)
+* Meme Author: [Darky_Shadows](https://www.reddit.com/user/Darky_Shadows/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
