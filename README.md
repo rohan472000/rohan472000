@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jig09qkldy3c1.jpg?width=100&height=100)
-* Meme Author: [bewarethechameleon](https://www.reddit.com/user/bewarethechameleon/)
+![Funny Meme](https://i.redd.it/4jx99cmfd44c1.png?width=100&height=100)
+* Meme Author: [ImTheBoyReal](https://www.reddit.com/user/ImTheBoyReal/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
