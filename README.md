@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/klsiyg6kfx3c1.png?width=100&height=100)
-* Meme Author: [Kondrad_Curze](https://www.reddit.com/user/Kondrad_Curze/)
+![Funny Meme](https://i.redd.it/psoph7tocv3c1.jpg?width=100&height=100)
+* Meme Author: [mahumd90](https://www.reddit.com/user/mahumd90/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
