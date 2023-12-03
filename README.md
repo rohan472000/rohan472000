@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4y514jk95y3c1.jpg?width=100&height=100)
-* Meme Author: [PM_ME_URFOOD](https://www.reddit.com/user/PM_ME_URFOOD/)
+![Funny Meme](https://i.redd.it/jn0ncb9xsy3c1.jpg?width=100&height=100)
+* Meme Author: [fiach-o-mchugh](https://www.reddit.com/user/fiach-o-mchugh/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
