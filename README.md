@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lz8o1dtqk34c1.jpg?width=100&height=100)
-* Meme Author: [candiedloveapple](https://www.reddit.com/user/candiedloveapple/)
+![Funny Meme](https://i.redd.it/enb2hfvkm24c1.jpg?width=100&height=100)
+* Meme Author: [TheBeeMovieHistorian](https://www.reddit.com/user/TheBeeMovieHistorian/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
