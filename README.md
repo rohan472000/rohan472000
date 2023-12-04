@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zx1kbl9lw94c1.jpg?width=100&height=100)
-* Meme Author: [Still-Bison-1108](https://www.reddit.com/user/Still-Bison-1108/)
+![Funny Meme](https://i.redd.it/0b21nylbba4c1.jpg?width=100&height=100)
+* Meme Author: [We_r_Ven0m](https://www.reddit.com/user/We_r_Ven0m/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
