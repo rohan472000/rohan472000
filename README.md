@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/enb2hfvkm24c1.jpg?width=100&height=100)
-* Meme Author: [TheBeeMovieHistorian](https://www.reddit.com/user/TheBeeMovieHistorian/)
+![Funny Meme](https://i.redd.it/71hn5pz3k44c1.jpg?width=100&height=100)
+* Meme Author: [BartKing](https://www.reddit.com/user/BartKing/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
