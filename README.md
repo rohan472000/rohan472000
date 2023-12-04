@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/876kgaq2h84c1.jpg?width=100&height=100)
-* Meme Author: [Jackcandoit2008](https://www.reddit.com/user/Jackcandoit2008/)
+![Funny Meme](https://i.redd.it/fhb5oyb1974c1.jpg?width=100&height=100)
+* Meme Author: [Meerkat_Mayhem_](https://www.reddit.com/user/Meerkat_Mayhem_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
