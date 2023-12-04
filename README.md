@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rgvkh0pzx64c1.png?width=100&height=100)
-* Meme Author: [TheMavsterSixtyNine](https://www.reddit.com/user/TheMavsterSixtyNine/)
+![Funny Meme](https://i.redd.it/jcb657ep2b4c1.jpg?width=100&height=100)
+* Meme Author: [BrokenHomePoets](https://www.reddit.com/user/BrokenHomePoets/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
