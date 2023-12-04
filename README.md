@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/p6ak1de1u34c1.jpeg?width=100&height=100)
-* Meme Author: [BrosephMcClean](https://www.reddit.com/user/BrosephMcClean/)
+![Funny Meme](https://i.redd.it/gs7ii26zp74c1.jpg?width=100&height=100)
+* Meme Author: [666thSuprisedPikachu](https://www.reddit.com/user/666thSuprisedPikachu/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
