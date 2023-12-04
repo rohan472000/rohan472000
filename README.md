@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j54kz7mnwc4c1.jpg?width=100&height=100)
-* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
+![Funny Meme](https://i.redd.it/q0fkw1aqfb4c1.jpg?width=100&height=100)
+* Meme Author: [Sensual_Sirena](https://www.reddit.com/user/Sensual_Sirena/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
