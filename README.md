@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/71hn5pz3k44c1.jpg?width=100&height=100)
-* Meme Author: [BartKing](https://www.reddit.com/user/BartKing/)
+![Funny Meme](https://i.redd.it/g5qzqwhgx84c1.jpg?width=100&height=100)
+* Meme Author: [Dominika_wilde](https://www.reddit.com/user/Dominika_wilde/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
