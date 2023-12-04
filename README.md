@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/09dsdkjxn64c1.jpg?width=100&height=100)
-* Meme Author: [Large-Wheel-4181](https://www.reddit.com/user/Large-Wheel-4181/)
+![Funny Meme](https://i.redd.it/7tglday4t64c1.png?width=100&height=100)
+* Meme Author: [disappointed_shrew_](https://www.reddit.com/user/disappointed_shrew_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
