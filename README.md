@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/53c3ndz4v34c1.jpg?width=100&height=100)
-* Meme Author: [Coolguyepic42069](https://www.reddit.com/user/Coolguyepic42069/)
+![Funny Meme](https://i.redd.it/77di3vr1374c1.jpg?width=100&height=100)
+* Meme Author: [xCaptainCl3mentinex](https://www.reddit.com/user/xCaptainCl3mentinex/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
