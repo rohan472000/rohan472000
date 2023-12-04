@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/oc65np98g34c1.jpeg?width=100&height=100)
-* Meme Author: [HugeT55](https://www.reddit.com/user/HugeT55/)
+![Funny Meme](https://i.imgur.com/rbOf8fT.png?width=100&height=100)
+* Meme Author: [find_the_kitty](https://www.reddit.com/user/find_the_kitty/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
