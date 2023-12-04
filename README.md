@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/180ve95u164c1.jpeg?width=100&height=100)
-* Meme Author: [Valhallawalker](https://www.reddit.com/user/Valhallawalker/)
+![Funny Meme](https://i.redd.it/4olrdannq74c1.png?width=100&height=100)
+* Meme Author: [VeryWeirdWyvern](https://www.reddit.com/user/VeryWeirdWyvern/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
