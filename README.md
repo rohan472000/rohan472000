@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sp0kkqe55a4c1.png?width=100&height=100)
-* Meme Author: [mojo72400](https://www.reddit.com/user/mojo72400/)
+![Funny Meme](https://i.redd.it/bn9vcscd154c1.jpg?width=100&height=100)
+* Meme Author: [Jack-mclaughlin89](https://www.reddit.com/user/Jack-mclaughlin89/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
