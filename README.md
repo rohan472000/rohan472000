@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/boedb3y9rb4c1.jpg?width=100&height=100)
-* Meme Author: [Bog2ElectricBoogaloo](https://www.reddit.com/user/Bog2ElectricBoogaloo/)
+![Funny Meme](https://i.redd.it/wimekc7dqc4c1.png?width=100&height=100)
+* Meme Author: [BBWcrusher69](https://www.reddit.com/user/BBWcrusher69/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
