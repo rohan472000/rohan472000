@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l5bqemzu6b4c1.png?width=100&height=100)
-* Meme Author: [bratreddit](https://www.reddit.com/user/bratreddit/)
+![Funny Meme](https://i.redd.it/5ah6ryt10c4c1.png?width=100&height=100)
+* Meme Author: [Realistic_Crew1095](https://www.reddit.com/user/Realistic_Crew1095/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
