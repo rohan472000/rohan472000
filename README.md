@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/me2ne13v174c1.jpg?width=100&height=100)
-* Meme Author: [ar_torres](https://www.reddit.com/user/ar_torres/)
+![Funny Meme](https://i.redd.it/4olktxhxta4c1.jpg?width=100&height=100)
+* Meme Author: [Far_Match_3774](https://www.reddit.com/user/Far_Match_3774/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
