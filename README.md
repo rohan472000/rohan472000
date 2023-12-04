@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yt6cngpew74c1.png?width=100&height=100)
-* Meme Author: [AlphaKeks48](https://www.reddit.com/user/AlphaKeks48/)
+![Funny Meme](https://i.redd.it/kbzzaco6j64c1.jpg?width=100&height=100)
+* Meme Author: [Brandon200815](https://www.reddit.com/user/Brandon200815/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
