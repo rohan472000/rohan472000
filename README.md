@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yx91mtfni34c1.jpg?width=100&height=100)
-* Meme Author: [constantlytired1917](https://www.reddit.com/user/constantlytired1917/)
+![Funny Meme](https://i.redd.it/9lddnn2m874c1.jpg?width=100&height=100)
+* Meme Author: [Genericgumibear](https://www.reddit.com/user/Genericgumibear/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
