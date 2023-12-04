@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7tglday4t64c1.png?width=100&height=100)
-* Meme Author: [disappointed_shrew_](https://www.reddit.com/user/disappointed_shrew_/)
+![Funny Meme](https://i.redd.it/fooxmltke04c1.jpg?width=100&height=100)
+* Meme Author: [Vortex9966](https://www.reddit.com/user/Vortex9966/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
