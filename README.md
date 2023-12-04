@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dypswtj2g44c1.jpg?width=100&height=100)
-* Meme Author: [i-m-meg05](https://www.reddit.com/user/i-m-meg05/)
+![Funny Meme](https://i.redd.it/1p2mj4g6l44c1.jpg?width=100&height=100)
+* Meme Author: [southcounty253](https://www.reddit.com/user/southcounty253/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
