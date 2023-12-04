@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mbxlvv1ph34c1.jpeg?width=100&height=100)
-* Meme Author: [Ok_Business84](https://www.reddit.com/user/Ok_Business84/)
+![Funny Meme](https://i.redd.it/a1nz197f394c1.jpg?width=100&height=100)
+* Meme Author: [hol_horse69](https://www.reddit.com/user/hol_horse69/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
