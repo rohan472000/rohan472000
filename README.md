@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bgw5lvlcu54c1.png?width=100&height=100)
-* Meme Author: [Invest_Expert](https://www.reddit.com/user/Invest_Expert/)
+![Funny Meme](https://i.redd.it/53c3ndz4v34c1.jpg?width=100&height=100)
+* Meme Author: [Coolguyepic42069](https://www.reddit.com/user/Coolguyepic42069/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
