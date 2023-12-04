@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qg1lsrqqr44c1.jpeg?width=100&height=100)
-* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
+![Funny Meme](https://i.redd.it/g8zc3j8cb64c1.jpeg?width=100&height=100)
+* Meme Author: [Tentacle_wand](https://www.reddit.com/user/Tentacle_wand/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
