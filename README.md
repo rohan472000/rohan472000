@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1efic22p724c1.jpeg?width=100&height=100)
-* Meme Author: [MartelleJordan](https://www.reddit.com/user/MartelleJordan/)
+![Funny Meme](https://i.redd.it/cbyqj7vib54c1.jpg?width=100&height=100)
+* Meme Author: [original_don_dada](https://www.reddit.com/user/original_don_dada/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
