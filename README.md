@@ -1,4 +1,4 @@
-![Funny Meme](https://i.redd.it/7vkw22hsrc4c1.jpg?width=100&height=100)
+![Funny Meme](https://i.redd.it/g74jksx2gg4c1.jpg?width=100&height=100)
 * Meme Author: [Large-Wheel-4181](https://www.reddit.com/user/Large-Wheel-4181/)
 
 
