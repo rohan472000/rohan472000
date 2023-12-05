@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/tik0ca2k1i4c1.png?width=100&height=100)
-* Meme Author: [bringmeturtles](https://www.reddit.com/user/bringmeturtles/)
+![Funny Meme](https://i.redd.it/5uqc36dffd4c1.jpeg?width=100&height=100)
+* Meme Author: [AdBulky6016](https://www.reddit.com/user/AdBulky6016/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
