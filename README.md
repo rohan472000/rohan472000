@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jcb657ep2b4c1.jpg?width=100&height=100)
-* Meme Author: [BrokenHomePoets](https://www.reddit.com/user/BrokenHomePoets/)
+![Funny Meme](https://i.redd.it/fn84m4osrg4c1.jpg?width=100&height=100)
+* Meme Author: [BulmasBabyDaddy](https://www.reddit.com/user/BulmasBabyDaddy/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
