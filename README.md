@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/mjbp12tnvf4c1.jpeg?width=100&height=100)
-* Meme Author: [devishjack](https://www.reddit.com/user/devishjack/)
+![Funny Meme](https://i.redd.it/u1dp4662yh4c1.jpg?width=100&height=100)
+* Meme Author: [ohhh-a-number-9](https://www.reddit.com/user/ohhh-a-number-9/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
