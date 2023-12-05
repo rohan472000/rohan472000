@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ibm1ao2xec4c1.jpeg?width=100&height=100)
-* Meme Author: [QuirkyData3500](https://www.reddit.com/user/QuirkyData3500/)
+![Funny Meme](https://i.redd.it/ld4dr4fb1j4c1.jpeg?width=100&height=100)
+* Meme Author: [Bud_Fuggins](https://www.reddit.com/user/Bud_Fuggins/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
