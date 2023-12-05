@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7iayuh26fj4c1.jpeg?width=100&height=100)
-* Meme Author: [GamerB72](https://www.reddit.com/user/GamerB72/)
+![Funny Meme](https://i.redd.it/pwa46qnk0i4c1.jpg?width=100&height=100)
+* Meme Author: [ShoewaterSmell](https://www.reddit.com/user/ShoewaterSmell/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
