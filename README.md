@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l24ht8tb694c1.png?width=100&height=100)
-* Meme Author: [olcor8787](https://www.reddit.com/user/olcor8787/)
+![Funny Meme](https://i.redd.it/howpw44lwd4c1.png?width=100&height=100)
+* Meme Author: [ChampionOfAzurewrath](https://www.reddit.com/user/ChampionOfAzurewrath/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
