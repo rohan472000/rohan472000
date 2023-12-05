@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ducspid5bf4c1.jpg?width=100&height=100)
-* Meme Author: [ROCKMachine8055](https://www.reddit.com/user/ROCKMachine8055/)
+![Funny Meme](https://i.redd.it/etmqio99m84c1.jpg?width=100&height=100)
+* Meme Author: [Mark6712](https://www.reddit.com/user/Mark6712/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
