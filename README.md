@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ld4dr4fb1j4c1.jpeg?width=100&height=100)
-* Meme Author: [Bud_Fuggins](https://www.reddit.com/user/Bud_Fuggins/)
+![Funny Meme](https://i.imgflip.com/88cp8c.jpg?width=100&height=100)
+* Meme Author: [ConsistentTip6508](https://www.reddit.com/user/ConsistentTip6508/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
