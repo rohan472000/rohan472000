@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/1vw7w4no8h4c1.jpg?width=100&height=100)
-* Meme Author: [VadePostMeSatana](https://www.reddit.com/user/VadePostMeSatana/)
+![Funny Meme](https://i.redd.it/p2r9hnr1kd4c1.png?width=100&height=100)
+* Meme Author: [der_gesell](https://www.reddit.com/user/der_gesell/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
