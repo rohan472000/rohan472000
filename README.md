@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dt6e6v6rwd4c1.jpeg?width=100&height=100)
-* Meme Author: [ChampionOfAzurewrath](https://www.reddit.com/user/ChampionOfAzurewrath/)
+![Funny Meme](https://i.redd.it/04aosx8y0g4c1.jpg?width=100&height=100)
+* Meme Author: [TheRealJayk0b](https://www.reddit.com/user/TheRealJayk0b/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
