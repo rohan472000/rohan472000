@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/beicl1jpic4c1.png?width=100&height=100)
-* Meme Author: [SirMoeckel](https://www.reddit.com/user/SirMoeckel/)
+![Funny Meme](https://i.redd.it/6dtowrzc1d4c1.jpg?width=100&height=100)
+* Meme Author: [FunnyMathematician77](https://www.reddit.com/user/FunnyMathematician77/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
