@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s0typ1m37c4c1.jpeg?width=100&height=100)
-* Meme Author: [Uptownflunk](https://www.reddit.com/user/Uptownflunk/)
+![Funny Meme](https://i.redd.it/58zh4ww4db4c1.png?width=100&height=100)
+* Meme Author: [ZZTMF](https://www.reddit.com/user/ZZTMF/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
