@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6f8j7thi3j4c1.jpeg?width=100&height=100)
-* Meme Author: [Ok-Celery-5638](https://www.reddit.com/user/Ok-Celery-5638/)
+![Funny Meme](https://i.redd.it/m7rjwhhjth4c1.jpg?width=100&height=100)
+* Meme Author: [TRGC_](https://www.reddit.com/user/TRGC_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
