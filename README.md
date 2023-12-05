@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/30tths9be84c1.jpg?width=100&height=100)
-* Meme Author: [TheCucumberClan](https://www.reddit.com/user/TheCucumberClan/)
+![Funny Meme](https://i.redd.it/beicl1jpic4c1.png?width=100&height=100)
+* Meme Author: [SirMoeckel](https://www.reddit.com/user/SirMoeckel/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
