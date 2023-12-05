@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s02svoeodd4c1.jpg?width=100&height=100)
-* Meme Author: [Emotional_Snow_3222](https://www.reddit.com/user/Emotional_Snow_3222/)
+![Funny Meme](https://i.redd.it/65opdzaihd4c1.jpg?width=100&height=100)
+* Meme Author: [Optimus_Durex](https://www.reddit.com/user/Optimus_Durex/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
