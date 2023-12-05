@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l0bd2uog2d4c1.jpg?width=100&height=100)
-* Meme Author: [mr_kirk42](https://www.reddit.com/user/mr_kirk42/)
+![Funny Meme](https://i.redd.it/j54kz7mnwc4c1.jpg?width=100&height=100)
+* Meme Author: [PJ-The-Awesome](https://www.reddit.com/user/PJ-The-Awesome/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
