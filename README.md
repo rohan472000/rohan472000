@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/py8825dvej4c1.jpeg?width=100&height=100)
-* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
+![Funny Meme](https://i.redd.it/zaxk52u4fd4c1.jpg?width=100&height=100)
+* Meme Author: [RedEagle_](https://www.reddit.com/user/RedEagle_/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
