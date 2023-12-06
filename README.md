@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qeevr7aroi4c1.jpg?width=100&height=100)
-* Meme Author: [Commissar_Lily](https://www.reddit.com/user/Commissar_Lily/)
+![Funny Meme](https://i.redd.it/eiygb118dk4c1.jpg?width=100&height=100)
+* Meme Author: [dalton10e](https://www.reddit.com/user/dalton10e/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
