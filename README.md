@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0vytdv17gj4c1.jpg?width=100&height=100)
-* Meme Author: [averagerootbeerman](https://www.reddit.com/user/averagerootbeerman/)
+![Funny Meme](https://i.redd.it/zdzkv9dy9h4c1.jpg?width=100&height=100)
+* Meme Author: [Useful_Can7463](https://www.reddit.com/user/Useful_Can7463/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
