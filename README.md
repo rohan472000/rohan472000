@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/nt3tbqwfci4c1.jpeg?width=100&height=100)
-* Meme Author: [Nanaue7](https://www.reddit.com/user/Nanaue7/)
+![Funny Meme](https://i.redd.it/8zv48eosah4c1.jpg?width=100&height=100)
+* Meme Author: [DutyOfficer](https://www.reddit.com/user/DutyOfficer/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
