@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xmkiwphg7l4c1.jpeg?width=100&height=100)
-* Meme Author: [RAF1GAMEGAME](https://www.reddit.com/user/RAF1GAMEGAME/)
+![Funny Meme](https://i.redd.it/k9l50woxml4c1.jpg?width=100&height=100)
+* Meme Author: [jedi1josh](https://www.reddit.com/user/jedi1josh/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
