@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/x35odtq5bh4c1.jpeg?width=100&height=100)
-* Meme Author: [Gone_Mads](https://www.reddit.com/user/Gone_Mads/)
+![Funny Meme](https://i.redd.it/jh1phsklun4c1.png?width=100&height=100)
+* Meme Author: [AccomplToonyGaming](https://www.reddit.com/user/AccomplToonyGaming/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
