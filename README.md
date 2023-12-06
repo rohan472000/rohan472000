@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ua8gmnrsap4c1.jpg?width=100&height=100)
-* Meme Author: [Simple_Secretary_333](https://www.reddit.com/user/Simple_Secretary_333/)
+![Funny Meme](https://i.redd.it/hk7jdolphm4c1.png?width=100&height=100)
+* Meme Author: [m-dawg__](https://www.reddit.com/user/m-dawg__/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
