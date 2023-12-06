@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pwtfztpzbp4c1.jpg?width=100&height=100)
-* Meme Author: [PhantomCruze](https://www.reddit.com/user/PhantomCruze/)
+![Funny Meme](https://i.imgur.com/IIKEfxq.jpg?width=100&height=100)
+* Meme Author: [MrTechnohawk](https://www.reddit.com/user/MrTechnohawk/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
