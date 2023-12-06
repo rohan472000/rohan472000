@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/iijhthg9ei4c1.jpg?width=100&height=100)
-* Meme Author: [Dontinsultautomod](https://www.reddit.com/user/Dontinsultautomod/)
+![Funny Meme](https://i.redd.it/j8uj8f9h1k4c1.jpg?width=100&height=100)
+* Meme Author: [Paaati](https://www.reddit.com/user/Paaati/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
