@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6yrgje0vkk4c1.jpg?width=100&height=100)
-* Meme Author: [OctrasAC2](https://www.reddit.com/user/OctrasAC2/)
+![Funny Meme](https://i.redd.it/xd86dni96i4c1.jpg?width=100&height=100)
+* Meme Author: [PokeChampMarx](https://www.reddit.com/user/PokeChampMarx/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
