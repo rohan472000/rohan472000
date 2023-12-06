@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/u8vrj6ni1k4c1.jpg?width=100&height=100)
-* Meme Author: [i-might-be-obama](https://www.reddit.com/user/i-might-be-obama/)
+![Funny Meme](https://i.redd.it/isn8insdxj4c1.jpeg?width=100&height=100)
+* Meme Author: [WATCH_DOG001](https://www.reddit.com/user/WATCH_DOG001/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
