@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0xgjbna7zj4c1.jpg?width=100&height=100)
-* Meme Author: [CalciferAtlas](https://www.reddit.com/user/CalciferAtlas/)
+![Funny Meme](https://i.redd.it/abmwog2w6m4c1.jpg?width=100&height=100)
+* Meme Author: [toxic_gf_lover](https://www.reddit.com/user/toxic_gf_lover/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
