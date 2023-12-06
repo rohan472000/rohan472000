@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ik71l7ttfg4c1.jpeg?width=100&height=100)
-* Meme Author: [thexbeatboxer](https://www.reddit.com/user/thexbeatboxer/)
+![Funny Meme](https://i.redd.it/5riwqd7d5k4c1.jpeg?width=100&height=100)
+* Meme Author: [uppsak](https://www.reddit.com/user/uppsak/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
