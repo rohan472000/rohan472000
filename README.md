@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/qhczam64yl4c1.jpg?width=100&height=100)
-* Meme Author: [Siribreja](https://www.reddit.com/user/Siribreja/)
+![Funny Meme](https://i.redd.it/pdb3aezbgo4c1.jpg?width=100&height=100)
+* Meme Author: [PhantomCruze](https://www.reddit.com/user/PhantomCruze/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
