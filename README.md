@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/abmwog2w6m4c1.jpg?width=100&height=100)
-* Meme Author: [toxic_gf_lover](https://www.reddit.com/user/toxic_gf_lover/)
+![Funny Meme](https://i.redd.it/u8vrj6ni1k4c1.jpg?width=100&height=100)
+* Meme Author: [i-might-be-obama](https://www.reddit.com/user/i-might-be-obama/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
