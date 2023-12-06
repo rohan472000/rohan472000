@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/0zl5i5ks5r4c1.jpeg?width=100&height=100)
-* Meme Author: [KidFlim](https://www.reddit.com/user/KidFlim/)
+![Funny Meme](https://i.redd.it/70puncajto4c1.jpeg?width=100&height=100)
+* Meme Author: [Memesandmoodz](https://www.reddit.com/user/Memesandmoodz/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
