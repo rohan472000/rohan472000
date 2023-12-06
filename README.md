@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/isn8insdxj4c1.jpeg?width=100&height=100)
-* Meme Author: [WATCH_DOG001](https://www.reddit.com/user/WATCH_DOG001/)
+![Funny Meme](https://i.redd.it/q96m9tizyi4c1.jpeg?width=100&height=100)
+* Meme Author: [dtaddis](https://www.reddit.com/user/dtaddis/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
