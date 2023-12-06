@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k290zjcgwg4c1.png?width=100&height=100)
-* Meme Author: [cobraX190](https://www.reddit.com/user/cobraX190/)
+![Funny Meme](https://i.redd.it/md94z96cyh4c1.png?width=100&height=100)
+* Meme Author: [axxidental_geniuz](https://www.reddit.com/user/axxidental_geniuz/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
