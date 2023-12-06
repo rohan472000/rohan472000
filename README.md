@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/88lcrieith4c1.jpg?width=100&height=100)
-* Meme Author: [Kituebet_42](https://www.reddit.com/user/Kituebet_42/)
+![Funny Meme](https://i.redd.it/7rjhjkvhbk4c1.jpeg?width=100&height=100)
+* Meme Author: [LiTH7](https://www.reddit.com/user/LiTH7/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
