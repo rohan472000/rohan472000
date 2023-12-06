@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c4jf9sc75o4c1.png?width=100&height=100)
-* Meme Author: [DollarStoreAbraham](https://www.reddit.com/user/DollarStoreAbraham/)
+![Funny Meme](https://i.redd.it/cl629ki6wn4c1.jpg?width=100&height=100)
+* Meme Author: [wetbeef10](https://www.reddit.com/user/wetbeef10/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
