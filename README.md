@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/s9fdgogs5o4c1.jpg?width=100&height=100)
-* Meme Author: [lingley](https://www.reddit.com/user/lingley/)
+![Funny Meme](https://i.redd.it/xmkiwphg7l4c1.jpeg?width=100&height=100)
+* Meme Author: [RAF1GAMEGAME](https://www.reddit.com/user/RAF1GAMEGAME/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
