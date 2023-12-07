@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kx15gfebrk4c1.png?width=100&height=100)
-* Meme Author: [HF484](https://www.reddit.com/user/HF484/)
+![Funny Meme](https://i.redd.it/cri3t6g8ov4c1.jpg?width=100&height=100)
+* Meme Author: [ExRousseauScholar](https://www.reddit.com/user/ExRousseauScholar/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
