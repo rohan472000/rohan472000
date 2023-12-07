@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cqseapxfsp4c1.jpg?width=100&height=100)
-* Meme Author: [Arda_wulf](https://www.reddit.com/user/Arda_wulf/)
+![Funny Meme](https://i.imgur.com/QrLn1pL.jpg?width=100&height=100)
+* Meme Author: [ooMEAToo](https://www.reddit.com/user/ooMEAToo/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
