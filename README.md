@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vthhetktmp4c1.jpeg?width=100&height=100)
-* Meme Author: [rameneater23](https://www.reddit.com/user/rameneater23/)
+![Funny Meme](https://i.redd.it/b6nppmszyr4c1.jpg?width=100&height=100)
+* Meme Author: [illumi_nazi](https://www.reddit.com/user/illumi_nazi/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
