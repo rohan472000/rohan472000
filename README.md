@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/eb4rpnkzot4c1.jpg?width=100&height=100)
-* Meme Author: [MooCow49](https://www.reddit.com/user/MooCow49/)
+![Funny Meme](https://i.redd.it/zoeccyx16w4c1.jpg?width=100&height=100)
+* Meme Author: [purpleturtlehurtler](https://www.reddit.com/user/purpleturtlehurtler/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
