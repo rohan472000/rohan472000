@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dizui7bn8r4c1.jpg?width=100&height=100)
-* Meme Author: [Ravenclaw_14](https://www.reddit.com/user/Ravenclaw_14/)
+![Funny Meme](https://i.redd.it/1hlxnwufur4c1.jpeg?width=100&height=100)
+* Meme Author: [Rfl0](https://www.reddit.com/user/Rfl0/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
