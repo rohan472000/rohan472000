@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ely93tzrqr4c1.jpg?width=100&height=100)
-* Meme Author: [ilovecheese514](https://www.reddit.com/user/ilovecheese514/)
+![Funny Meme](https://i.redd.it/04izznykzx4c1.png?width=100&height=100)
+* Meme Author: [Kablump](https://www.reddit.com/user/Kablump/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
