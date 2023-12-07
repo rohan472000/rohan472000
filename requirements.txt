@@ -5,12 +5,13 @@ attrs
 certifi
 charset-normalizer
 discord
-discord.py
+pysimplegui
+pillow
 frozenlist
 idna
 multidict
-Pillow
 pybase64
 requests
 urllib3
 yarl
+
