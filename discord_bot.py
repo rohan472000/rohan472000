@@ -3,22 +3,14 @@
 
 import discord
 from discord.ext import commands
-import requests
-import logging
-import json
-# import os
+import os
 from collections import deque
-# Constants
-REDDIT_API_URL = "https://www.reddit.com/r/memes/random.json?limit=1"
-USER_AGENT = (
-    "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
-    "(KHTML, like Gecko) Chrome/111.0.0.0 Safari/537.36"
-)
 
+from services.reddit import RedditService
 
 # TOKEN = os.environ.get("DISCORD")
-# TOKEN =  os.getenv("DISCORD")
-TOKEN = '${{ secrets.DISCORD }}'
+TOKEN = os.getenv("DISCORD")
+# TOKEN = '${{ secrets.DISCORD }}'
 # print("token initials are : ", TOKEN)
 
 # Define intents
@@ -28,18 +20,17 @@ intents.presences = False
 intents.message_content = True
 bot = commands.Bot(command_prefix="!", intents=intents)
 
-
 sent_memes = deque(maxlen=10)
 
 
 @bot.event
 async def on_ready():
-    print(f'Logged in as {bot.user.name}')
+    print(f"Logged in as {bot.user.name}")
 
 
 @bot.command()
 async def postmeme(ctx):
-    meme_url = fetch_random_url(REDDIT_API_URL, USER_AGENT)
+    meme_url = fetch_random_url()
 
     if meme_url:
         if meme_url not in sent_memes:
@@ -49,19 +40,13 @@ async def postmeme(ctx):
             await ctx.send("I've already sent this meme recently!")
 
 
-def fetch_random_url(api_url, user_agent):
-    try:
-        response = requests.get(api_url, headers={'User-agent': user_agent})
-        response.raise_for_status()
-        return response.json()[0]['data']['children'][0]['data']['url']
-    except (
-        requests.exceptions.RequestException,
-        json.JSONDecodeError,
-        KeyError,
-        IndexError
-    ) as e:
-        logging.error(f"An error occurred: {e}")
-        return None
+def fetch_random_url():
+    random_meme = RedditService.get_random_meme()
+    if random_meme:
+        random_meme_url = random_meme["url"]
+    else:
+        random_meme_url = None
+    return random_meme_url
 
 
 bot.run(TOKEN)
