@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/bgauzktkgs4c1.png?width=100&height=100)
-* Meme Author: [nowhere_near_paris](https://www.reddit.com/user/nowhere_near_paris/)
+![Funny Meme](https://i.redd.it/1pec6on2nv4c1.jpeg?width=100&height=100)
+* Meme Author: [Satch1987](https://www.reddit.com/user/Satch1987/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
