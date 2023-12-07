@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/paz1klnqnq4c1.png?width=100&height=100)
-* Meme Author: [CARZGOVROOM](https://www.reddit.com/user/CARZGOVROOM/)
+![Funny Meme](https://i.redd.it/tafq3flypt4c1.jpg?width=100&height=100)
+* Meme Author: [Murky_Committee_1585](https://www.reddit.com/user/Murky_Committee_1585/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
