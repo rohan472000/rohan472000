@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jo47kew3rk4c1.jpg?width=100&height=100)
-* Meme Author: [shredslanding](https://www.reddit.com/user/shredslanding/)
+![Funny Meme](https://i.redd.it/olvzjefjpq4c1.jpg?width=100&height=100)
+* Meme Author: [undeadliftmax](https://www.reddit.com/user/undeadliftmax/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
