@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k4lb2v54lr4c1.jpeg?width=100&height=100)
-* Meme Author: [Shick_Quatro](https://www.reddit.com/user/Shick_Quatro/)
+![Funny Meme](https://i.redd.it/wb9fwrd4up4c1.jpg?width=100&height=100)
+* Meme Author: [No-Pomegranate-69](https://www.reddit.com/user/No-Pomegranate-69/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
