@@ -1,4 +1,4 @@
-![Funny Meme](https://i.redd.it/bqa3lax0bq4c1.jpeg?width=100&height=100)
+![Funny Meme](https://i.redd.it/48wiy1e8xr4c1.jpeg?width=100&height=100)
 * Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
 
 
