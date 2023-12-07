@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q9j4ezx3lp4c1.jpeg?width=100&height=100)
-* Meme Author: [omniman267](https://www.reddit.com/user/omniman267/)
+![Funny Meme](https://i.redd.it/vvv5y0k4hq4c1.png?width=100&height=100)
+* Meme Author: [Alprazolam250](https://www.reddit.com/user/Alprazolam250/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
