@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hk7jdolphm4c1.png?width=100&height=100)
-* Meme Author: [m-dawg__](https://www.reddit.com/user/m-dawg__/)
+![Funny Meme](https://i.redd.it/9pmtnraw3m4c1.jpeg?width=100&height=100)
+* Meme Author: [Otherwise_Basis_6328](https://www.reddit.com/user/Otherwise_Basis_6328/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
