@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/266vqq1qqp4c1.png?width=100&height=100)
-* Meme Author: [Direct-Temporary-271](https://www.reddit.com/user/Direct-Temporary-271/)
+![Funny Meme](https://i.redd.it/pbgmy41tso4c1.png?width=100&height=100)
+* Meme Author: [brocomb](https://www.reddit.com/user/brocomb/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
