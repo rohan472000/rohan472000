@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t06kyzqj9t4c1.jpg?width=100&height=100)
-* Meme Author: [leave_it_to_beavers](https://www.reddit.com/user/leave_it_to_beavers/)
+![Funny Meme](https://i.redd.it/ely93tzrqr4c1.jpg?width=100&height=100)
+* Meme Author: [ilovecheese514](https://www.reddit.com/user/ilovecheese514/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
