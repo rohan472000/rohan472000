@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/aopzb8a0lq4c1.jpeg?width=100&height=100)
-* Meme Author: [Secret_Scene747](https://www.reddit.com/user/Secret_Scene747/)
+![Funny Meme](https://i.redd.it/0esa5qe4zr4c1.jpg?width=100&height=100)
+* Meme Author: [Expert_Camel5619](https://www.reddit.com/user/Expert_Camel5619/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
