@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/okf2g7d9vs4c1.png?width=100&height=100)
-* Meme Author: [Shift_Bloxx](https://www.reddit.com/user/Shift_Bloxx/)
+![Funny Meme](https://i.redd.it/x5oaadz5yu4c1.jpg?width=100&height=100)
+* Meme Author: [Co-17](https://www.reddit.com/user/Co-17/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
