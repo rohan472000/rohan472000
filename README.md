@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/j0yhq29xzw4c1.png?width=100&height=100)
-* Meme Author: [thirtysevenpants](https://www.reddit.com/user/thirtysevenpants/)
+![Funny Meme](https://i.redd.it/81hc96jm4u4c1.jpg?width=100&height=100)
+* Meme Author: [Kal-EL007](https://www.reddit.com/user/Kal-EL007/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
