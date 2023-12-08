@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/q5wwwnr95x4c1.jpg?width=100&height=100)
-* Meme Author: [Excellent-Reality-24](https://www.reddit.com/user/Excellent-Reality-24/)
+![Funny Meme](https://i.redd.it/ges28bpo6z4c1.jpg?width=100&height=100)
+* Meme Author: [LeavesInsults1291](https://www.reddit.com/user/LeavesInsults1291/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
