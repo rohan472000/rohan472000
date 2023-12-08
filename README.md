@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ib6v3rqa905c1.jpg?width=100&height=100)
-* Meme Author: [The_Only_Elyxir](https://www.reddit.com/user/The_Only_Elyxir/)
+![Funny Meme](https://i.redd.it/5b37j0rapu4c1.jpeg?width=100&height=100)
+* Meme Author: [jimmyapril19](https://www.reddit.com/user/jimmyapril19/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
