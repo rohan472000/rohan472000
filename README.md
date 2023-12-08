@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e0i8pzr5a35c1.png?width=100&height=100)
-* Meme Author: [Student-of-spiderweb](https://www.reddit.com/user/Student-of-spiderweb/)
+![Funny Meme](https://i.redd.it/7skzm1u6k15c1.png?width=100&height=100)
+* Meme Author: [Knight9910](https://www.reddit.com/user/Knight9910/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
