@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/g9rmd224y15c1.jpg?width=100&height=100)
-* Meme Author: [Aromatic-Union6080](https://www.reddit.com/user/Aromatic-Union6080/)
+![Funny Meme](https://i.imgur.com/14bzYs5.png?width=100&height=100)
+* Meme Author: [Joliete](https://www.reddit.com/user/Joliete/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
