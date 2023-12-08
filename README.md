@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9s1qyx02xq4c1.jpg?width=100&height=100)
-* Meme Author: [IdiotGoddess](https://www.reddit.com/user/IdiotGoddess/)
+![Funny Meme](https://i.redd.it/jw7a88zhdz4c1.jpg?width=100&height=100)
+* Meme Author: [bountyhunterfromhell](https://www.reddit.com/user/bountyhunterfromhell/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
