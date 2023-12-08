@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/vql0rarv0w4c1.png?width=100&height=100)
-* Meme Author: [Practical-Skin-4689](https://www.reddit.com/user/Practical-Skin-4689/)
+![Funny Meme](https://i.redd.it/qkpwdahgkt4c1.jpg?width=100&height=100)
+* Meme Author: [Hitler-Clone](https://www.reddit.com/user/Hitler-Clone/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
