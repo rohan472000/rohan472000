@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/c5xrpmgbkz4c1.jpg?width=100&height=100)
-* Meme Author: [scp_79](https://www.reddit.com/user/scp_79/)
+![Funny Meme](https://i.redd.it/7u1r3ihiyy4c1.jpg?width=100&height=100)
+* Meme Author: [Actually-a-name](https://www.reddit.com/user/Actually-a-name/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
