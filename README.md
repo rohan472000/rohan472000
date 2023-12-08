@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ya1ae5tv0x4c1.png?width=100&height=100)
-* Meme Author: [randomdude123502](https://www.reddit.com/user/randomdude123502/)
+![Funny Meme](https://i.redd.it/12qqnw1cs35c1.jpeg?width=100&height=100)
+* Meme Author: [Lord_Of_Katz](https://www.reddit.com/user/Lord_Of_Katz/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
