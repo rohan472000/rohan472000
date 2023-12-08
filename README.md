@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9t1ymihv305c1.jpeg?width=100&height=100)
-* Meme Author: [AquaticMeteor](https://www.reddit.com/user/AquaticMeteor/)
+![Funny Meme](https://i.redd.it/efim015v705c1.png?width=100&height=100)
+* Meme Author: [NicoleMay316](https://www.reddit.com/user/NicoleMay316/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
