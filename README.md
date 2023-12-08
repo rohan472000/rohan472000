@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/twcccp7y415c1.png?width=100&height=100)
-* Meme Author: [Reveloutioner](https://www.reddit.com/user/Reveloutioner/)
+![Funny Meme](https://i.redd.it/exs0qshc7w4c1.jpeg?width=100&height=100)
+* Meme Author: [bukes1](https://www.reddit.com/user/bukes1/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
