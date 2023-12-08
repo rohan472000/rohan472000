@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4vixozla905c1.jpg?width=100&height=100)
-* Meme Author: [NonverbalGore24](https://www.reddit.com/user/NonverbalGore24/)
+![Funny Meme](https://i.redd.it/hjudybjz915c1.jpg?width=100&height=100)
+* Meme Author: [Material-Sun-5784](https://www.reddit.com/user/Material-Sun-5784/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
