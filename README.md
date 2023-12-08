@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/t69l3yuww25c1.jpg?width=100&height=100)
-* Meme Author: [Julian-1577](https://www.reddit.com/user/Julian-1577/)
+![Funny Meme](https://i.redd.it/5gjfk332205c1.jpeg?width=100&height=100)
+* Meme Author: [craigjclark68](https://www.reddit.com/user/craigjclark68/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
