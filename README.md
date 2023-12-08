@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/hl3s37818w4c1.jpeg?width=100&height=100)
-* Meme Author: [Ancient_Axe](https://www.reddit.com/user/Ancient_Axe/)
+![Funny Meme](https://i.redd.it/bf3pgbqron4c1.jpg?width=100&height=100)
+* Meme Author: [SnooShortcuts2757](https://www.reddit.com/user/SnooShortcuts2757/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
