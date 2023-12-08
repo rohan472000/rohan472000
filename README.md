@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jenmztqkdy4c1.jpeg?width=100&height=100)
-* Meme Author: [AmmonWho42](https://www.reddit.com/user/AmmonWho42/)
+![Funny Meme](https://i.redd.it/t69l3yuww25c1.jpg?width=100&height=100)
+* Meme Author: [Julian-1577](https://www.reddit.com/user/Julian-1577/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
