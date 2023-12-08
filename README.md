@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/l78h9sg9ky4c1.jpeg?width=100&height=100)
-* Meme Author: [Agency-National](https://www.reddit.com/user/Agency-National/)
+![Funny Meme](https://i.redd.it/8z31kl0j2y4c1.png?width=100&height=100)
+* Meme Author: [Beyblademan1](https://www.reddit.com/user/Beyblademan1/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
