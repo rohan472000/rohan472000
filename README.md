@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b3rll4dnw85c1.png?width=100&height=100)
-* Meme Author: [RingTheBell1900](https://www.reddit.com/user/RingTheBell1900/)
+![Funny Meme](https://i.redd.it/rv0kdwy6775c1.jpeg?width=100&height=100)
+* Meme Author: [Waitingforlunch](https://www.reddit.com/user/Waitingforlunch/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
