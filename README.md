@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8swd2s6im35c1.jpg?width=100&height=100)
-* Meme Author: [sean_ocean](https://www.reddit.com/user/sean_ocean/)
+![Funny Meme](https://i.redd.it/lpy5e97fhz4c1.png?width=100&height=100)
+* Meme Author: [Fidges87](https://www.reddit.com/user/Fidges87/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
