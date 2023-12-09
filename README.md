@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sbkuql9ft95c1.jpg?width=100&height=100)
-* Meme Author: [luxa21](https://www.reddit.com/user/luxa21/)
+![Funny Meme](https://i.redd.it/fbvf1wy4q25c1.jpg?width=100&height=100)
+* Meme Author: [LifeBucketTTV](https://www.reddit.com/user/LifeBucketTTV/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
