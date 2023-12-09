@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/66cq069nc25c1.jpg?width=100&height=100)
-* Meme Author: [Dildosmoke69](https://www.reddit.com/user/Dildosmoke69/)
+![Funny Meme](https://i.redd.it/0ftchf6o345c1.jpg?width=100&height=100)
+* Meme Author: [fiach-o-mchugh](https://www.reddit.com/user/fiach-o-mchugh/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
