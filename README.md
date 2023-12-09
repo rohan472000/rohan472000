@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/i9mceed2q55c1.jpeg?width=100&height=100)
-* Meme Author: [Johnny-silver-hand](https://www.reddit.com/user/Johnny-silver-hand/)
+![Funny Meme](https://i.redd.it/7ty2xfni5u4c1.jpeg?width=100&height=100)
+* Meme Author: [IAlwaysOutsmartU](https://www.reddit.com/user/IAlwaysOutsmartU/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
