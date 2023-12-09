@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/7pkokt08w65c1.png?width=100&height=100)
-* Meme Author: [Born-Promotion-5977](https://www.reddit.com/user/Born-Promotion-5977/)
+![Funny Meme](https://i.redd.it/eb5h8g37445c1.jpg?width=100&height=100)
+* Meme Author: [Sahiruchan](https://www.reddit.com/user/Sahiruchan/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
