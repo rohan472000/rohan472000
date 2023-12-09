@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w6118kifl55c1.jpg?width=100&height=100)
-* Meme Author: [mortal_man0](https://www.reddit.com/user/mortal_man0/)
+![Funny Meme](https://i.redd.it/olcbw3vht65c1.jpeg?width=100&height=100)
+* Meme Author: [IchTanze](https://www.reddit.com/user/IchTanze/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
