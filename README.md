@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/k95789ip425c1.jpg?width=100&height=100)
-* Meme Author: [Whirlp00l3d](https://www.reddit.com/user/Whirlp00l3d/)
+![Funny Meme](https://i.redd.it/9vzkn2y17w4c1.png?width=100&height=100)
+* Meme Author: [DisobedientAsFuck](https://www.reddit.com/user/DisobedientAsFuck/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
