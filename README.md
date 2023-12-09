@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3028bz6o175c1.jpg?width=100&height=100)
-* Meme Author: [Athena5000](https://www.reddit.com/user/Athena5000/)
+![Funny Meme](https://i.redd.it/9v8ij7juib5c1.jpg?width=100&height=100)
+* Meme Author: [protacticus](https://www.reddit.com/user/protacticus/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
