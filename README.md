@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/jl0zpra6di5c1.jpg?width=100&height=100)
-* Meme Author: [doesnt_matter_1710](https://www.reddit.com/user/doesnt_matter_1710/)
+![Funny Meme](https://i.redd.it/ry0175v4eh5c1.jpeg?width=100&height=100)
+* Meme Author: [Sami1398](https://www.reddit.com/user/Sami1398/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
