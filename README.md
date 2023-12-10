@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/d9bybu0p8c5c1.jpg?width=100&height=100)
-* Meme Author: [Ok-Fail-540](https://www.reddit.com/user/Ok-Fail-540/)
+![Funny Meme](https://i.redd.it/madstjlp0f5c1.jpg?width=100&height=100)
+* Meme Author: [6drg0ns](https://www.reddit.com/user/6drg0ns/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
