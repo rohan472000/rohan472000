@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8joop1as495c1.jpg?width=100&height=100)
-* Meme Author: [artemismilkman](https://www.reddit.com/user/artemismilkman/)
+![Funny Meme](https://i.redd.it/nznr10e61c5c1.jpg?width=100&height=100)
+* Meme Author: [RBJII](https://www.reddit.com/user/RBJII/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
