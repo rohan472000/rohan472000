@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/umt22limq95c1.png?width=100&height=100)
-* Meme Author: [TATSAT2008](https://www.reddit.com/user/TATSAT2008/)
+![Funny Meme](https://i.redd.it/zmebq7nlae5c1.png?width=100&height=100)
+* Meme Author: [thisuseristakenbreh](https://www.reddit.com/user/thisuseristakenbreh/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
