@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rcmua6vzca5c1.jpg?width=100&height=100)
-* Meme Author: [ThewizardBlundermore](https://www.reddit.com/user/ThewizardBlundermore/)
+![Funny Meme](https://i.redd.it/8rhik7zc6a5c1.png?width=100&height=100)
+* Meme Author: [Walmaker](https://www.reddit.com/user/Walmaker/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
