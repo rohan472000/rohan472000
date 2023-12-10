@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/zrzcoy8yvf5c1.jpeg?width=100&height=100)
-* Meme Author: [KurtParkour](https://www.reddit.com/user/KurtParkour/)
+![Funny Meme](https://i.redd.it/d9bybu0p8c5c1.jpg?width=100&height=100)
+* Meme Author: [Ok-Fail-540](https://www.reddit.com/user/Ok-Fail-540/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
