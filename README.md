@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/yl9q20tapi5c1.jpeg?width=100&height=100)
-* Meme Author: [Feetamongflames](https://www.reddit.com/user/Feetamongflames/)
+![Funny Meme](https://i.redd.it/av8y2d5cyh5c1.jpg?width=100&height=100)
+* Meme Author: [Matthew__19](https://www.reddit.com/user/Matthew__19/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
