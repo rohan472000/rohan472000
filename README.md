@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8p1e1flhae5c1.jpeg?width=100&height=100)
-* Meme Author: [Golden-Vibes](https://www.reddit.com/user/Golden-Vibes/)
+![Funny Meme](https://i.redd.it/5j860cifzg5c1.png?width=100&height=100)
+* Meme Author: [traketaker](https://www.reddit.com/user/traketaker/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
