@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/8rhik7zc6a5c1.png?width=100&height=100)
-* Meme Author: [Walmaker](https://www.reddit.com/user/Walmaker/)
+![Funny Meme](https://i.redd.it/u7we401cm75c1.jpeg?width=100&height=100)
+* Meme Author: [TalkaboutJoudy](https://www.reddit.com/user/TalkaboutJoudy/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
