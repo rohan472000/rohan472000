@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/b8zi7ju7jj5c1.jpeg?width=100&height=100)
-* Meme Author: [BountyKraken](https://www.reddit.com/user/BountyKraken/)
+![Funny Meme](https://i.redd.it/1bn6tna4bd5c1.png?width=100&height=100)
+* Meme Author: [BaronGamer](https://www.reddit.com/user/BaronGamer/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
