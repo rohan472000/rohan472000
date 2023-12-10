@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ecf467xgh15c1.png?width=100&height=100)
-* Meme Author: [Devil-Eater24](https://www.reddit.com/user/Devil-Eater24/)
+![Funny Meme](https://i.redd.it/d63l0sp4wb5c1.png?width=100&height=100)
+* Meme Author: [pansexual_Pratt](https://www.reddit.com/user/pansexual_Pratt/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
