@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xx8nyh7awc5c1.png?width=100&height=100)
-* Meme Author: [TeamSinx_Gaming](https://www.reddit.com/user/TeamSinx_Gaming/)
+![Funny Meme](https://i.redd.it/18rxm7y1oa5c1.jpg?width=100&height=100)
+* Meme Author: [Flaviphone](https://www.reddit.com/user/Flaviphone/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
