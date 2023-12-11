@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/rvj9a5jvwl5c1.jpg?width=100&height=100)
-* Meme Author: [Cave_in_32](https://www.reddit.com/user/Cave_in_32/)
+![Funny Meme](https://i.redd.it/t1guv7z73k5c1.png?width=100&height=100)
+* Meme Author: [ChildishTopHat](https://www.reddit.com/user/ChildishTopHat/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
