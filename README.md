@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/kg0mnhlhnh5c1.jpg?width=100&height=100)
-* Meme Author: [No-Relationship-9376](https://www.reddit.com/user/No-Relationship-9376/)
+![Funny Meme](https://i.redd.it/nz3ydylumo5c1.jpeg?width=100&height=100)
+* Meme Author: [aakash_huilgol](https://www.reddit.com/user/aakash_huilgol/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
