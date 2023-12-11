@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3g3iobq7pn5c1.jpg?width=100&height=100)
-* Meme Author: [Whirlp00l3d](https://www.reddit.com/user/Whirlp00l3d/)
+![Funny Meme](https://i.redd.it/z4ptjfnszi5c1.jpeg?width=100&height=100)
+* Meme Author: [Tiny_Ear_61](https://www.reddit.com/user/Tiny_Ear_61/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
