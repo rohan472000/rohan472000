@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/4o3m3wwxnn5c1.jpg?width=100&height=100)
-* Meme Author: [Digitised_Doofus](https://www.reddit.com/user/Digitised_Doofus/)
+![Funny Meme](https://i.redd.it/cssb461olk5c1.jpg?width=100&height=100)
+* Meme Author: [YES_but_aggressive](https://www.reddit.com/user/YES_but_aggressive/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
