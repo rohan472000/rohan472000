@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/3h0r5a3q3k5c1.jpg?width=100&height=100)
-* Meme Author: [PR0CR45T184T0R](https://www.reddit.com/user/PR0CR45T184T0R/)
+![Funny Meme](https://i.redd.it/v4gq5evroj5c1.png?width=100&height=100)
+* Meme Author: [Midgetfromspace](https://www.reddit.com/user/Midgetfromspace/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
