@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xuyio6e48j5c1.jpg?width=100&height=100)
-* Meme Author: [EvaInTheUSA](https://www.reddit.com/user/EvaInTheUSA/)
+![Funny Meme](https://i.redd.it/73z5tghpgi5c1.jpeg?width=100&height=100)
+* Meme Author: [Justanotherdavey](https://www.reddit.com/user/Justanotherdavey/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
