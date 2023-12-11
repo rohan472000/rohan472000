@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/dojnut3kdj5c1.jpg?width=100&height=100)
-* Meme Author: [TheFragileZebra](https://www.reddit.com/user/TheFragileZebra/)
+![Funny Meme](https://i.redd.it/23p0w38vco5c1.jpeg?width=100&height=100)
+* Meme Author: [AimlessFacade](https://www.reddit.com/user/AimlessFacade/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
