@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/ppwqg3t9nj5c1.jpg?width=100&height=100)
-* Meme Author: [Educational_Vanilla](https://www.reddit.com/user/Educational_Vanilla/)
+![Funny Meme](https://i.redd.it/8a0c5kse2j5c1.jpg?width=100&height=100)
+* Meme Author: [depressedfairy1842](https://www.reddit.com/user/depressedfairy1842/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
