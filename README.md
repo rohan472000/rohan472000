@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/omojpixrtj5c1.jpg?width=100&height=100)
-* Meme Author: [yankee_doodle_](https://www.reddit.com/user/yankee_doodle_/)
+![Funny Meme](https://i.redd.it/loh3igmarp5c1.png?width=100&height=100)
+* Meme Author: [thedaffodils](https://www.reddit.com/user/thedaffodils/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
