@@ -1,4 +1,4 @@
-![Funny Meme](https://i.redd.it/lqfimgswtg5c1.jpeg?width=100&height=100)
+![Funny Meme](https://i.redd.it/q6dnn93coo5c1.jpeg?width=100&height=100)
 * Meme Author: [Venixooo](https://www.reddit.com/user/Venixooo/)
 
 
