@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/cssb461olk5c1.jpg?width=100&height=100)
-* Meme Author: [YES_but_aggressive](https://www.reddit.com/user/YES_but_aggressive/)
+![Funny Meme](https://i.redd.it/wazubomq7g5c1.jpeg?width=100&height=100)
+* Meme Author: [GoodGuy_Strelok](https://www.reddit.com/user/GoodGuy_Strelok/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
