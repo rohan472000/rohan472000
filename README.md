@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/9sdpwjeloq5c1.jpeg?width=100&height=100)
-* Meme Author: [TaleYouToBrazil](https://www.reddit.com/user/TaleYouToBrazil/)
+![Funny Meme](https://i.redd.it/lk597deu6q5c1.jpeg?width=100&height=100)
+* Meme Author: [ibelieveindoh](https://www.reddit.com/user/ibelieveindoh/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
