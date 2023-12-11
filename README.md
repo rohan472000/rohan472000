@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/z4ptjfnszi5c1.jpeg?width=100&height=100)
-* Meme Author: [Tiny_Ear_61](https://www.reddit.com/user/Tiny_Ear_61/)
+![Funny Meme](https://i.redd.it/4i7t1mc5tp5c1.png?width=100&height=100)
+* Meme Author: [kickresume](https://www.reddit.com/user/kickresume/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
