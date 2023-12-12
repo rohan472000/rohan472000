@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/6petptgp7q5c1.png?width=100&height=100)
-* Meme Author: [Sukala-AP](https://www.reddit.com/user/Sukala-AP/)
+![Funny Meme](https://i.redd.it/mvt0sw6iwg5c1.jpg?width=100&height=100)
+* Meme Author: [SubstantialBother586](https://www.reddit.com/user/SubstantialBother586/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
