@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/e9wakcnmzq5c1.jpeg?width=100&height=100)
-* Meme Author: [G-Man_of_HL](https://www.reddit.com/user/G-Man_of_HL/)
+![Funny Meme](https://i.redd.it/v7rdd9nc8s5c1.png?width=100&height=100)
+* Meme Author: [Stupid_cerealbox](https://www.reddit.com/user/Stupid_cerealbox/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
