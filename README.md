@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/w4fhmiogxn5c1.png?width=100&height=100)
-* Meme Author: [Firefox864](https://www.reddit.com/user/Firefox864/)
+![Funny Meme](https://i.redd.it/z3y1cm6vct5c1.jpg?width=100&height=100)
+* Meme Author: [CodyRhody](https://www.reddit.com/user/CodyRhody/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
