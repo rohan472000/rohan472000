@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/lo8a906awu5c1.jpeg?width=100&height=100)
-* Meme Author: [jesushartwellchrist](https://www.reddit.com/user/jesushartwellchrist/)
+![Funny Meme](https://i.redd.it/tmaptwgmhs5c1.png?width=100&height=100)
+* Meme Author: [SoundManBlue1988](https://www.reddit.com/user/SoundManBlue1988/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
