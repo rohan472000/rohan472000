@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/sedtaimw3q5c1.jpeg?width=100&height=100)
-* Meme Author: [SpaceChaton](https://www.reddit.com/user/SpaceChaton/)
+![Funny Meme](https://i.redd.it/3vctnhbljq5c1.jpg?width=100&height=100)
+* Meme Author: [Jeef_1st](https://www.reddit.com/user/Jeef_1st/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
