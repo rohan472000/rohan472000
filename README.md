@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/pr54d0ectr5c1.jpeg?width=100&height=100)
-* Meme Author: [the_fish_food](https://www.reddit.com/user/the_fish_food/)
+![Funny Meme](https://i.redd.it/nv70jzsrsq5c1.jpg?width=100&height=100)
+* Meme Author: [Vex_T1ger](https://www.reddit.com/user/Vex_T1ger/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
