@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/xhj6df7bok5c1.jpeg?width=100&height=100)
-* Meme Author: [figbott](https://www.reddit.com/user/figbott/)
+![Funny Meme](https://i.redd.it/b65rx9d2gr5c1.jpeg?width=100&height=100)
+* Meme Author: [weeb_with_gumdisease](https://www.reddit.com/user/weeb_with_gumdisease/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
