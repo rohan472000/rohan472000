@@ -1,5 +1,5 @@
-![Funny Meme](https://i.redd.it/az9qn8z70u5c1.jpeg?width=100&height=100)
-* Meme Author: [Few-Monies](https://www.reddit.com/user/Few-Monies/)
+![Funny Meme](https://i.redd.it/mnn3km8ttm5c1.png?width=100&height=100)
+* Meme Author: [Failuretoasians](https://www.reddit.com/user/Failuretoasians/)
 
 
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
