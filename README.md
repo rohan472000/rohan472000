@@ -1,6 +1,6 @@
-![Funny Meme](https://i.redd.it/tmaptwgmhs5c1.png?width=100&height=100)
-* Meme Author: [SoundManBlue1988](https://www.reddit.com/user/SoundManBlue1988/)
-
+![Funny Meme](https://i.redd.it/jntzvvpz2ryb1.jpg?width=100&height=100)
+* Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
+  
 ### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
 **------------------------------------------------------------------------------------------------------------------------------------------------**
 
