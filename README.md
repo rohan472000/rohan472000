@@ -1,4 +1,4 @@
-## Memes stopped as Reddit is not allowing me to fetch more memes, may be I've exceeded  the limit 😒.
+## Memes stopped as Reddit is not allowing me to fetch more memes, giving Error:403 😒.
 **--------------------------------------------------------------------------------------------------------------------------------------------**
 
 
