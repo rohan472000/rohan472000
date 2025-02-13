@@ -1,4 +1,3 @@
-## Memes stopped as Reddit is not allowing me to fetch more memes, giving Error:403 😒.
 
 <h2> Connect with me👋 </h2>
 
