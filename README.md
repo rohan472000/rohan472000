@@ -1,13 +1,4 @@
 ## Memes stopped as Reddit is not allowing me to fetch more memes, giving Error:403 😒.
-**--------------------------------------------------------------------------------------------------------------------------------------------**
-
-
-![Funny Meme](https://i.redd.it/jntzvvpz2ryb1.jpg?width=100&height=100)
-* Meme Author: [misterjip](https://www.reddit.com/user/misterjip/)
-  
-  
-### Warning: The memes you see here are highly volatile and have a limited lifespan of 5 minutes. So, better hurry up and laugh before they disappear! 😄
-**------------------------------------------------------------------------------------------------------------------------------------------------**
 
 <h2> Connect with me👋 </h2>
 
